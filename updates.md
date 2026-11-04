@@ -1,3 +1,11 @@
+**El-Sayed Wins Michigan Senate Race**\
+`Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
+https://www.nytimes.com/video/us/elections/100000011261594/el-sayed-wins-michigan-senate-race-midterms.html
+
+**Israel’s President Will Start Talks on Whether Netanyahu or Eisenkot Can Form a Government**\
+`President Isaac Herzog began meeting with party leaders for two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
+https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
+
 **Trump Has Been Thumped. That Doesn’t Make Him Any Less Dangerous.**\
 `Breathe easy. For a minute.`\
 https://www.nytimes.com/2026/11/04/opinion/trump-midterms-democracy-threats.html

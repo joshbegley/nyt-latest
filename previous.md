@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/11/04/style/no-contact-family-estrangement.html
 https://www.nytimes.com/2026/11/04/business/us-trade-deficit-september.html
 
 **El-Sayed Wins Michigan Senate Race**\
-`Dr. Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
+`Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
 https://www.nytimes.com/video/us/elections/100000011261594/el-sayed-wins-michigan-senate-race-midterms.html
 
 **The Business Fallout From a Blue Wave**\
@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/11/04/us/elections/black-governors-georgia-florida-
 https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-bludgeoning.html
 
 **Israel’s President Will Start Talks on Whether Netanyahu or Eisenkot Can Form a Government**\
-`President Isaac Herzog will meet with party leaders over the next two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
+`President Isaac Herzog began meeting with party leaders for two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
 
 **The New York Times Adds 420,000 Digital Subscribers**\
@@ -94,10 +94,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wisconsin.html
 
-**How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
-
 **How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
@@ -110,6 +106,10 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-washington.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-west-virginia.html
 
+**How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
+
 **How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
@@ -117,14 +117,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
 **How Texas Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-texas.html
-
-**How Tennessee Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-tennessee.html
-
-**How Americans Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-national.html
 
 **How South Dakota Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -134,21 +126,29 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-south-dakota.htm
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-vermont.html
 
+**How Tennessee Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-tennessee.html
+
+**How Americans Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-national.html
+
 **How New York Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-york.html
 
-**How South Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
 
 **How Rhode Island Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-rhode-island.html
 
-**How North Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How South Carolina Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-north-carolina.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-south-carolina.html
 
 **How Oklahoma Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -162,10 +162,6 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-oregon.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-north-dakota.html
 
-**How Ohio Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-ohio.html
-
 **How Pennsylvania Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-pennsylvania.html
@@ -174,9 +170,17 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-pennsylvania.htm
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-mexico.html
 
+**How Ohio Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-ohio.html
+
 **How Nebraska Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-nebraska.html
+
+**How Montana Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-montana.html
 
 **How Mississippi Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
@@ -186,15 +190,11 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-mississippi.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-hampshire.html
 
-**How Montana Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How Nevada Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-montana.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-nevada.html
 
 **How New Jersey Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-jersey.html
-
-**How Nevada Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-nevada.html
 
