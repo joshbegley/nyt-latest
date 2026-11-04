@@ -1,3 +1,7 @@
+**Israel’s President Will Start Talks on Whether Netanyahu or Eisenkot Can Form a Government**\
+`President Isaac Herzog will meet with party leaders over the next two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
+https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
+
 **The New York Times Adds 420,000 Digital Subscribers**\
 `The additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year, after a slower second quarter.`\
 https://www.nytimes.com/2026/11/04/business/media/new-york-times-earnings.html
