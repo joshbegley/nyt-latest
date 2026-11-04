@@ -1,3 +1,23 @@
+**Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
+`Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
+https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
+
+**Lindsey Graham’s Legacy Is Done**\
+`Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
+https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
+
+**Democrat Wins Race for Texas Governor in Tectonic Upset**\
+`State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
+https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
+
+**Rob Sand Is Elected Iowa Governor, Ending Republicans’ Hold on the Seat**\
+`A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
+https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
+
+**Talarico Defeats Paxton in Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
+`James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
+https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
+
 **Sherrod Brown Regains an Ohio Senate Seat in Crucial Win for Democrats**\
 `Ousted two years ago by a Republican challenger, Mr. Brown returns to Washington in the seat once held by Vice President JD Vance.`\
 https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html

@@ -1,3 +1,15 @@
+**Wisconsin Elects Its First Black Governor, a Democrat**\
+`Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
+https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
+
+**Adam Hamilton Wins: How Kansas Finally Elected a Democratic Senator**\
+`What’s stunning about his win is that it wasn’t a surprise by Election Day.`\
+https://www.nytimes.com/2026/11/03/opinion/adam-hamilton-kansas-senate.html
+
+**Democrat Wins a Kansas Senate Seat for the First Time Since 1932**\
+`The Rev. Adam Hamilton, a centrist Democrat, ousted Senator Roger Marshall, a Republican who was bogged down by President Trump’s unpopularity.`\
+https://www.nytimes.com/2026/11/03/us/kansas-senate-marshall-hamilton.html
+
 **Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
 `Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
 https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
 `Just months after his death, Mr. Grah Senate seat is gone and his Ukraine policy is diminished.`\
 https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.html
 
-**Democrat Wins Race for Texas Governor in Tectonic Upset**\
+**Gina Hinojosa Wins Texas Governor Race in Major Upset, Defeating Greg Abbott**\
 `State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
 https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
 **Jon Ossoff Suddenly Looks Even More Presidential**\
 `Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
 https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
-
-**Jon Ossoff Wins Georgia Senate Race Against Mike Collins**\
-`Mr. Ossoff, the Democratic incumbent, was an aggressive anti-Trump campaigner. He beat Representative Mike Collins, a Republican.`\
-https://www.nytimes.com/2026/11/03/us/ossoff-georgia-senate-race.html
-
-**More Federal Election Monitors Than Ever Fanned Out to Polling Places**\
-`The presence caused jitters for some voters and election officials, but no major disruptions were reported.`\
-https://www.nytimes.com/2026/11/03/us/justice-department-monitors-election.html
-
-**Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
-`(No description)`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
