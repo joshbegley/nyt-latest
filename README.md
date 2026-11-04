@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/11/04/us/politics/michigan-senate-el-sayed.html
 `President Isaac Herzog has tried to avoid controversy and heal rifts in his largely ceremonial role. But his skills as a savvy mediator could be instrumental after an inconclusive election.`\
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-president-herzog-election-government.html
 
-**Midterm Elections Live Updates: Democrats Win Control of Congress as Voters Rebuke Trump**\
-`Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the results.`\
+**Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
+`Democrats flipped seven Senate seats, including three in states long held by Republicans, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the results.`\
 https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
 
 **Democrats Win Control of Congress**\
