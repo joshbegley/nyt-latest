@@ -1,3 +1,7 @@
+**‘We Hear You,’ Says Jeffries, Who Is Set to Break Barrier in House**\
+`Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
+https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
+
 **Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
 `Senator Susan Collins, the sole Republican representing New England in Congress, acknowledged that her seat had been lost on a landslide night for Democrats.`\
 https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/03/us/annie-andrews-south-carolina-what-to-know.
 **Zach Dembo, a Democrat, Defeats Ralph Alvarado in Republican-Leaning House Seat in Kentucky**\
 `The outcome in the state’s red Sixth District was a sign of Democratic strength in an area that voted heavily for President Trump two years ago.`\
 https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
-
-**Democrats Win South Carolina Senate Seat**\
-`In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
-https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
