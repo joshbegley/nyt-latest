@@ -1,3 +1,7 @@
+**How Gina Hinojosa Captured Texas**\
+`The woman who took down Greg Abbott concentrated on pocketbook issues, but voters’ opposition to Republican immigration policies was a tailwind.`\
+https://www.nytimes.com/2026/11/04/us/gina-hinojosa-texas-governor.html
+
 **My Call With President Trump**\
 `Our White House correspondents Tyler Pager and Erica L. Green called President Trump to ask whether he would accept the results of the election.`\
 https://www.nytimes.com/video/us/politics/100000011260461/my-call-with-president-trump.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/interactive/2026/11/03/us/elections/results-key-ballot-m
 **Amy Acton, a Democrat, Defeats Republican Vivek Ramaswamy in Ohio Governor’s Race**\
 `Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
 https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
-
-**NYC Voters Pass Ballot Measures That Could Boost Zohran Mamdani’s Agenda**\
-`The results could allow Mayor Zohran Mamdani to build housing and bike lanes more quickly.`\
-https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-elections.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\

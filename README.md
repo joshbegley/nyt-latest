@@ -1,3 +1,11 @@
+**Jocelyn Benson Holds Michigan Governor’s Office for Democrats**\
+`Ms. Benson, the secretary of state, defeated Representative John James in a swing state that often plays a critical role in presidential elections.`\
+https://www.nytimes.com/2026/11/04/us/michigan-governor-benson-james.html
+
+**Democrats Seize Control of Congress, Ending a G.O.P. Trifecta**\
+`The party’s victory in the House cemented an era of divided government and a freshly assertive Congress after two years in which Republicans ceded power to President Trump.`\
+https://www.nytimes.com/2026/11/04/us/elections/house-of-representatives-midterms-democrats-republicans.html
+
 **How Gina Hinojosa Captured Texas**\
 `The woman who took down Greg Abbott concentrated on pocketbook issues, but voters’ opposition to Republican immigration policies was a tailwind.`\
 https://www.nytimes.com/2026/11/04/us/gina-hinojosa-texas-governor.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
 **Xavier Becerra Becomes California’s First Latino Elected as Governor, Defeating Steve Hilton**\
 `Xavier Becerra, a Democrat who has served in various roles at the state and federal level, will succeed Gov. Gavin Newsom.`\
 https://www.nytimes.com/2026/11/03/us/california-governor-becerra-hilton.html
-
-**Key Ballot Measures 2026: Live Election Results**\
-`See results for ballot measures around the country related to voting rights, social policy, redistricting and more.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-key-ballot-measures.html
-
-**Amy Acton, a Democrat, Defeats Republican Vivek Ramaswamy in Ohio Governor’s Race**\
-`Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
-https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
