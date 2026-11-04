@@ -1,3 +1,7 @@
+**Trump Has Been Thumped. That Doesn’t Make Him Any Less Dangerous.**\
+`Breathe easy. For a minute.`\
+https://www.nytimes.com/2026/11/04/opinion/trump-midterms-democracy-threats.html
+
 **N.J. Republican Who Pledged ‘Undying Support’ for Trump Concedes Defeat**\
 `“Sometimes life is bumpy and you have to man up,” Representative Jeff Van Drew said as he acknowledged his loss to Zack Mullock, the mayor of Cape May, N.J.`\
 https://www.nytimes.com/2026/11/04/nyregion/zack-mullock-jeff-van-drew-nj-house-2.html
