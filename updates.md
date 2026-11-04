@@ -1,3 +1,11 @@
+**Musk Faces Setback as SpaceX and Tesla Stocks Tumble on Midterm Election Results**\
+`The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
+https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
+
+**How Delaware Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-delaware.html
+
 **How Alabama Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-alabama.html
