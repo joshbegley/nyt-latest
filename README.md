@@ -1,3 +1,15 @@
+**Beverly Whipple Has Died. She Introduced the G-Spot to the Mainstream.**\
+`Dr. Whipple studied the female erogenous zone and, with collaborators, wrote a best seller about women’s sexuality. She was 85.`\
+https://www.nytimes.com/2026/11/04/science/beverly-whipple-g-spot-dead.html
+
+**Trump Confronts a New Role: A Lame Duck Facing a Hostile Congress**\
+`After a decade at the center of American politics, President Trump is politically wounded, with diminished power. Those who know him say the next two years will be unpredictable.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-new-role-lame-duck.html
+
+**Simon Winchester, Author of ‘The Professor and the Madman,’ Has Died**\
+`He was a geologist who switched careers and became a prolific and adventurous journalist. He died at 82.`\
+https://www.nytimes.com/2026/11/04/obituaries/simon-winchester-dead.html
+
 **Japan’s Subtle Fragrances Are a Good Choice for a Gift List**\
 `Experts say the country’s subtle fragrances are good choices for a gift list.`\
 https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
@@ -177,14 +189,6 @@ https://www.nytimes.com/video/us/elections/100000011262311/desantis-republicans-
 **Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/04/style/tiny-modern-love-stories-her-92-year-old-boyfriend.html
-
-**Man Who Threw Snowballs at N.Y.P.D. Officers Receives Community Service**\
-`Gusmane Coulibaly pleaded guilty to harassment in connection with his actions at a large snowball fight this year in Washington Square Park.`\
-https://www.nytimes.com/2026/11/04/nyregion/snowball-thrower-nypd-plea-deal.html
-
-**For Israelis, U.S. Midterms Show How Far Their Star Has Fallen in America**\
-`Israel once had bipartisan support in the United States, but a strong showing for Democrats, some of whom are deeply critical of the war in Gaza, has left the country with fewer friends in Congress.`\
-https://www.nytimes.com/2026/11/04/world/middleeast/israel-trump-midterm-elections.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
