@@ -1,3 +1,19 @@
+**John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
+`A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
+https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
+
+**How the Audacious Trump Redistricting Push Backfired for Republicans in the Midterms**\
+`Republicans tried to redraw congressional maps to tilt more seats in their favor. Democrats captured many of the new districts instead.`\
+https://www.nytimes.com/2026/11/04/us/trump-republican-redistricting-backfire.html
+
+**A Democratic Sweep Gives Congress an Opening to Reassert Itself**\
+`President Trump usurped power from the legislative branch with Republican help for two years. Democrats are now positioned to try to claw back some of Congress’s prerogatives.`\
+https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-trump.html
+
+**DeSantis Lets Loose on Republicans After Midterm Losses**\
+`Gov. Ron DeSantis of Florida criticized his fellow Republicans at a news conference on Wednesday after sweeping losses in the midterm elections.`\
+https://www.nytimes.com/video/us/elections/100000011262311/desantis-lets-loose-on-republicans-after-midterm-losses.html
+
 **Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/04/style/tiny-modern-love-stories-her-92-year-old-boyfriend.html

@@ -1,3 +1,7 @@
+**Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
+`Last week, Lady Liberty turned 140. Find out the story of her creation.`\
+https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
+
 **John Frieda, Hairdresser to Royalty Who Built a Beauty Empire, Dies at 75**\
 `A fixture of London’s high-fashion salon scene, his clients also included celebrities like Jacqueline Kennedy Onassis, Raquel Welch and Gwyneth Paltrow in a career that lasted more than 50 years.`\
 https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-senate-stat
 **A Blue Wave**\
 `In a rebuke to President Trump, the Democrats flipped both the Senate and the House.`\
 https://www.nytimes.com/2026/11/04/briefing/a-blue-wave.html
-
-**SpaceX and Tesla Stocks Tumble After Elon Musk-Backed Candidates Lose in Texas**\
-`The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
-https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
 
