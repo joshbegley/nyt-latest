@@ -1,3 +1,11 @@
+**On TV, the Midterms Offered Drama and a Casting Change**\
+`For once, the numbers provided a quick, decisive verdict. But from Fox News to the Kornacki Cam, the voices and faces told the story.`\
+https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
+
+**Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
+`House Speaker Mike Johnson told Republican aides that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
+
 **How New Jersey Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-new-jersey.html
