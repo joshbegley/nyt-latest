@@ -1,3 +1,15 @@
+**A Lawsuit Says the McRib Is Lacking Something You Might Expect It to Have**\
+`A judge in Chicago ruled that the class-action lawsuit could proceed.`\
+https://www.nytimes.com/2026/11/04/business/mcdonalds-mcrib-lawsuit.html
+
+**How a Logger From Maine Toppled a Giant of the Senate**\
+`Troy Jackson, a former Democratic state lawmaker, upset Senator Susan Collins, a Republican who had served the state for 30 years.`\
+https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-collins.html
+
+**Democrats Will Control Most Governorships, a Generational Shift**\
+`Democrats took five new seats for a total of 29, giving them a majority for the first time in years. The wins could expand state-level resistance to the Trump administration.`\
+https://www.nytimes.com/2026/11/04/us/democrats-governors.html
+
 **Midterm Elections Live Updates: Vance Says Iran War Led to Democrats’ Sweep**\
 `Democrats flipped the House and Senate as part of a remarkable power shift in the midterm elections. Senator Chuck Schumer hailed a “generational remake” of the body’s majority.`\
 https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
