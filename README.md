@@ -46,7 +46,7 @@ https://www.nytimes.com/2026/11/04/style/john-frieda-dead.html
 `Republicans tried to redraw congressional maps to tilt more seats in their favor. Democrats captured many of the new districts instead.`\
 https://www.nytimes.com/2026/11/04/us/trump-republican-redistricting-backfire.html
 
-**A Democratic Sweep Gives Congress an Opening to Reassert Itself**\
+**With Democrats’ Sweep, Congress Is Set to Reassert Power to Check Trump**\
 `President Trump usurped power from the legislative branch with Republican help for two years. Democrats are now positioned to try to claw back some of Congress’s prerogatives.`\
 https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-trump.html
 

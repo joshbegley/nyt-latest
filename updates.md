@@ -1,3 +1,23 @@
+**Vegan Maple Ginger Pie**\
+`Like a ginger ale at 30,000 feet, this zippy pie might just be the thing to settle your stomach after a Thanksgiving feast.`\
+https://www.nytimes.com/video/dining/100000011223069/vegan-maple-ginger-pie.html
+
+**Cranberry Tiramisù**\
+`Though this tiramisù doesn’t come with espresso, its tangy cranberry juice-soaked ladyfingers and cranberry sauce drizzled between airy cream layers deliver an invigorating midday or post-dinner pick-me-up.`\
+https://www.nytimes.com/video/dining/100000011255203/cranberry-tiramisu.html
+
+**Coconut Fish and Tomato Bake**\
+`A coconut-milk dressing infused with garlic, ginger, turmeric and lime coats fish fillets in this sheet-pan dinner. Accompanying the fish are bright bursts of tomatoes which turn jammy under the broiler and relinquish some of their juices to the pan sauce.`\
+https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bake.html
+
+**Tini Younger’s Mac and Cheese**\
+`This is the stunningly cheesy recipe that made Tini Younger the most popular woman chef on TikTok after she posted it in 2023.`\
+https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
+
+**Colom Makes Confident Speech as Vote Count Continues In Mississippi**\
+`The Democratic candidate for Senate, Scott Colom, leads his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
+https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
+
 **Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
 `The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani his first major legal victory over a key piece of his agenda.`\
 https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html

@@ -1,3 +1,23 @@
+**Vegan Maple Ginger Pie**\
+`Like a ginger ale at 30,000 feet, this zippy pie might just be the thing to settle your stomach after a Thanksgiving feast.`\
+https://www.nytimes.com/video/dining/100000011223069/vegan-maple-ginger-pie.html
+
+**Cranberry Tiramisù**\
+`Though this tiramisù doesn’t come with espresso, its tangy cranberry juice-soaked ladyfingers and cranberry sauce drizzled between airy cream layers deliver an invigorating midday or post-dinner pick-me-up.`\
+https://www.nytimes.com/video/dining/100000011255203/cranberry-tiramisu.html
+
+**Coconut Fish and Tomato Bake**\
+`A coconut-milk dressing infused with garlic, ginger, turmeric and lime coats fish fillets in this sheet-pan dinner. Accompanying the fish are bright bursts of tomatoes which turn jammy under the broiler and relinquish some of their juices to the pan sauce.`\
+https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bake.html
+
+**Tini Younger’s Mac and Cheese**\
+`This is the stunningly cheesy recipe that made Tini Younger the most popular woman chef on TikTok after she posted it in 2023.`\
+https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
+
+**Colom Makes Confident Speech as Vote Count Continues In Mississippi**\
+`The Democratic candidate for Senate, Scott Colom, leads his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
+https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
+
 **Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
 `The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani his first major legal victory over a key piece of his agenda.`\
 https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/11/04/style/no-contact-family-estrangement.html
 **America’s Trade Deficit Remained Elevated in September**\
 `The gap between U.S. exports and imports, which remained at a relatively high level in September, has defied efforts by President Trump to decrease it with tariffs.`\
 https://www.nytimes.com/2026/11/04/business/us-trade-deficit-september.html
-
-**El-Sayed Wins Michigan Senate Race**\
-`Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
-https://www.nytimes.com/video/us/elections/100000011261594/el-sayed-wins-michigan-senate-race-midterms.html
-
-**The Business Fallout From a Blue Wave**\
-`Investors are already picking the winners and the losers after Democrats glided to a landslide victory in the midterm elections.`\
-https://www.nytimes.com/2026/11/04/business/dealbook/business-fallout-blue-wave.html
-
-**Black Candidates for Governor Break Barriers in Four States**\
-`Georgia was the first state to elect a female Black governor with Keisha Lance Bottoms. Three other states elected Black governors for the first time.`\
-https://www.nytimes.com/2026/11/04/us/elections/black-governors-georgia-florida-wisconsin-usvi.html
-
-**Democrats Deliver a Big Blue Bludgeoning**\
-`The party’s midterm victory reshapes the political landscape.`\
-https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-bludgeoning.html
-
-**Israel’s President Will Start Talks on Whether Netanyahu or Eisenkot Can Form a Government**\
-`President Isaac Herzog began meeting with party leaders for two days to decide whether to give Prime Minister Benjamin Netanyahu or rivals the first chance at forming a coalition.`\
-https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
 
