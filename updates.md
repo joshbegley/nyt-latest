@@ -1,3 +1,7 @@
+**Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
+`The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani a victory over a key piece of his agenda.`\
+https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
+
 **The Democratic Wave Swept Statehouses Across the Country**\
 `Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html

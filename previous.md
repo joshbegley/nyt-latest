@@ -59,7 +59,7 @@ https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-chees
 https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
 
 **Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
-`The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani his first major legal victory over a key piece of his agenda.`\
+`The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani a victory over a key piece of his agenda.`\
 https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
 
 **Voters Rejected A.I. in the Midterms. Now Comes an Era of Scrutiny.**\
