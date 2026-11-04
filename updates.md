@@ -1,3 +1,11 @@
+**15-Minute Lesson Plan: A Teen Tracks Down Over 11,377 Moths**\
+`Violet Clinton is doing award-winning entomological field research. Is there a citizen science project you might want to conduct?`\
+https://www.nytimes.com/2026/11/04/learning/15-minute-lesson-plan-a-teen-tracks-down-over-11377-moths.html
+
+**Angry Voters Usher in Beginning to the End of the Trump Era**\
+`The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
+
 **Tina Kotek, Endangered Democratic Governor in Oregon, Wins Re-election**\
 `Gov. Tina Kotek was one of the few embattled incumbents in her party, but she prevailed in her Democratic state.`\
 https://www.nytimes.com/2026/11/04/us/oregon-governor-kotek-drazan.html
