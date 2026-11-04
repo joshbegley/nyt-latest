@@ -1,3 +1,19 @@
+**Man Who Threw Snowballs at N.Y.P.D. Officers Receives Community Service**\
+`Gusmane Coulibaly pleaded guilty to harassment in connection with his actions at a large snowball fight this year in Washington Square Park.`\
+https://www.nytimes.com/2026/11/04/nyregion/snowball-thrower-nypd-plea-deal.html
+
+**For Israelis, U.S. Midterms Show How Far Their Star Has Fallen in America**\
+`Israel once had bipartisan support in the United States, but a strong showing for Democrats, some of whom are deeply critical of the war in Gaza, has left the country with fewer friends in Congress.`\
+https://www.nytimes.com/2026/11/04/world/middleeast/israel-trump-midterm-elections.html
+
+**America Sends a Resounding Message**\
+`From joy to concern, readers react to the Democrats’ “shellacking” of the Republicans in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/opinion/letters/midterm-elections-trump.html
+
+**Georgia Governor Nixes Rushed Redistricting Before G.O.P. Loses Power**\
+`Gov. Brian Kemp, a Republican, declined to call a special session to draw new congressional maps or weaken the power of the governor’s office before a Democrat takes office.`\
+https://www.nytimes.com/2026/11/04/us/kemp-georgia-redistricting-keisha-lance-bottoms.html
+
 **The Good List: 6 Things to Add Joy to Your Day**\
 `Special cheese, honey hack and going local.`\
 https://www.nytimes.com/2026/11/04/briefing/the-good-list-special-cheese-six-degrees.html
@@ -170,31 +186,11 @@ https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wisconsin.html
 
-**How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
-
-**How Washington Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-washington.html
-
-**How West Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-west-virginia.html
-
 **How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
 
-**How Utah Voted in the 2026 Election by Race, Gender, Age and Education**\
+**How Virginia Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-utah.html
-
-**How Tennessee Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-tennessee.html
-
-**How Americans Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-national.html
+https://www.nytimes.com/interactive/2026/elections/voter-trends-virginia.html
 
