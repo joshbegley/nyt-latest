@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/04/magazine/memoir-brother-crime-ethics.html
 `A judge in Chicago ruled that the class-action lawsuit could proceed.`\
 https://www.nytimes.com/2026/11/04/business/mcdonalds-mcrib-lawsuit.html
 
-**How a Logger From Maine Toppled a Giant of the Senate**\
+**How Troy Jackson Defeated Susan Collins in Maine, Ending Her 30 Year Senate Career**\
 `Troy Jackson, a former Democratic state lawmaker, upset Senator Susan Collins, a Republican who had served the state for 30 years.`\
 https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-collins.html
 
