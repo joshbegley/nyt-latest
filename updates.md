@@ -1,3 +1,11 @@
+**Byron Donalds, Staunch Trump Supporter, Wins Florida Governor’s Race Against David Jolly**\
+`Mr. Donalds will become Florida’s first Black governor, maintaining his party’s hold on a state that has not put a Democrat in the job since the 1990s.`\
+https://www.nytimes.com/2026/11/03/us/donalds-florida-governor-race.html
+
+**AOC Is Elected to Fifth Term in New York House District**\
+`Alexandria Ocasio-Cortez defeated her opponent, Diamant Hysenaj, despite having spent much of this election cycle campaigning for other Democrats across the country.`\
+https://www.nytimes.com/2026/11/03/nyregion/new-york-house-14-aoc-hysenaj.html
+
 **Democrats Flip North Carolina Senate Seat**\
 `The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html

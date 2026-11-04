@@ -1,3 +1,11 @@
+**Byron Donalds, Staunch Trump Supporter, Wins Florida Governor’s Race Against David Jolly**\
+`Mr. Donalds will become Florida’s first Black governor, maintaining his party’s hold on a state that has not put a Democrat in the job since the 1990s.`\
+https://www.nytimes.com/2026/11/03/us/donalds-florida-governor-race.html
+
+**AOC Is Elected to Fifth Term in New York House District**\
+`Alexandria Ocasio-Cortez defeated her opponent, Diamant Hysenaj, despite having spent much of this election cycle campaigning for other Democrats across the country.`\
+https://www.nytimes.com/2026/11/03/nyregion/new-york-house-14-aoc-hysenaj.html
+
 **Democrats Flip North Carolina Senate Seat**\
 `The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/video/us/politics/100000011258397/trump-israel-aid-4-bil
 **Election Day Turnout Is High Across Battleground States**\
 `A midterm campaign marked by high engagement showed no signs of slowing on Election Day, though it was unclear whether either party had an advantage.`\
 https://www.nytimes.com/2026/11/03/us/election-day-turnout-battleground-states.html
-
-**Ryū Murakami, Writer Who Explored Japan’s Dark Side, Dies at 74**\
-`His books about sex, drugs and social misfits amid the country’s economic boom — and subsequent bust — sold millions of copies.`\
-https://www.nytimes.com/2026/11/03/books/ryu-murakami-dead.html
-
-**More Iranians Call for Nuclear Weapons After War With U.S.**\
-`Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
-https://www.nytimes.com/2026/11/03/world/europe/iran-nuclear-weapons-war.html
 
 **Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
 `(No description)`\
