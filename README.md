@@ -1,3 +1,7 @@
+**Trump Media’s Shares Fall to Record Low After Midterms**\
+`Trump Media & Technology Group’s stock plunged 24 percent a day after Democrats made huge gains in the midterm elections.`\
+https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-elections.html
+
 **Whose Idea Was the Shower Scene in ‘You Can See Everything’?**\
 `Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
 https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voter
 **Juan Atkins Has Died. He Helped Invent Techno Music.**\
 `He combined the futurism of Kraftwerk with the funk of George Clinton to arrive at techno, making Detroit a capital of the genre. He was 64.`\
 https://www.nytimes.com/2026/11/04/arts/music/juan-atkins-dead.html
-
-**Herbert Blomstedt, Low-Key, Long-Performing Maestro, Dies at 99**\
-`He never achieved the celebrity of more glamorous colleagues, but drew acclaim as he remained at the podium until virtually the end of his long life.`\
-https://www.nytimes.com/2026/11/04/arts/music/herbert-blomstedt-dead.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

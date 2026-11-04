@@ -1,3 +1,15 @@
+**Whose Idea Was the Shower Scene in ‘You Can See Everything’?**\
+`Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
+https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
+
+**‘Tired of Stupidity and Ballrooms and Wars’**\
+`Americans are ready for a different kind of politics, and that showed up in the election results, the Opinion contributing writer E.J. Dionne Jr. argues. “People are tired of the division. They’re tired of wasting time. They’re tired of stupidity and ballrooms and wars,” he says.`\
+https://www.nytimes.com/video/opinion/100000011263294/tired-of-stupidity-and-ballrooms-and-wars.html
+
+**DeSantis Lets Loose on Republicans After Midterm Losses**\
+`Gov. Ron DeSantis of Florida criticized his fellow Republicans at a news conference on Wednesday after sweeping losses in the midterm elections.`\
+https://www.nytimes.com/video/us/elections/100000011262311/desantis-republicans-midterm-losses.html
+
 **Susan Collins Finally Falls to an Election Foe: Donald Trump**\
 `The Maine Republican survived tough cycles in the past even as the political ground shifted underneath her. But the anti-Trump fever in her state doomed her this time.`\
 https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
