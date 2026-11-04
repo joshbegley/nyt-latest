@@ -1,3 +1,15 @@
+**Democrats Flip South Carolina Senate Seat**\
+`In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
+https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
+
+**Annie Andrews Defeats Darline Graham in South Carolina Senate Race**\
+`Dr. Annie Andrews, a Democrat, was projected to defeat Senator Darline Graham, who succeeded her brother after his death, flipping a key Senate seat.`\
+https://www.nytimes.com/2026/11/03/us/andrews-graham-south-carolina-senate.html
+
+**What Are Your Reactions to the Results of the 2026 Midterm Elections?**\
+`As the votes are counted, we invite teenagers to post reactions and have conversations here. What do the results mean for you, your community and our nation?`\
+https://www.nytimes.com/2026/11/03/learning/what-are-your-reactions-to-the-results-of-the-2026-midterm-elections.html
+
 **NYT Crossword Answers for Nov. 4, 2026**\
 `Peggy Sue Marlin makes her New York Times Crossword debut.`\
 https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/11/03/us/san-francisco-polling-places-midterms-elec
 **Voting in Westchester County Continues Despite Technical Glitches**\
 `Ballots from Westchester County, N.Y., polling places will be escorted by the police to election headquarters and counted under the observation of lawyers from both parties after technical glitches prevented scanning machines from accepting them on Tuesday.`\
 https://www.nytimes.com/video/us/elections/100000011259071/westchester-voting-midterms-scanning-machines.html
-
-**With Redistricting on the Ballot, a Longtime Missouri Democrat Persists**\
-`Missouri Republicans tried to end the congressional career of Emanuel Cleaver. Even with an old map back in place on Election Day, his political future remained unclear.`\
-https://www.nytimes.com/2026/11/03/us/elections/emanuel-cleaver-missouri-redistricting.html
-
-**Spain’s Transport Minister Resigns After Deadly High-Speed Rail Crash**\
-`Nearly 70 people died in the crash, the second high-speed rail accident in less than a year.`\
-https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-minister-resigns-oscar-puente.html
-
-**How Will the Midterms Play Out? These Races May Provide Early Clues.**\
-`Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
-https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
 
 **Midterm Elections Live Updates: South Carolina Elects First Democratic Senator in Decades**\
 `(No description)`\

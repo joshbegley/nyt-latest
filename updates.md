@@ -1,3 +1,15 @@
+**Roy Cooper Bored His Way Into the Senate**\
+`In North Carolina, Roy Cooper affirmed the power of the right person waging the right campaign in the right place.`\
+https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
+
+**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
+`Kristen Soltis Anderson and Jamelle Bouie talk about the ethical dimension of some of the races this year. They are joined by Matthew Yglesias.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
+**Midterm Elections Live Updates: South Carolina Elects First Democratic Senator in Decades**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **NYT Crossword Answers for Nov. 4, 2026**\
 `Peggy Sue Marlin makes her New York Times Crossword debut.`\
 https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html

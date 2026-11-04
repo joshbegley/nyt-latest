@@ -71,7 +71,7 @@ https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleg
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
 
 **Roy Cooper Bored His Way Into the Senate**\
-`As much as any midterm race, the senator-elect affirmed the power of the right person waging the right campaign`\
+`In North Carolina, Roy Cooper affirmed the power of the right person waging the right campaign in the right place.`\
 https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
 
 **Roy Cooper Flips North Carolina Senate Seat to Democrats by Defeating Michael Whatley**\
@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
-`Kristen Soltis Anderson and Jamelle Bouie talk about the South Carolina Senate race and the implications of the Georgia race.`\
+`Kristen Soltis Anderson and Jamelle Bouie talk about the ethical dimension of some of the races this year. They are joined by Matthew Yglesias.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
 **How The New York Times Tracks Election News and Tips**\
@@ -178,7 +178,7 @@ https://www.nytimes.com/2026/11/03/world/europe/spain-train-crash-transport-mini
 `Election results in states where voting ends early could indicate how each party will fare in House and Senate races elsewhere in the country.`\
 https://www.nytimes.com/2026/11/03/us/politics/midterm-elections-polls-early-results-senate-house.html
 
-**Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
+**Midterm Elections Live Updates: South Carolina Elects First Democratic Senator in Decades**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
