@@ -1,3 +1,7 @@
+**Texas’ Hispanic Voters**\
+`In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
+https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html
+
 **Wisconsin Elects Its First Black Governor, a Democrat**\
 `Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
 https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/11/03/opinion/annie-andrews-south-carolina-senate.h
 `State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
 https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
 
-**Rob Sand Is Elected Iowa Governor, Ending Republicans’ Hold on the Seat**\
+**Rob Sand Defeats Zach Lahn in Iowa Governor’s Race, Ending Republicans’ Hold on the Seat**\
 `A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
 https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
 
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
 https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
 
 **Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
-`If Democrats want to take back the White House, they should follow the Ohio senator’s playbook of focusing on economic issues while sidestepping cultural ones.`\
+`If Democrats want to take back the White House, they should follow the Ohio senator-elect’s playbook of focusing on economic issues while sidestepping cultural ones.`\
 https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
 
 **Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
 **Chris Pappas Defeats John Sununu in New Hampshire Senate Race**\
 `Representative Chris Pappas beat a former Republican senator, John E. Sununu. He will succeed the Democratic incumbent, Jeanne Shaheen, who did not run for re-election.`\
 https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
-
-**Jon Ossoff Suddenly Looks Even More Presidential**\
-`Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
-https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
 
