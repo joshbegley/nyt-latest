@@ -1,3 +1,11 @@
+**A Democratic Sweep Gives Congress an Opening to Reassert Itself**\
+`President Trump usurped power from the legislative branch with Republican help for two years. Democrats are now positioned to try to claw back some of Congress’s prerogatives.`\
+https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-trump.html
+
+**DeSantis Lets Loose on Republicans After Midterm Losses**\
+`Gov. Ron DeSantis of Florida criticized his fellow Republicans at a news conference on Wednesday after sweeping losses in the midterm elections.`\
+https://www.nytimes.com/video/us/elections/100000011262311/desantis-lets-loose-on-republicans-after-midterm-losses.html
+
 **Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/04/style/tiny-modern-love-stories-her-92-year-old-boyfriend.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-remote-voting-a
 **How Colorado Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-colorado.html
-
-**How Wisconsin Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-wisconsin.html
-
-**How Wyoming Voted in the 2026 Election by Race, Gender, Age and Education**\
-`Explore the results of the election by race, gender, age and education.`\
-https://www.nytimes.com/interactive/2026/elections/voter-trends-wyoming.html
 
