@@ -1,3 +1,19 @@
+**‘An Earthquake’: A Democratic Rout Stuns Texas**\
+`In a seismic shift that was once unthinkable, victories by James Talarico and Gina Hinojosa upended decades of statewide dominance in what had been the nation’s most populous conservative state.`\
+https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
+
+**A Democratic Senator for Kansas**\
+`Democrats won a Senate seat in Kansas for the first time in nearly 100 years. Our election data reporter Christine Zhang talks about the growing Democratic footprint in the state.`\
+https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-for-kansas.html
+
+**Two Native American Women Break Political Barriers This Election**\
+`Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
+https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
+
+**Democrat Unseats House Republican in Iowa, Flipping an Important Seat**\
+`Discontent about the war with Iran and tariffs helped create a tough environment for Representative Mariannette Miller-Meeks, the defeated Republican.`\
+https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meeks.html
+
 **Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
 `Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
 https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
@@ -134,7 +150,7 @@ https://www.nytimes.com/2026/11/03/us/annie-andrews-south-carolina-what-to-know.
 `The outcome in the state’s red Sixth District was a sign of Democratic strength in an area that voted heavily for President Trump two years ago.`\
 https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
 
-**Democrats Flip South Carolina Senate Seat**\
+**Democrats Win South Carolina Senate Seat**\
 `In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
 https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
 
@@ -178,23 +194,7 @@ https://www.nytimes.com/2026/11/03/nyregion/new-york-house-14-aoc-hysenaj.html
 `The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
 https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html
 
-**Kathy Hochul Fends Off Bruce Blakeman in New York Governor Race**\
-`Kathy Hochul, New York’s first female governor, defeated Bruce Blakeman, capitalizing on voter frustration with President Trump and other Republicans.`\
-https://www.nytimes.com/2026/11/03/nyregion/new-york-governor-hochul-blakeman.html
-
-**Trump Is Watching Fox News, and He Is Not Thrilled**\
-`On a consequential midterm night, the president offered some harsh criticism of the cable news channel on his social media account.`\
-https://www.nytimes.com/2026/11/03/business/media/trump-fox-news-gutfeld-tarlov.html
-
-**G.O.P. Holds Florida**\
-`Ashley Moody, a Republican, defeated Angie Nixon, a Democrat, in the U.S. Senate race in Florida, but Ms. Nixon did well in some Hispanic-majority counties. Our election data reporter Evan Reynolds explains.`\
-https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.html
-
-**‘We Will Find You’: Trump Officials Pledge to Arrest Noncitizen Voters**\
-`Immigration agents did not show up in large numbers at polling places. But Trump administration officials repeatedly warned on Election Day that noncitizen voters would face consequences.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-mullin-noncitizen-voting-arrests.html
-
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
-`(No description)`\
+`Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

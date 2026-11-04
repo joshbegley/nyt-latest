@@ -1,3 +1,11 @@
+**Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
+`Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
+https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
+
+**Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **U.K. Supreme Court to Hear Challenge to Ban on Palestine Action: What to Know**\
 `The government designated the protest group as a terrorist organization last year, prompting criticism. The country’s Supreme Court is set to begin hearing a challenge to the ban on Wednesday.`\
 https://www.nytimes.com/2026/11/04/world/europe/palestine-action-ban-uk-supreme-court.html
