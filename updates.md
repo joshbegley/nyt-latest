@@ -1,3 +1,7 @@
+**The Democratic Wave Swept Statehouses Across the Country**\
+`Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
+https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
+
 **A Trump Reckoning**\
 `The results from the U.S. midterm elections could be the beginning of the end of the Trump era.`\
 https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
