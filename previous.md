@@ -1,3 +1,27 @@
+**The Methodology Behind Times Voter Trends**\
+`Read the detailed methodology behind the Times Voter Trends reports for 2026.`\
+https://www.nytimes.com/2026/11/04/us/elections/times-voter-trends-methodology.html
+
+**A Landslide Victory for Democrats**\
+`The party clinched the House and the Senate in the midterm elections, giving Democrats a powerful platform to counter President Trump.`\
+https://www.nytimes.com/2026/11/04/podcasts/the-daily/midterm-results-blue-wave.html
+
+**Today’s Wordle Hints for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/wordle-review-1965.html
+
+**Democrats Take Congress in a Landslide, and Trump Says He’s ‘Willing to Accept Those Results’**\
+`Plus, how to vote from space.`\
+https://www.nytimes.com/2026/11/04/podcasts/the-headlines/midterm-election-results.html
+
+**NYT Strands Hints for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/strands-sidekick-977.html
+
+**NYT Connections Answers for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/connections-companion-1243.html
+
 **What’s Next in the Alaska Senate Race?**\
 `The race could take weeks to be decided.`\
 https://www.nytimes.com/2026/11/04/us/alaska-senate-race-election-results-what-next.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011261250/marjorie-taylor
 **NYT Spelling Bee Answers for November 4, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/04/crosswords/spelling-bee-forum.html
-
-**Idaho Voters Reject Referendum to Lift State’s Abortion Ban**\
-`Proponents of the initiative had blamed the abortion ban on a steep decline in the number of obstetricians and gynecologists in the state, but they could not overcome Idaho’s conservatism.`\
-https://www.nytimes.com/2026/11/04/us/idaho-abortion.html
-
-**Chris Pappas to Become First Openly Gay Male Senator**\
-`Representative Chris Pappas of New Hampshire, the first openly gay man to win a Senate seat, spoke about a Democratic victory over the “broken status quo” and gave a shoutout to his husband.`\
-https://www.nytimes.com/video/us/elections/100000011260967/chris-pappas-first-openly-gay-male-senator.html
-
-**Abdul El-Sayed’s Historic Win in Michigan Answers Several Questions**\
-`Abdul El-Sayed’s victory answers several questions.`\
-https://www.nytimes.com/2026/11/04/opinion/abdul-el-sayed-michigan-senate.html
-
-**El-Sayed Wins Michigan Senate Race in a Victory for Democrats**\
-`Dr. Abdul El-Sayed will become the nation’s first Muslim senator. He triumphed in one of the country’s most bitter and expensive races, keeping his party in control of a crucial seat.`\
-https://www.nytimes.com/2026/11/04/us/michigan-senate-el-sayed-rogers.html
-
-**These Wins Could Mint a New Generation of Democratic Stars**\
-`Voters from South Carolina to Ohio to Texas have elevated a new class of Democrats who could not be more different from one another.`\
-https://www.nytimes.com/2026/11/04/us/politics/democratic-newcomers-congress.html
-
-**Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
-`Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
-https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
 

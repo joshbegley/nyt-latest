@@ -1,3 +1,27 @@
+**The Methodology Behind Times Voter Trends**\
+`Read the detailed methodology behind the Times Voter Trends reports for 2026.`\
+https://www.nytimes.com/2026/11/04/us/elections/times-voter-trends-methodology.html
+
+**A Landslide Victory for Democrats**\
+`The party clinched the House and the Senate in the midterm elections, giving Democrats a powerful platform to counter President Trump.`\
+https://www.nytimes.com/2026/11/04/podcasts/the-daily/midterm-results-blue-wave.html
+
+**Today’s Wordle Hints for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/wordle-review-1965.html
+
+**Democrats Take Congress in a Landslide, and Trump Says He’s ‘Willing to Accept Those Results’**\
+`Plus, how to vote from space.`\
+https://www.nytimes.com/2026/11/04/podcasts/the-headlines/midterm-election-results.html
+
+**NYT Strands Hints for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/strands-sidekick-977.html
+
+**NYT Connections Answers for November 5, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/04/crosswords/connections-companion-1243.html
+
 **What’s Next in the Alaska Senate Race?**\
 `The race could take weeks to be decided.`\
 https://www.nytimes.com/2026/11/04/us/alaska-senate-race-election-results-what-next.html
