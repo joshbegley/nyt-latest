@@ -1,3 +1,15 @@
+**Sherrod Brown Regains an Ohio Senate Seat in Crucial Win for Democrats**\
+`Ousted two years ago by a Republican challenger, Mr. Brown returns to Washington in the seat once held by Vice President JD Vance.`\
+https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
+
+**Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
+`If Democrats want to take back the White House, they should follow the Ohio senator’s playbook of focusing on economic issues while sidestepping cultural ones.`\
+https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
+
+**Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
 `Nancy Pelosi’s husband was charged with a misdemeanor after he hit a parked car and drove away. He will not be allowed to drive for six months.`\
 https://www.nytimes.com/2026/11/03/us/paul-pelosi-crash-napa-valley-prohibited-driving.html

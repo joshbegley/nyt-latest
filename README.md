@@ -1,3 +1,11 @@
+**Democrat Wins Race for Texas Governor in Tectonic Upset**\
+`State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
+https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
+
+**Rob Sand Is Elected Iowa Governor, Ending Republicans’ Hold on the Seat**\
+`A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
+https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
+
 **Sherrod Brown Regains an Ohio Senate Seat in Crucial Win for Democrats**\
 `Ousted two years ago by a Republican challenger, Mr. Brown returns to Washington in the seat once held by Vice President JD Vance.`\
 https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-
 `Representative Shomari Figures won even though a new Republican-drawn map changed his district, a move prompted by the Supreme Court decision weakening the Voting Rights Act.`\
 https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
 
-**Talarico Wins Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
+**Talarico Defeats Paxton in Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
 `James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
 https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/justice-department-monitors-election.html
 **Anthrax Outbreak in Africa’s Oldest National Park Is Killing Hippos**\
 `The disease has killed 30 hippopotamuses in Virunga National Park in the Democratic Republic of Congo since September, officials say.`\
 https://www.nytimes.com/2026/11/03/world/africa/congo-anthrax-hippos-virunga-park.html
-
-**Americans Cast Their Votes, From Sea to Shining Sea**\
-`In gymnasiums, town halls, classrooms and even restaurants, voters headed to the polls on Tuesday to decide control of the Senate, House and more.`\
-https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
-
-**Why Some States Take Longer to Count and Report Election Results**\
-`Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
-https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
 `(No description)`\
