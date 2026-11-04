@@ -1,3 +1,15 @@
+**Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
+`The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani his first major legal victory over a key piece of his agenda.`\
+https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
+
+**Voters Rejected A.I. in the Midterms. Now Comes an Era of Scrutiny.**\
+`After two years of little A.I. oversight, voters on Tuesday rejected data center projects and swept into office Democratic candidates who promised to regulate the technology.`\
+https://www.nytimes.com/2026/11/04/technology/midterm-elections-ai-data-centers.html
+
+**On the Democrats’ Agenda: Investigations of Trump and His Family**\
+`When a new Congress is sworn in, it will have the power to hold hearings and issue subpoenas, prompting one representative to advise White House officials and others to “lawyer up.”`\
+https://www.nytimes.com/2026/11/04/us/trump-family-investigations-democrats.html
+
 **How Trump’s Energy Policies Helped Trigger Midterm Rout**\
 `The war in Iran, efforts to promote fossil fuels and attacks on renewable energy contributed to higher prices for gas and electricity that drove voter discontent.`\
 https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-election.html
