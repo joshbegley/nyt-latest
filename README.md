@@ -124,7 +124,7 @@ https://www.nytimes.com/2026/11/04/us/politics/democrats-house-senate-congress-t
 
 **DeSantis Lets Loose on Republicans After Midterm Losses**\
 `Gov. Ron DeSantis of Florida criticized his fellow Republicans at a news conference on Wednesday after sweeping losses in the midterm elections.`\
-https://www.nytimes.com/video/us/elections/100000011262311/desantis-lets-loose-on-republicans-after-midterm-losses.html
+https://www.nytimes.com/video/us/elections/100000011262311/desantis-republicans-midterm-losses.html
 
 **Tiny Love Stories: ‘Her 92-Year-Old Boyfriend’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
@@ -185,10 +185,6 @@ https://www.nytimes.com/2026/11/04/arts/dance/folies-bergere-benjamin-millepied-
 **Vance, in Break With Trump, Blames Iran War for Republicans’ 2026 Midterm Losses**\
 `In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to distance himself from the president.`\
 https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
-
-**Can I Publish a Memoir About My Brother’s Crime Without Telling Him?**\
-`He will most likely never be aware of the book’s publication if I do not tell him.`\
-https://www.nytimes.com/2026/11/04/magazine/memoir-brother-crime-ethics.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
