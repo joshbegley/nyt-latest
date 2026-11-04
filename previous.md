@@ -1,3 +1,7 @@
+**Americans Cast Their Votes, From Sea to Shining Sea**\
+`In gymnasiums, town halls, classrooms and even restaurants, voters headed to the polls on Tuesday to decide control of the Senate, House and more.`\
+https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
+
 **Why Some States Take Longer to Count and Report Election Results**\
 `Mail-in ballots are often slower to process in states with high volumes of them, and the count cannot begin until Election Day in some cases.`\
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-administration-midterm-elec
 **The Sublime Songs of Jimmy Webb**\
 `Hear “Wichita Lineman,” “MacArthur Park,” “P.F. Sloan” and more of the songwriter’s greatest works.`\
 https://www.nytimes.com/2026/11/03/arts/music/amplifier-newsletter-jimmy-webb-songs.html
-
-**Here Are the 11 Senate Races to Watch on Election Day**\
-`Control of the chamber is on the ballot on Election Day.`\
-https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
 
 **Midterm Elections Live Updates: Polls Close in Several Battlegrounds in Fight to Control Congress**\
 `(No description)`\

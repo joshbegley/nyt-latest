@@ -1,3 +1,7 @@
+**Americans Cast Their Votes, From Sea to Shining Sea**\
+`In gymnasiums, town halls, classrooms and even restaurants, voters headed to the polls on Tuesday to decide control of the Senate, House and more.`\
+https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
+
 **Midterm Elections Live Updates: Polls Close in Several Battlegrounds in Fight to Control Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
