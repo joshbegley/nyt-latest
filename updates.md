@@ -1,3 +1,7 @@
+**Here are the Midterm Races in the House and Senate That Have Not Been Called**\
+`Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
+https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississippi.html
+
 **What’s Left? Here Are the Midterm Races That Have Not Been Called.**\
 `Democrats clinched control of Congress, but the full scale of the party’s landslide, and Republicans’ losses, remained unknown.`\
 https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississippi.html
