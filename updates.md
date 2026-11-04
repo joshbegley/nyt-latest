@@ -1,3 +1,7 @@
+**Anthrax Outbreak in Africa’s Oldest National Park Is Killing Hippos**\
+`The disease has killed 30 hippopotamuses in Virunga National Park in the Democratic Republic of Congo since September, officials say.`\
+https://www.nytimes.com/2026/11/03/world/africa/congo-anthrax-hippos-virunga-park.html
+
 **Americans Cast Their Votes, From Sea to Shining Sea**\
 `In gymnasiums, town halls, classrooms and even restaurants, voters headed to the polls on Tuesday to decide control of the Senate, House and more.`\
 https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
