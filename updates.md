@@ -1,3 +1,7 @@
+**How Michigan Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-michigan.html
+
 **Live: Three Opinion Writers on the Democrats’ Landslide**\
 `And what the party should do with its new majority in the House and Senate.`\
 https://www.nytimes.com/2026/11/04/opinion/democrat-wins-midterms-house-senate-chat.html
