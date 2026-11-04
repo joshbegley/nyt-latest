@@ -70,7 +70,7 @@ https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate
 `The New York Democrat who is in line to be the first Black speaker was raised by a Black nationalist family in Brooklyn, is a moderate and loves a hip-hop reference.`\
 https://www.nytimes.com/2026/11/04/us/politics/hakeem-jeffries-what-to-know.html
 
-**Angry Voters Usher in Beginning to the End of the Trump Era**\
+**Angry Voters Usher in Beginning of the End to the Trump Era**\
 `The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
 https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
 
@@ -151,7 +151,7 @@ https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-hous
 https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
 
 **How the Stock Market Is Reacting to the Midterm Elections**\
-`U.S. stock futures and Asian semiconductor shares dropped as investors weighed the future of the artificial intelligence boom.`\
+`U.S. stock futures fell as the first results came in, but later traded higher as investors assessed the outlook for artificial intelligence and other key sectors.`\
 https://www.nytimes.com/2026/11/04/business/midterm-elections-stock-market.html
 
 **Letitia James Wins Third Consecutive Term in New York Attorney General Race**\
