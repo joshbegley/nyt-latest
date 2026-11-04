@@ -1,3 +1,7 @@
+**8 Midterm Election Takeaways: A Democratic Landslide Punishes Trump’s Party**\
+`Democrats won shocking victories all over the map and flipped the Senate and House with ease, leaving the president weakened. “There was a mood in the air, I guess,” he said.`\
+https://www.nytimes.com/2026/11/04/us/politics/election-takeaways-democrats-win.html
+
 **Arizona’s Democratic Governor Wins Re-election**\
 `Gov. Katie Hobbs defeated her Republican challenger, Representative Andy Biggs, despite a concerted campaign by Turning Point USA, Charlie Kirk’s organization.`\
 https://www.nytimes.com/2026/11/04/us/arizona-governor-hobbs-biggs.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/03/us/politics/senate-election-control.html
 **Josh Turek Flips Iowa Senate Seat in a Major Victory for Democrats**\
 `Mr. Turek, a Paralympian and state representative, defeated Representative Ashley Hinson, a Republican, in one of this year’s top Senate races.`\
 https://www.nytimes.com/2026/11/03/us/iowa-senate-hinson-turek.html
-
-**Texas’ Hispanic Voters**\
-`In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
-https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
