@@ -1,3 +1,7 @@
+**What’s Next in the Alaska Senate Race?**\
+`The race could take weeks to be decided.`\
+https://www.nytimes.com/2026/11/04/us/alaska-senate-race-election-results-what-next.html
+
 **‘Decency Won’: 9 Writers on the Best and Worst Moments From Trump’s Midterm Rout**\
 `What mattered most in these midterms?`\
 https://www.nytimes.com/2026/11/04/opinion/midterms-democrats-senate-house-results.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/04/us/politics/democratic-newcomers-congress.htm
 **Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
 `Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
 https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
-
-**Jon Ossoff Describes a Future He Wants His Daughters to Inherit**\
-`In his victory speech, Senator Jon Ossoff, Democrat of Georgia, said he hoped his daughters would inherit a better future.`\
-https://www.nytimes.com/video/us/elections/100000011260941/georgia-ossoff-senate-speech-daughters.html
 
