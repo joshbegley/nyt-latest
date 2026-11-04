@@ -1,3 +1,7 @@
+**CVS to Split Off Drugstore Business, Ending Its Bigger-Is-Better Era**\
+`In a breakup planned for 2028, CVS Health intends to keep together its insurance and pharmacy benefits divisions and create a separate company for its pharmacies.`\
+https://www.nytimes.com/2026/11/04/business/cvs-health-split.html
+
 **CVS to Split Off Drugstore Business, Ending the Bigger-Is-Better Era for Healthcare Conglomerates**\
 `In a breakup planned for 2028, CVS Health intends to keep together its insurance and pharmacy benefits divisions and create a separate company for its pharmacies.`\
 https://www.nytimes.com/2026/11/04/business/cvs-health-split.html
