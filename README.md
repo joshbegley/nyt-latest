@@ -1,3 +1,55 @@
+**Portraits Filled With Mystery and Wonder**\
+`The painter Jem Perucchini draws on Italian Renaissance art and Ethiopia’s Catholic iconography.`\
+https://www.nytimes.com/2026/11/04/t-magazine/jem-perucchini-art-david-zwirner.html
+
+**Olivia Tremor Control’s ‘The Same Place’ Is a Psychedelic Swan Song**\
+`The Olivia Tremor Control’s final album was put together in the spirit of the analog-era music collective that the band came from.`\
+https://www.nytimes.com/2026/11/04/arts/music/olivia-tremor-control-the-same-place.html
+
+**How a Historic Harlem Newspaper Is Reimagining Its Headquarters**\
+`Plans emerge for the timeworn building that the Amsterdam News has called home for nearly nine decades.`\
+https://www.nytimes.com/2026/11/04/realestate/how-a-historic-harlem-newspaper-is-reimagining-its-headquarters.html
+
+**Book Review: ‘Arguments With Gandhi,’ by Ramachandra Guha**\
+`A new book explores the contested legacy of one of the world’s most respected independence leaders.`\
+https://www.nytimes.com/2026/11/04/books/review/arguments-with-gandhi-ramachandra-guha.html
+
+**Tom of Finland’s Foundation and Muse Fight Over His Kinky Art’s Legacy**\
+`A bitter dispute has erupted between the man who helped the artist elevate gay erotica into an art form and the foundation created to protect his work.`\
+https://www.nytimes.com/2026/11/04/arts/design/tom-of-finland-foundation-and-muse-dispute.html
+
+**Under Patagonian Spires: Where Pumas, Sheep Herding and Fine Dining Collide**\
+`Estancia Cerro Guido, a Chilean ranch that swapped puma bounties for conservation tours, offers travelers luxury experiences on the edge of the wilderness.`\
+https://www.nytimes.com/2026/11/04/travel/patagonia-estancia-cerro-guido.html
+
+**5 Minutes That Will Make You Love Jazz-Funk**\
+`Listen to tracks from Weldon Irvine, Flora Purim, George Duke and more artists who sent jazz to the dance floor with synthesizers, muscular bass lines and intricate rhythms.`\
+https://www.nytimes.com/2026/11/04/arts/music/jazz-funk-music-recommendations.html
+
+**For ‘Dune: Part Three,’ Timothée Chalamet, Zendaya and Friends Weigh in on the Trilogy**\
+`As Denis Villeneuve’s blockbuster series concludes, the cast recalls dealing with desert shoots and wrestling with the story’s moral implications.`\
+https://www.nytimes.com/2026/11/04/movies/dune-part-three-timothee-chalamet-zendaya-robert-pattinson.html
+
+**Word of the Day: elixir**\
+`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/04/learning/word-of-the-day-elixir.html
+
+**The Mysterious Case of the Real Agatha Christie**\
+`At the British Library, visitors are invited to sift through a lifetime of clues to uncover the woman behind the world’s best-selling crime novels.`\
+https://www.nytimes.com/2026/11/04/books/agatha-christie-british-library.html
+
+**The ‘Fade Farms’ Where Vintage T-Shirts Grow**\
+`With “fade farms,” some savvy vintage sellers have found a quicker way to achieve a coveted worn-in look.`\
+https://www.nytimes.com/2026/11/04/style/fade-farms-vintage-tees-clothing.html
+
+**WeRateDogs Loves All Dogs. A.I. Puppies Are Another Story.**\
+`Matt Nelson built an internet empire based on jokes he wrote at 18. Now he is trying to stem the tide of fake dogs taking over dog lovers’ feeds.`\
+https://www.nytimes.com/2026/11/04/style/we-rate-dogs-ai.html
+
+**Rating Stars Who Played the Grinch**\
+`As the animated TV special “How the Grinch Stole Christmas” turns 60, we rate the grinchiness of eight stars who’ve portrayed Dr. Seuss’ beloved humbug.`\
+https://www.nytimes.com/2026/11/04/movies/grinch-dr-seuss-actors.html
+
 **Democrats Retake Governor’s Office in Nevada, a Critical Swing State**\
 `Aaron Ford, the state’s attorney general, will be Nevada’s first Black governor.`\
 https://www.nytimes.com/2026/11/04/us/nevada-governor-lombardo-ford.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/11/04/opinion/democrats-house-senate-midterms-blue-
 **How Ken Paxton Went From Republican Survivor to Republican Liability**\
 `For years, Ken Paxton turned scandal into a test of Republican loyalty, but his Senate defeat exposed the limits of a political strategy that helped reshape Texas.`\
 https://www.nytimes.com/2026/11/04/us/ken-paxton-political-career.html
-
-**‘We Hear You,’ Says Jeffries, Who Is Set to Break Barrier in House**\
-`Hakeem Jeffries, Democrat of New York, would make history as the first Black speaker of the House.`\
-https://www.nytimes.com/2026/11/04/us/hakeem-jeffries-house.html
-
-**Susan Collins Loses to Troy Jackson in Maine, Ending Three Decades in the Senate**\
-`Senator Susan Collins, the sole Republican representing New England in Congress, lost her seat on a landslide night for Democrats.`\
-https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
-
-**Moderate Republican Loses Seat in Pennsylvania Swing District**\
-`Bob Harvie, a Bucks County commissioner, defeated Representative Brian Fitzpatrick, who had survived three previous elections in a district that voted against President Trump each time.`\
-https://www.nytimes.com/2026/11/04/us/pennsylvania-house-1-fitzpatrick.html
-
-**Maine Voters Finally Saw Through Susan Collins**\
-`One of the greatest survivors in U.S. politics finally falls.`\
-https://www.nytimes.com/2026/11/04/opinion/susan-collins-troy-jackson-senate.html
-
-**Inside Democrats’ Historic Win**\
-`Nate Cohn, chief political analyst for The New York Times, puts the Democrats’ decisive midterm victory in historical context.`\
-https://www.nytimes.com/video/us/elections/100000011260375/inside-democrats-historic-win.html
-
-**Bobby Pulido, a Tejano Music Star, Flips a House Seat in Texas for Democrats**\
-`Mr. Pulido, a Latin Grammy Award-winning singer and conservative Democrat, ousted a Republican incumbent in a district President Trump won by 18 percentage points in 2024.`\
-https://www.nytimes.com/2026/11/04/us/texas-house-15-pulido-de-la-cruz.html
-
-**Mike Lawler Concedes to Challenger Cait Conley in New York House Swing District**\
-`Representative Mike Lawler, a Hudson Valley Republican, chose to concede even with tens of thousands of votes yet to be counted because of balloting issues in Westchester County.`\
-https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-house-17-westchester.html
-
-**This Is a Huge Psychological Blow to Republicans**\
-`For Republicans, Texas has long been a dependable political anchor. Now, it’s finally blue.`\
-https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
-
-**How the Stock Market Is Reacting to the Midterm Elections**\
-`U.S. stock futures fell as the first results came in, but later traded higher as investors assessed the outlook for artificial intelligence and other key sectors as the balance of power shifts in Washington.`\
-https://www.nytimes.com/2026/11/04/business/midterm-elections-stock-market.html
-
-**Letitia James Wins Third Consecutive Term in New York Attorney General Race**\
-`With President Trump a focus of the race, Ms. James overcame a challenge from a Republican former federal prosecutor, Saritha Komatireddy.`\
-https://www.nytimes.com/2026/11/04/nyregion/new-york-attorney-general-james-komatireddy.html
-
-**A Seismic Shift in Texas**\
-`The Democratic victories in the Senate and governor’s races are a historic change for Texas. Our national political correspondent Shane Goldmacher explains why.`\
-https://www.nytimes.com/video/us/politics/100000011238052/a-seismic-shift-in-texas.html
-
-**‘An Earthquake’: A Democratic Rout Stuns Texas**\
-`In a seismic shift that was once unthinkable, victories by James Talarico and Gina Hinojosa upended decades of statewide dominance in what had been the nation’s most populous conservative state.`\
-https://www.nytimes.com/2026/11/04/us/texas-talarico-hinojosa-abbott-paxton.html
-
-**A Democratic Senator for Kansas**\
-`Democrats won a Senate seat in Kansas for the first time in nearly 100 years. Our election data reporter Christine Zhang talks about the growing Democratic footprint in the state.`\
-https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-for-kansas.html
 
