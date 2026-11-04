@@ -1,3 +1,11 @@
+**Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
+`Aaron Spencer, who admitted to fatally shooting a man charged with sexual assaulting Mr. Spencer’s daughter, had won the Republican nomination.`\
+https://www.nytimes.com/2026/11/04/us/aaron-spencer-lonoke-county-sheriff-arkansas.html
+
+**The Blue Tsunami**\
+`We look at results from the election.`\
+https://www.nytimes.com/2026/11/04/briefing/the-blue-tsunami.html
+
 **El-Sayed Wins Michigan Senate Race**\
 `Abdul El-Sayed, a progressive Democrat and outspoken critic of Israel, won Michigan’s Senate race, maintaining his party’s hold on a crucial battleground seat and becoming the nation’s first Muslim senator.`\
 https://www.nytimes.com/video/us/elections/100000011261594/el-sayed-wins-michigan-senate-race-midterms.html
