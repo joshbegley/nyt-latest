@@ -1,3 +1,7 @@
+**How Indiana Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-indiana.html
+
 **There’s No Modern Precedent for This Democratic Tsunami**\
 `It was hard to imagine that an electoral wave this big was still possible. But there have been extraordinary changes just beneath the surface.`\
 https://www.nytimes.com/2026/11/04/upshot/democrats-midterm-elections-trump-tsunami.html
