@@ -1,3 +1,7 @@
+**Inside Democrats’ Historic Win**\
+`Nate Cohn, chief political analyst for The New York Times, puts the Democrats’ decisive midterm victory in historical context.`\
+https://www.nytimes.com/video/us/elections/100000011260375/inside-democrats-historic-win.html
+
 **Bobby Pulido, a Tejano Music Star, Flips a House Seat in Texas for Democrats**\
 `Mr. Pulido, a Latin Grammy Award-winning singer and conservative Democrat, ousted a Republican incumbent in a district President Trump won by 18 percentage points in 2024.`\
 https://www.nytimes.com/2026/11/04/us/texas-house-15-pulido-de-la-cruz.html

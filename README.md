@@ -1,3 +1,15 @@
+**Collins Falls to Jackson in Maine, Ending a Three-Decade Senate Tenure**\
+`Senator Susan Collins, the sole Republican representing New England in Congress, acknowledged that her seat had been lost on a landslide night for Democrats.`\
+https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.html
+
+**Moderate Republican Loses Seat in Pennsylvania Swing District**\
+`Bob Harvie, a Bucks County commissioner, defeated Representative Brian Fitzpatrick, who had survived three previous elections in a district that voted against President Trump each time.`\
+https://www.nytimes.com/2026/11/04/us/pennsylvania-house-1-fitzpatrick.html
+
+**It Was Time for Susan Collins to Go**\
+`One of the greatest survivors in U.S. politics finally falls.`\
+https://www.nytimes.com/2026/11/04/opinion/susan-collins-troy-jackson-senate.html
+
 **Inside Democrats’ Historic Win**\
 `Nate Cohn, chief political analyst for The New York Times, puts the Democrats’ decisive midterm victory in historical context.`\
 https://www.nytimes.com/video/us/elections/100000011260375/inside-democrats-historic-win.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/11/03/us/kentucky-house-6-alvarado-dembo.html
 **Democrats Win South Carolina Senate Seat**\
 `In the first big surprise of election night, Senator Darline Graham, a Republican, lost her seat to a Democratic challenger in South Carolina. Our national political correspondent Shane Goldmacher explains how the senator’s missteps contributed to her loss.`\
 https://www.nytimes.com/video/us/politics/100000011260059/democrats-flip-south-carolina-senate-seat.html
-
-**Annie Andrews Defeats Darline Graham in South Carolina Senate Race**\
-`Dr. Annie Andrews defeated Darline Graham, who succeeded her brother after his death, to become South Carolina’s first Democratic senator of the 21st century.`\
-https://www.nytimes.com/2026/11/03/us/andrews-graham-south-carolina-senate.html
-
-**What Are Your Reactions to the Results of the 2026 Midterm Elections?**\
-`As the votes are counted, we invite teenagers to post reactions and have conversations here. What do the results mean for you, your community and our nation?`\
-https://www.nytimes.com/2026/11/03/learning/what-are-your-reactions-to-the-results-of-the-2026-midterm-elections.html
-
-**NYT Crossword Answers for Nov. 4, 2026**\
-`Peggy Sue Marlin makes her New York Times Crossword debut.`\
-https://www.nytimes.com/2026/11/03/crosswords/daily-puzzle-2026-11-04.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\
