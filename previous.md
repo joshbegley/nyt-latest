@@ -1,3 +1,15 @@
+**Finally. FINALLY. Texas Is Blue.**\
+`For Republicans, Texas has long been a dependable political anchor. Its loss was a profound psychological blow.`\
+https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
+
+**How the Stock Market Is Reacting to the Midterm Elections**\
+`U.S. stock futures and Asian semiconductor shares dropped as investors weighed the future of the artificial intelligence boom.`\
+https://www.nytimes.com/2026/11/04/business/midterm-elections-stock-market.html
+
+**Letitia James Wins Third Consecutive Term in New York Attorney General Race**\
+`With President Trump a focus of the race, Ms. James overcame a challenge from a Republican former federal prosecutor, Saritha Komatireddy.`\
+https://www.nytimes.com/2026/11/04/nyregion/new-york-attorney-general-james-komatireddy.html
+
 **A Seismic Shift in Texas**\
 `The Democratic victories in the Senate and governor’s races are a historic change for Texas. Our national political correspondent Shane Goldmacher explains why.`\
 https://www.nytimes.com/video/us/politics/100000011238052/a-seismic-shift-in-texas.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/11/03/us/georgia-governor-bottoms-jackson.html
 **Ned Lamont Wins Rare Third Term Against Ryan Fazio in Connecticut Governor Race**\
 `Democrats have held the top office in the reliably blue state since 2011, but Mr. Lamont is only the second Connecticut governor to be elected to three consecutive terms.`\
 https://www.nytimes.com/2026/11/03/nyregion/connecticut-governor-lamont-fazio.html
-
-**Democrat Pia Dandiya Wins Open Congressional Seat in Florida**\
-`Ms. Dandiya, a former high school principal, is set to become Florida’s first South Asian member of Congress after winning a district Republicans had gerrymandered in their favor.`\
-https://www.nytimes.com/2026/11/03/us/florida-house-22-dandiya-askar.html
-
-**Byron Donalds, Staunch Trump Supporter, Wins Florida Governor’s Race Against David Jolly**\
-`Mr. Donalds will become Florida’s first Black governor, maintaining his party’s hold on a state that has not put a Democrat in the job since the 1990s.`\
-https://www.nytimes.com/2026/11/03/us/donalds-florida-governor-race.html
-
-**AOC Is Elected to Fifth Term in New York House District**\
-`Alexandria Ocasio-Cortez defeated her opponent, Diamant Hysenaj, despite having spent much of this election cycle campaigning for other Democrats across the country.`\
-https://www.nytimes.com/2026/11/03/nyregion/new-york-house-14-aoc-hysenaj.html
 
 **Midterm Elections Live Updates: Democrats Clinch Senate as Voters Deliver Blistering Rebuke to Trump**\
 `Democratic candidates won races in Republican strongholds, flipping Senate seats in Kansas, Ohio, North Carolina, South Carolina and even Texas. On a night shaping up as a Democratic romp, President Trump told The New York Times that he would accept the election results.`\

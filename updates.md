@@ -1,3 +1,15 @@
+**Finally. FINALLY. Texas Is Blue.**\
+`For Republicans, Texas has long been a dependable political anchor. Its loss was a profound psychological blow.`\
+https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
+
+**How the Stock Market Is Reacting to the Midterm Elections**\
+`U.S. stock futures and Asian semiconductor shares dropped as investors weighed the future of the artificial intelligence boom.`\
+https://www.nytimes.com/2026/11/04/business/midterm-elections-stock-market.html
+
+**Letitia James Wins Third Consecutive Term in New York Attorney General Race**\
+`With President Trump a focus of the race, Ms. James overcame a challenge from a Republican former federal prosecutor, Saritha Komatireddy.`\
+https://www.nytimes.com/2026/11/04/nyregion/new-york-attorney-general-james-komatireddy.html
+
 **A Seismic Shift in Texas**\
 `The Democratic victories in the Senate and governor’s races are a historic change for Texas. Our national political correspondent Shane Goldmacher explains why.`\
 https://www.nytimes.com/video/us/politics/100000011238052/a-seismic-shift-in-texas.html
