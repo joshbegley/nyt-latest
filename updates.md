@@ -1,3 +1,7 @@
+**How Trump’s Energy Policies Helped Trigger Midterm Rout**\
+`The war in Iran, efforts to promote fossil fuels and attacks on renewable energy contributed to higher prices for gas and electricity that drove voter discontent.`\
+https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-election.html
+
 **Film Club: ‘How Art and Engineering Built the Statue of Liberty’**\
 `Last week, Lady Liberty turned 140. Find out the story of her creation.`\
 https://www.nytimes.com/2026/11/04/learning/film-club-how-art-and-engineering-built-the-statue-of-liberty.html
