@@ -1,3 +1,7 @@
+**Key Part of Jet in Deadly Florida Crash Found Far From Impact Site**\
+`The mechanism that controls the vertical angle of the plane was found in three pieces, including one nearly four miles away. All nine people aboard were killed.`\
+https://www.nytimes.com/2026/11/03/us/florida-plane-crash-wreckage-recovered.html
+
 **The On Politics Guide to Election Night**\
 `How to watch tonight’s results, according to our reporters and editors.`\
 https://www.nytimes.com/2026/11/03/us/politics/the-on-politics-guide-to-election-night.html

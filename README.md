@@ -1,3 +1,11 @@
+**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
+`Times Opinion writers break down the results from across the country and what they will mean for American politics in the years ahead.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
+**How The New York Times Tracks Election News and Tips**\
+`Journalists for The Times are watching for election issues, problems at the polls and misinformation, reporting tips to one main place.`\
+https://www.nytimes.com/2026/11/03/insider/how-we-confirm-tips-about-voting-issues.html
+
 **Key Part of Jet in Deadly Florida Crash Found Far From Impact Site**\
 `The mechanism that controls the vertical angle of the plane was found in three pieces, including one nearly four miles away. All nine people aboard were killed.`\
 https://www.nytimes.com/2026/11/03/us/florida-plane-crash-wreckage-recovered.html
@@ -158,19 +166,7 @@ https://www.nytimes.com/2026/11/03/us/11-senate-races-to-watch.html
 `The move is a highly unusual action to take at the decisive moment in a close race between the incumbent, Dan Sullivan, and his Democrat rival, Mary Peltola.`\
 https://www.nytimes.com/2026/11/03/us/politics/alaska-investigation-target-letters-democrats.html
 
-**The Tartine Family Goes Bicoastal With Altbau**\
-`Rosette brings more bistro offerings, Giuk riffs on Korean specialties and more restaurant news.`\
-https://www.nytimes.com/2026/11/03/dining/nyc-restaurant-news.html
-
-**Willie Nelson’s Wife, Annie D’Angelo, on Their Life Together**\
-`For almost 40 years, Annie D’Angelo has kept Nelson, her husband, going. She is ready to step into the spotlight herself.`\
-https://www.nytimes.com/2026/11/03/style/willie-nelson-annie-dangelo-wife-last-leaf.html
-
-**Trump Pushes Venezuela for Agreement Allowing U.S. Troops to Stay**\
-`The two countries have long been adversaries, and the United States attacked Venezuela this year, but Secretary of State Marco Rubio is starting talks on a legal agreement.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-venezuela-troop-agreement.html
-
-**Midterm Elections Live Updates: Polls Begin Closing as Voters Decide Control of Congress**\
+**Midterm Elections Live Updates: Polls Close in South Carolina and Georgia With Senate Majority at Stake**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
