@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/11/04/us/midterm-election-race-calls-alaska-mississ
 https://www.nytimes.com/2026/11/04/arts/television/midterms-tv-broadcast-fox-news-ms-now.html
 
 **Mike Johnson Won’t Seek Re-Election as House Leader After GOP Midterm Losses**\
-`House Speaker Mike Johnson told Republican aides that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
+`House Speaker Mike Johnson told Republicans that he would step down, according to a person familiar with the comments, after the party suffered heavy losses in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/us/mike-johnson-reelection-house-leader.html
 
 **Candidate Once Charged With Murder Loses Bid for Sheriff in Arkansas**\
@@ -179,7 +179,7 @@ https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-blud
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-herzog-netanyahu-government.html
 
 **The New York Times Adds 420,000 Digital Subscribers**\
-`The additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year, after a slower second quarter.`\
+`After a slower second quarter, the additions in the third quarter keep the company roughly on track to meet its goal of 15 million subscribers by the end of next year.`\
 https://www.nytimes.com/2026/11/04/business/media/new-york-times-earnings.html
 
 **CVS to Split Off Drugstore Business, Ending Its Bigger-Is-Better Era**\
