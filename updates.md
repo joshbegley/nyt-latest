@@ -1,3 +1,7 @@
+**Democrats Deliver a Big Blue Bludgeoning**\
+`The party’s midterm victory reshapes the political landscape.`\
+https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-bludgeoning.html
+
 **CVS to Split Off Pharmacy Business, Ending the Healthcare Conglomerate Era**\
 `In a breakup planned for 2028, CVS Health intends to split off its pharmacies into a new company, while keeping together its businesses in insurance and pharmacy benefits.`\
 https://www.nytimes.com/2026/11/04/business/cvs-health-split.html
