@@ -1,3 +1,15 @@
+**Democrats Flip North Carolina Senate Seat**\
+`The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
+https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html
+
+**Kathy Hochul Fends Off Bruce Blakeman in New York Governor Race**\
+`Kathy Hochul, New York’s first female governor, defeated Bruce Blakeman, capitalizing on voter frustration with President Trump and other Republicans.`\
+https://www.nytimes.com/2026/11/03/nyregion/new-york-governor-hochul-blakeman.html
+
+**Trump Is Watching Fox News, and He Is Not Thrilled**\
+`On a consequential midterm night, the president offered some harsh criticism of the cable news channel on his social media account.`\
+https://www.nytimes.com/2026/11/03/business/media/trump-fox-news-gutfeld-tarlov.html
+
 **G.O.P. Holds Florida**\
 `Ashley Moody, a Republican, defeated Angie Nixon, a Democrat, in the U.S. Senate race in Florida, but Ms. Nixon did well in some Hispanic-majority counties. Our election data reporter Evan Reynolds explains.`\
 https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.html

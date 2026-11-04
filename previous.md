@@ -1,3 +1,15 @@
+**Democrats Flip North Carolina Senate Seat**\
+`The Democrats flipped their first Senate seat of the night. Our national political correspondent Shane Goldmacher explains why this wasn’t a surprise, and why it’s one of at least four seats the party needs to win to secure a majority in the Senate.`\
+https://www.nytimes.com/video/us/politics/100000011238044/democrats-flip-north-carolina-senate-seat.html
+
+**Kathy Hochul Fends Off Bruce Blakeman in New York Governor Race**\
+`Kathy Hochul, New York’s first female governor, defeated Bruce Blakeman, capitalizing on voter frustration with President Trump and other Republicans.`\
+https://www.nytimes.com/2026/11/03/nyregion/new-york-governor-hochul-blakeman.html
+
+**Trump Is Watching Fox News, and He Is Not Thrilled**\
+`On a consequential midterm night, the president offered some harsh criticism of the cable news channel on his social media account.`\
+https://www.nytimes.com/2026/11/03/business/media/trump-fox-news-gutfeld-tarlov.html
+
 **G.O.P. Holds Florida**\
 `Ashley Moody, a Republican, defeated Angie Nixon, a Democrat, in the U.S. Senate race in Florida, but Ms. Nixon did well in some Hispanic-majority counties. Our election data reporter Evan Reynolds explains.`\
 https://www.nytimes.com/video/us/elections/100000011237440/gop-holds-florida.html
@@ -161,14 +173,6 @@ https://www.nytimes.com/2026/11/03/books/ryu-murakami-dead.html
 **More Iranians Call for Nuclear Weapons After War With U.S.**\
 `Some Iranian clerics and officials argue the country must rebuild deterrence by dropping its longstanding pledge not to build a nuclear bomb.`\
 https://www.nytimes.com/2026/11/03/world/europe/iran-nuclear-weapons-war.html
-
-**Dozens Killed in Russian Strike on Humanitarian Hub in Ukraine**\
-`Russia struck a humanitarian hub in the Zaporizhzhia region of Ukraine, killing dozens and leaving many more missing, officials said.`\
-https://www.nytimes.com/video/world/europe/100000011257407/russia-strike-ukraine-humanitarian-hub.html
-
-**Paris Jackson Asks Father’s Estate to Fund $600M to Family Trust**\
-`A representative for Michael Jackson’s daughter accused the executors of her father’s estate of incompetence, financial mismanagement and delays in distributing his wealth to his children.`\
-https://www.nytimes.com/2026/11/03/arts/paris-jackson-michael-jackson-estate.html
 
 **Midterm Elections Live Updates: Democrats Show Early Strength in Quest to Seize Control of Congress**\
 `(No description)`\
