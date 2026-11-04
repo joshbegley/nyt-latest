@@ -1,3 +1,11 @@
+**El-Sayed Wins Michigan Senate Race in a Victory for Democrats**\
+`Dr. Abdul El-Sayed will become the nation’s first Muslim senator. He triumphed in one of the country’s most bitter and expensive races, keeping his party in control of a crucial seat.`\
+https://www.nytimes.com/2026/11/04/us/michigan-senate-el-sayed-rogers.html
+
+**These Wins Could Mint a New Generation of Democratic Stars**\
+`Voters from South Carolina to Ohio to Texas have elevated a new class of Democrats who could not be more different from one another.`\
+https://www.nytimes.com/2026/11/04/us/politics/democratic-newcomers-congress.html
+
 **Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
 `Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
 https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html

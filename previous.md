@@ -1,3 +1,11 @@
+**El-Sayed Wins Michigan Senate Race in a Victory for Democrats**\
+`Dr. Abdul El-Sayed will become the nation’s first Muslim senator. He triumphed in one of the country’s most bitter and expensive races, keeping his party in control of a crucial seat.`\
+https://www.nytimes.com/2026/11/04/us/michigan-senate-el-sayed-rogers.html
+
+**These Wins Could Mint a New Generation of Democratic Stars**\
+`Voters from South Carolina to Ohio to Texas have elevated a new class of Democrats who could not be more different from one another.`\
+https://www.nytimes.com/2026/11/04/us/politics/democratic-newcomers-congress.html
+
 **Democrat Defeats Nunn in Iowa, Scoring a Key House Pickup**\
 `Sarah Trone Garriott, a Democratic state senator and Lutheran minister, beat Representative Zach Nunn, a Republican who had tied himself closely to President Trump.`\
 https://www.nytimes.com/2026/11/04/us/iowa-house-3-nunn-trone-garriott.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
 **Rob Sand Defeats Zach Lahn in Iowa Governor’s Race, Ending Republicans’ Hold on the Seat**\
 `A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
 https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
-
-**Sherrod Brown Regains an Ohio Senate Seat in Crucial Win for Democrats**\
-`Ousted two years ago by a Republican challenger, Mr. Brown returns to Washington in the seat once held by Vice President JD Vance.`\
-https://www.nytimes.com/2026/11/03/us/ohio-senate-brown-husted.html
-
-**Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
-`If Democrats want to take back the White House, they should follow the Ohio senator-elect’s playbook of focusing on economic issues while sidestepping cultural ones.`\
-https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
