@@ -1,3 +1,15 @@
+**Herbert Blomstedt, Low-Key, Long-Performing Maestro, Dies at 99**\
+`He never achieved the celebrity of more glamorous colleagues, but drew acclaim as he remained at the podium until virtually the end of his long life.`\
+https://www.nytimes.com/2026/11/04/arts/music/herbert-blomstedt-dead.html
+
+**At the Folies Bergère, Life Is a Cabaret (With Serious Dance)**\
+`The choreographer Benjamin Millepied is presenting a season at the storied Parisian theater. “It’s so alive and it’s a place to do something for a broader public.”`\
+https://www.nytimes.com/2026/11/04/arts/dance/folies-bergere-benjamin-millepied-modern-dance.html
+
+**Vance, in Break With Trump, Blames Iran War for Republicans’ 2026 Midterm Losses**\
+`In a social media post, the vice president offered a critique of the administration’s agenda and messaging in what appeared to be an effort to separate himself from the president.`\
+https://www.nytimes.com/2026/11/04/us/politics/vance-iran-war-midterms-trump.html
+
 **How Troy Jackson Defeated Susan Collins in Maine, Ending Her 30 Year Senate Career**\
 `Troy Jackson, a former Democratic state lawmaker, upset Senator Susan Collins, a Republican who had served the state for 30 years.`\
 https://www.nytimes.com/2026/11/04/us/politics/how-troy-jackson-beat-susan-collins.html
