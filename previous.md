@@ -1,3 +1,7 @@
+**Ned Lamont Wins a Third Term as Connecticut Governor**\
+`Democrats have held the top office in the reliably blue state since 2011, but Mr. Lamont is only the second Connecticut governor to be elected to three consecutive terms.`\
+https://www.nytimes.com/2026/11/03/nyregion/connecticut-governor-lamont-fazio.html
+
 **Democrat Pia Dandiya Wins Open Congressional Seat in Florida**\
 `Ms. Dandiya, a former high school principal, is set to become Florida’s first South Asian member of Congress after winning a district Republicans had gerrymandered in their favor.`\
 https://www.nytimes.com/2026/11/03/us/florida-house-22-dandiya-askar.html
