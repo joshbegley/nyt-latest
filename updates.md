@@ -1,3 +1,11 @@
+**My Call With President Trump**\
+`Our White House correspondents Tyler Pager and Erica L. Green called President Trump to ask whether he would accept the results of the election.`\
+https://www.nytimes.com/video/us/politics/100000011260461/my-call-with-president-trump.html
+
+**Jimmy Kimmel Rides Election Day’s ‘Blue Tsunami’**\
+`“Man, oh man, would I hate to be the DoorDash driver who delivers Trump his Papa Johns tonight,” Kimmel said.`\
+https://www.nytimes.com/2026/11/04/arts/television/jimmy-kimmel-midterm-election-blue-wave.html
+
 **Americans on Why They Rejected Trump’s Republican Party**\
 `A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
 https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
