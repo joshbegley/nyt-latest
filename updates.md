@@ -1,3 +1,7 @@
+**Whose Idea Was the Billy Evans Shower Scene in ‘You Can See Everything’?**\
+`Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
+https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
+
 **His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
 `Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
 https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
