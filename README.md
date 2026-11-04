@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/11/04/us/nevada-governor-lombardo-ford.html
 `Millions viewed Lisa He’s post about her mother’s struggling business in Edinburgh. But internet fame created its own complications — and obscured bigger questions.`\
 https://www.nytimes.com/2026/11/04/world/europe/chinese-restaurant-edinburgh-viral-social-media.html
 
-**El-Sayed Celebrates ‘an America Big Enough for All of Us’**\
+**El-Sayed Celebrates Win for ‘the Unlikeliest of Candidates’**\
 `In Michigan, Adbul El-Sayed outlasted former Representative Mike Rogers in a Senate campaign marred by ugly attacks.`\
 https://www.nytimes.com/2026/11/04/us/politics/michigan-senate-el-sayed.html
 
