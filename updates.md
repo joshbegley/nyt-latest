@@ -1,3 +1,23 @@
+**Detailed Maps of the 2026 Senate Election Results**\
+`Explore maps of precinct-level results from Senate races across the country.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
+
+**Roy Cooper Bored His Way Into the Senate**\
+`As much as any midterm race, the senator-elect affirmed the power of the right person waging the right campaign`\
+https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
+
+**Roy Cooper Flips North Carolina Senate Seat to Democrats by Defeating Michael Whatley**\
+`The popular former governor defeated President Trump’s handpicked choice to replace the retiring Thom Tillis.`\
+https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
+
+**Chris Pappas Defeats John Sununu in New Hampshire Senate Race**\
+`Representative Chris Pappas beat a former Republican senator, John E. Sununu. He will succeed the Democratic incumbent, Jeanne Shaheen, who did not run for re-election.`\
+https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
+
+**Midterm Elections Live Updates: Early Races Break for Democrats in Quest to Seize Control of Congress**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Jon Ossoff Looks Pretty Presidential**\
 `Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
 https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html

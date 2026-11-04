@@ -1,3 +1,7 @@
+**Voters in Key Battleground States Told Us How They Voted**\
+`The New York Times spoke with voters in Michigan, Maine and Texas about why they voted the way they did.`\
+https://www.nytimes.com/video/us/elections/100000011258410/voters-in-key-battleground-states-told-us-how-they-voted.html
+
 **Detailed Maps of the 2026 Senate Election Results**\
 `Explore maps of precinct-level results from Senate races across the country.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/03/world/canada/canada-west-bank-lawsuit.html
 **Midterm Suspense**\
 `Voters in the U.S. are deciding who will control Congress. The election is also seen as a referendum on Trump’s presidency.`\
 https://www.nytimes.com/2026/11/03/world/us-midterms-trump-iran-ukraine.html
-
-**Chris Murphy, Recovering From a Stroke, Remains Hospitalized on Election Day**\
-`The Democratic senator from Connecticut, who is 53, began experiencing symptoms while attending his son’s hockey game on Saturday, his office said.`\
-https://www.nytimes.com/2026/11/03/us/chris-murphy-stroke-hospitalization.html
 
 **Midterm Elections Live Updates: Early Races Break for Democrats in Quest to Seize Control of Congress**\
 `(No description)`\

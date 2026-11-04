@@ -1,3 +1,19 @@
+**Detailed Maps of the 2026 Senate Election Results**\
+`Explore maps of precinct-level results from Senate races across the country.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-precinct-maps.html
+
+**Roy Cooper Bored His Way Into the Senate**\
+`As much as any midterm race, the senator-elect affirmed the power of the right person waging the right campaign`\
+https://www.nytimes.com/2026/11/03/opinion/roy-cooper-north-carolina-senate.html
+
+**Roy Cooper Flips North Carolina Senate Seat to Democrats by Defeating Michael Whatley**\
+`The popular former governor defeated President Trump’s handpicked choice to replace the retiring Thom Tillis.`\
+https://www.nytimes.com/2026/11/03/us/north-carolina-senate-whatley-cooper.html
+
+**Chris Pappas Defeats John Sununu in New Hampshire Senate Race**\
+`Representative Chris Pappas beat a former Republican senator, John E. Sununu. He will succeed the Democratic incumbent, Jeanne Shaheen, who did not run for re-election.`\
+https://www.nytimes.com/2026/11/03/us/pappas-new-hampshire-senate-election.html
+
 **Jon Ossoff Looks Pretty Presidential**\
 `Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
 https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
@@ -146,23 +162,7 @@ https://www.nytimes.com/2026/11/03/world/us-midterms-trump-iran-ukraine.html
 `The Democratic senator from Connecticut, who is 53, began experiencing symptoms while attending his son’s hockey game on Saturday, his office said.`\
 https://www.nytimes.com/2026/11/03/us/chris-murphy-stroke-hospitalization.html
 
-**The New York Times Needle 2026: Senate and House Live Forecast**\
-`Follow real-time estimates of the outcome of the 2026 midterm elections from The New York Times.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-needle-senate-house-forecast.html
-
-**Pardoned Jan. 6 Defendant Is Accused of Threatening Federal Judges**\
-`Cleveland Meredith, who pleaded guilty to a charge connected to a threat to kill Nancy Pelosi, was arrested on Monday, accused of threatening federal judges, prosecutors said.`\
-https://www.nytimes.com/2026/11/03/us/meredith-jan-6-pardon-judge-threats.html
-
-**Lawyers Spar Over Trump’s Executive Privilege in Kennedy Center Case**\
-`The administration is withholding communications sought by a Democratic lawmaker who is suing over the president’s management of the arts venue.`\
-https://www.nytimes.com/2026/11/03/arts/trump-kennedy-center-executive-privilege.html
-
-**Afghan Woman Is Among Dozens to Be Deported to Afghanistan**\
-`The Trump administration has arranged a flight to send dozens of Afghan immigrants back to Afghanistan, despite the risk of persecution by the Taliban.`\
-https://www.nytimes.com/2026/11/03/world/asia/afghan-deportation-flight.html
-
-**Midterm Elections Live Updates: Ossoff Retains Georgia Senate Seat, as Polls Close in More Battlegrounds**\
+**Midterm Elections Live Updates: Early Races Break for Democrats in Quest to Seize Control of Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 
