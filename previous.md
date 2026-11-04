@@ -1,4 +1,32 @@
-**Acton Wins Governor’s Race in Ohio**\
+**Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
+`Nancy Pelosi’s husband was charged with a misdemeanor after he hit a parked car and drove away. He will not be allowed to drive for six months.`\
+https://www.nytimes.com/2026/11/03/us/paul-pelosi-crash-napa-valley-prohibited-driving.html
+
+**Missouri Voters Reject Congressional Map Redrawn to Boost Republicans**\
+`The map, redrawn at President Trump’s behest, would have positioned Republicans to flip a Democratic-held congressional seat in the Kansas City area.`\
+https://www.nytimes.com/2026/11/03/us/missouri-congressional-redistricting-referendum.html
+
+**Democrats Outperform in Three States**\
+`Democrats have won key Senate races in Georgia, North Carolina and South Carolina. Our election data reporter Evan Reynolds explains how Democrats did well even in some historically Republican counties in these Southern states.`\
+https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-in-three-states.html
+
+**Shomari Figures Holds Redrawn Alabama House Seat for Democrats**\
+`Representative Shomari Figures won even though a new Republican-drawn map changed his district, a move prompted by the Supreme Court decision weakening the Voting Rights Act.`\
+https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
+
+**Talarico Wins Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
+`James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
+https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
+
+**Xavier Becerra Becomes California’s First Latino Elected as Governor, Defeating Steve Hilton**\
+`Xavier Becerra, a Democrat who has served in various roles at the state and federal level, will succeed Gov. Gavin Newsom.`\
+https://www.nytimes.com/2026/11/03/us/california-governor-becerra-hilton.html
+
+**Key Ballot Measures 2026: Live Election Results**\
+`See results for ballot measures around the country related to voting rights, social policy, redistricting and more.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-key-ballot-measures.html
+
+**Amy Acton, a Democrat, Defeats Republican Vivek Ramaswamy in Ohio Governor’s Race**\
 `Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
 https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
 
@@ -8,9 +36,9 @@ https://www.nytimes.com/2026/11/03/nyregion/nyc-ballot-proposals-midterm-electio
 
 **Trump Says in Interview That He Will Accept Election Results**\
 `In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
-https://www.nytimes.com/2026/11/03/us/politics/trump-somber-white-house.html
+https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
 
-**Deb Haaland Is Elected New Mexico’s Governor, a Historic Victory**\
+**Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
 `The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
 https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
 
@@ -157,34 +185,6 @@ https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 **‘The Choice to Elevate Darline Graham Was Just a Huge, Needless Error’: Opinion Writers Break Down the Midterms**\
 `Michelle Goldberg and Matthew Yglesias talk about James Talarico, populism and taxes.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
-
-**How The New York Times Tracks Election News and Tips**\
-`Journalists for The Times are watching for election issues, problems at the polls and misinformation, reporting tips to one main place.`\
-https://www.nytimes.com/2026/11/03/insider/how-we-confirm-tips-about-voting-issues.html
-
-**Key Part of Jet in Deadly Florida Crash Found Far From Impact Site**\
-`The mechanism that controls the vertical angle of the plane was found in three pieces, including one nearly four miles away. All nine people aboard were killed.`\
-https://www.nytimes.com/2026/11/03/us/florida-plane-crash-wreckage-recovered.html
-
-**The On Politics Guide to Election Night**\
-`How to watch tonight’s results, according to our reporters and editors.`\
-https://www.nytimes.com/2026/11/03/us/politics/the-on-politics-guide-to-election-night.html
-
-**Drone Boat Maker Saildrone Wins Protest Over Navy Contract**\
-`A federal judge’s ruling on the side of the small defense contractor was a rarity, as most company protests against government bidding decisions do not prevail.`\
-https://www.nytimes.com/2026/11/03/us/politics/drone-boat-maker-navy-protest.html
-
-**Authorities Capture Convicted Murderer After Weeklong Escape**\
-`Jacob Allen Morley, who was serving a life sentence for murder, was captured on Tuesday in Missouri, according to the authorities. He escaped from a Tennessee prison on Oct. 26.`\
-https://www.nytimes.com/video/us/100000011259078/tennessee-convicted-murder-escape-capture.html
-
-**Georgia G.O.P. Chair Predicts a ‘Fair’ Election in the State**\
-`Josh McKoon, a Trump ally who helped advance Republican efforts to change election rules after a bitter 2020 count, said, “I think everybody’s going to respect the outcome.”`\
-https://www.nytimes.com/2026/11/03/us/georgia-republican-chair-fair-election.html
-
-**‘Mud Bogging’ to the Polls in Storm-Soaked Navajo Nation**\
-`Ruined roads have created a voting obstacle for hundreds of residents of Rock Point, Ariz.`\
-https://www.nytimes.com/2026/11/03/us/navajo-nation-voting.html
 
 **Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
 `(No description)`\

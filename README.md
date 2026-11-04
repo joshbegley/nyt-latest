@@ -1,3 +1,7 @@
+**Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
+`If Democrats want to take back the White House, they should follow the Ohio senator’s playbook of focusing on economic issues while sidestepping cultural ones.`\
+https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
+
 **Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
 `Nancy Pelosi’s husband was charged with a misdemeanor after he hit a parked car and drove away. He will not be allowed to drive for six months.`\
 https://www.nytimes.com/2026/11/03/us/paul-pelosi-crash-napa-valley-prohibited-driving.html
@@ -183,10 +187,10 @@ https://www.nytimes.com/2026/11/03/us/elections/voters-midterms-photos.html
 https://www.nytimes.com/2026/11/03/us/state-election-results-timing.html
 
 **‘The Choice to Elevate Darline Graham Was Just a Huge, Needless Error’: Opinion Writers Break Down the Midterms**\
-`Michelle Goldberg and Matthew Yglesias talk about James Talarico, populism and taxes.`\
+`Michelle Goldberg and Matthew Yglesias talk about what the Democrats will do next year and how the results might shape 2028. They are joined by Michelle Cottle and David French.`\
 https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
 
-**Midterm Elections Live Updates: Democrats on Track to Seize Control of House and Senate**\
+**Midterm Elections Live Updates: Talarico Flips Texas in Seismic Win for Democrats**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

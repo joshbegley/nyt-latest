@@ -1,3 +1,43 @@
+**Paul Pelosi Prohibited From Driving After Crash in Napa Valley**\
+`Nancy Pelosi’s husband was charged with a misdemeanor after he hit a parked car and drove away. He will not be allowed to drive for six months.`\
+https://www.nytimes.com/2026/11/03/us/paul-pelosi-crash-napa-valley-prohibited-driving.html
+
+**Missouri Voters Reject Congressional Map Redrawn to Boost Republicans**\
+`The map, redrawn at President Trump’s behest, would have positioned Republicans to flip a Democratic-held congressional seat in the Kansas City area.`\
+https://www.nytimes.com/2026/11/03/us/missouri-congressional-redistricting-referendum.html
+
+**Democrats Outperform in Three States**\
+`Democrats have won key Senate races in Georgia, North Carolina and South Carolina. Our election data reporter Evan Reynolds explains how Democrats did well even in some historically Republican counties in these Southern states.`\
+https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-in-three-states.html
+
+**Shomari Figures Holds Redrawn Alabama House Seat for Democrats**\
+`Representative Shomari Figures won even though a new Republican-drawn map changed his district, a move prompted by the Supreme Court decision weakening the Voting Rights Act.`\
+https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
+
+**Talarico Wins Texas Senate Race, Ending a Three-Decade Drought for Democrats**\
+`James Talarico, a state lawmaker, beat Ken Paxton, the Republican attorney general, after a bruising and costly campaign.`\
+https://www.nytimes.com/2026/11/03/us/texas-senate-talarico-paxton.html
+
+**Xavier Becerra Becomes California’s First Latino Elected as Governor, Defeating Steve Hilton**\
+`Xavier Becerra, a Democrat who has served in various roles at the state and federal level, will succeed Gov. Gavin Newsom.`\
+https://www.nytimes.com/2026/11/03/us/california-governor-becerra-hilton.html
+
+**Key Ballot Measures 2026: Live Election Results**\
+`See results for ballot measures around the country related to voting rights, social policy, redistricting and more.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-key-ballot-measures.html
+
+**Amy Acton, a Democrat, Defeats Republican Vivek Ramaswamy in Ohio Governor’s Race**\
+`Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
+https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
+
+**Trump Says in Interview That He Will Accept Election Results**\
+`In an interview with two Times reporters, President Trump blamed the G.O.P.’s losses on the fact that he was not on the ballot and said he was willing to work with Democrats.`\
+https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.html
+
+**Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
+`The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
+https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
+
 **Acton Wins Governor’s Race in Ohio**\
 `Dr. Amy Acton’s candidacy had initially seemed a long shot, given Ohio’s longtime Republican lean and the deep pockets of her Republican opponent, Vivek Ramaswamy.`\
 https://www.nytimes.com/2026/11/03/us/ohio-governor-acton-ramaswamy.html
