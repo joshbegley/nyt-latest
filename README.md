@@ -1,3 +1,7 @@
+**‘Trump Could Be the Gift That Keeps on Giving’**\
+`Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
+https://www.nytimes.com/video/opinion/100000011263481/trump-could-be-the-gift-that-keeps-on-giving.html
+
 **The Blame Game Begins**\
 `Also, Democrats will have a huge majority in the House. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-power.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/04/briefing/the-good-list-special-cheese-six-deg
 **Senji Kuroi Has Died. He Interpreted ‘the Salaried Soul.’**\
 `In books and essays, he captured the unease beneath Japan’s economic miracle and wrote about everyday people who might never appear in headlines.`\
 https://www.nytimes.com/2026/11/04/world/asia/senji-kuroi-dead.html
-
-**Randy Villegas, a Progressive Democrat, Ousts a G.O.P. Incumbent in California**\
-`Mr. Villegas flipped a district held by Representative David Valadao, a moderate Republican, in the state’s traditionally conservative Central Valley region.`\
-https://www.nytimes.com/2026/11/04/us/california-house-22-villegas-valadao.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
