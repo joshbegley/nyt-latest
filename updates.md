@@ -1,3 +1,31 @@
+**Texas’ Hispanic Voters**\
+`In the race for U.S. Senate in Texas, Republicans forfeited gains that President Trump made among Hispanic voters in 2024. Our election data reporter Christine Zhang explains.`\
+https://www.nytimes.com/video/us/elections/100000011237565/texas-hispanic-voters.html
+
+**Wisconsin Elects Its First Black Governor, a Democrat**\
+`Democrats will retain control of the governor’s mansion after voters elected David Crowley, the Milwaukee County executive.`\
+https://www.nytimes.com/2026/11/03/us/wisconsin-governor-crowley-tiffany.html
+
+**Adam Hamilton Wins: How Kansas Finally Elected a Democratic Senator**\
+`What’s stunning about his win is that it wasn’t a surprise by Election Day.`\
+https://www.nytimes.com/2026/11/03/opinion/adam-hamilton-kansas-senate.html
+
+**Democrat Wins a Kansas Senate Seat for the First Time Since 1932**\
+`The Rev. Adam Hamilton, a centrist Democrat, ousted Senator Roger Marshall, a Republican who was bogged down by President Trump’s unpopularity.`\
+https://www.nytimes.com/2026/11/03/us/kansas-senate-marshall-hamilton.html
+
+**Gina Hinojosa Wins Texas Governor Race in Major Upset, Defeating Greg Abbott**\
+`State Representative Gina Hinojosa defeated Gov. Greg Abbott, denying him a fourth term and becoming the first Hispanic candidate elected to lead the state.`\
+https://www.nytimes.com/2026/11/03/us/texas-governor-abbott-hinojosa.html
+
+**Rob Sand Defeats Zach Lahn in Iowa Governor’s Race, Ending Republicans’ Hold on the Seat**\
+`A hunter and former prosecutor, Mr. Sand avoided traditional Democratic labels and cast himself as dedicated to Iowans first.`\
+https://www.nytimes.com/2026/11/03/us/iowa-governor-sand-lahn.html
+
+**Democrats Underestimated Sherrod Brown in Ohio. They Were Wrong.**\
+`If Democrats want to take back the White House, they should follow the Ohio senator-elect’s playbook of focusing on economic issues while sidestepping cultural ones.`\
+https://www.nytimes.com/2026/11/03/opinion/sherrod-brown-ohio-senate.html
+
 **Missouri Voters Reject Republican Attempt to Restore Ban on Abortions**\
 `Missourians established a right to abortion two years ago, overturning a near-total ban. Republican lawmakers asked them to reverse course this year.`\
 https://www.nytimes.com/2026/11/03/us/missouri-abortion-ban.html
