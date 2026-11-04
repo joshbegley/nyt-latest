@@ -1,3 +1,11 @@
+**Live: Three Opinion Writers on the Democrats’ Landslide**\
+`And what the party should do with its new majority in the House and Senate.`\
+https://www.nytimes.com/2026/11/04/opinion/democrat-wins-midterms-house-senate-chat.html
+
+**SpaceX and Tesla Stocks Tumble After Elon Musk-Backed Candidates Lose in Texas**\
+`The world’s richest person has antagonized Democrats, some of whom have signaled their intent to investigate him when they take control of Congress.`\
+https://www.nytimes.com/2026/11/04/business/musk-elections-spacex-tesla-stocks.html
+
 **Attorney General Appoints Outside Counsel to Lead Cornell Rape Case**\
 `Jacqueline Kelly will oversee a criminal investigation into a former student’s allegations that she was raped in 2024.`\
 https://www.nytimes.com/2026/11/04/nyregion/cornell-jane-doe-sexual-assault-investigation.html
