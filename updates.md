@@ -1,3 +1,11 @@
+**What Makes These Election Results So Historic**\
+`Democrats celebrated a seismic triumph in the midterm elections, winning control of the Senate and the House as voters delivered a blistering rebuke to President Trump. Peter Baker, The New York Times’s Chief White House correspondent explains what this historic reset of the balance of power in Washington means.`\
+https://www.nytimes.com/video/us/elections/100000011261200/what-makes-these-election-results-so-historic.html
+
+**How Kentucky Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-kentucky.html
+
 **A Night of Firsts in the Midterms**\
 `The midterms were full of firsts, including the first Black woman to be elected governor of a U.S. state and the first openly gay man to serve in the Senate.`\
 https://www.nytimes.com/video/world/americas/100000011261450/midterm-elections-results-firsts.html
