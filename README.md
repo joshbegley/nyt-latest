@@ -1,3 +1,7 @@
+**Americans on Why They Rejected Trump’s Republican Party**\
+`A G.O.P. voter in Kansas put it bluntly: “The Republican Party has lost its way.”`\
+https://www.nytimes.com/2026/11/04/us/elections/midterms-mood.html
+
 **Candy and Smiles on MS NOW, and Some Regrets on Fox News**\
 `On TV, the outcome of the midterm elections became clear early on. Pundits celebrated and grieved by turns.`\
 https://www.nytimes.com/2026/11/04/business/media/midterm-elections-fox-ms-now.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/2026/11/04/us/elections/maine-senate-collins-jackson.htm
 `Bob Harvie, a Bucks County commissioner, defeated Representative Brian Fitzpatrick, who had survived three previous elections in a district that voted against President Trump each time.`\
 https://www.nytimes.com/2026/11/04/us/pennsylvania-house-1-fitzpatrick.html
 
-**It Was Time for Susan Collins to Go**\
+**Maine Voters Finally Saw Through Susan Collins**\
 `One of the greatest survivors in U.S. politics finally falls.`\
 https://www.nytimes.com/2026/11/04/opinion/susan-collins-troy-jackson-senate.html
 
@@ -38,8 +42,8 @@ https://www.nytimes.com/2026/11/04/us/texas-house-15-pulido-de-la-cruz.html
 `Representative Mike Lawler, a Hudson Valley Republican, chose to concede even with tens of thousands of votes yet to be counted because of balloting issues in Westchester County.`\
 https://www.nytimes.com/2026/11/04/nyregion/lawler-concedes-conley-new-york-house-17-westchester.html
 
-**Finally. FINALLY. Texas Is Blue.**\
-`For Republicans, Texas has long been a dependable political anchor. Its loss was a profound psychological blow.`\
+**This Is a Huge Psychological Blow to Republicans**\
+`For Republicans, Texas has long been a dependable political anchor. Now, it’s finally blue.`\
 https://www.nytimes.com/2026/11/04/opinion/talarico-hinojosa-texas-democrats.html
 
 **How the Stock Market Is Reacting to the Midterm Elections**\
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/11/03/us/politics/trump-midterm-election-results.ht
 **Deb Haaland Is First Native American Woman to Be Elected Governor After New Mexico Win**\
 `The former congresswoman and interior secretary pledged to resist the Trump administration. She will be the nation’s first female Native American governor.`\
 https://www.nytimes.com/2026/11/03/us/new-mexico-governor-haaland-hull.html
-
-**Being a Sex Worker Made Me Trust Men More**\
-`Paloma Karr went looking for a paycheck. She found vulnerability instead.`\
-https://www.nytimes.com/video/podcasts/100000011255857/being-a-sex-worker-made-me-trust-men-more.html
-
-**Democrats Win South Carolina Senate Seat**\
-`Our election data reporter Christine Zhang explains how double-digit swings in several counties helped Dr. Annie Andrews, a Democrat, defeat Senator Darline Graham, a Republican, flipping South Carolina in the U.S. Senate race.`\
-https://www.nytimes.com/video/us/elections/100000011259875/south-carolina-flips.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\
