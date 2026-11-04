@@ -1,3 +1,15 @@
+**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
+`Times Opinion writers break down the results from across the country and what they will mean for American politics in the years ahead.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
+**How The New York Times Tracks Election News and Tips**\
+`Journalists for The Times are watching for election issues, problems at the polls and misinformation, reporting tips to one main place.`\
+https://www.nytimes.com/2026/11/03/insider/how-we-confirm-tips-about-voting-issues.html
+
+**Midterm Elections Live Updates: Polls Close in South Carolina and Georgia With Senate Majority at Stake**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Key Part of Jet in Deadly Florida Crash Found Far From Impact Site**\
 `The mechanism that controls the vertical angle of the plane was found in three pieces, including one nearly four miles away. All nine people aboard were killed.`\
 https://www.nytimes.com/2026/11/03/us/florida-plane-crash-wreckage-recovered.html
