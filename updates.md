@@ -1,3 +1,15 @@
+**Democrats Flip Texas With Stunning Midterm Election Victories**\
+`James Talarico and Gina Hinojosa, two Democratic state representatives, won their midterm races for senator and governor in Texas. Their victories ended decades of Republican dominance in the state.`\
+https://www.nytimes.com/video/us/politics/100000011261627/texas-democrats-talarico-hinojosa.html
+
+**Attorney General Appoints Outside Counsel to Lead Cornell Rape Case**\
+`Jacqueline Kelly, a former federal prosecutor, will oversee a criminal investigation into a former student’s allegations that she was raped in 2024.`\
+https://www.nytimes.com/2026/11/04/nyregion/cornell-jane-doe-sexual-assault-investigation.html
+
+**The Republican Party’s Financial Advantage Wasn’t Enough in the 2026 Midterm Elections**\
+`With the economy and national political climate of 2026: “You’re not going to advertise your way out of that,” said one expert.`\
+https://www.nytimes.com/2026/11/04/us/republican-party-fundraising-midterms.html
+
 **How Indiana Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-indiana.html
