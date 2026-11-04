@@ -1,3 +1,11 @@
+**Could a Viral Video Save Her Mom’s Chinese Restaurant?**\
+`Millions viewed Lisa He’s post about her mother’s struggling business in Edinburgh. But internet fame created its own complications — and obscured bigger questions.`\
+https://www.nytimes.com/2026/11/04/world/europe/chinese-restaurant-edinburgh-viral-social-media.html
+
+**El-Sayed Celebrates ‘an America Big Enough for All of Us’**\
+`In Michigan, Adbul El-Sayed outlasted former Representative Mike Rogers in a Senate campaign marred by ugly attacks.`\
+https://www.nytimes.com/2026/11/04/us/politics/michigan-senate-el-sayed.html
+
 **Israel’s President Could Play Key Role in Breaking Post-Election Deadlock**\
 `President Isaac Herzog has tried to avoid controversy and heal rifts in his largely ceremonial role. But his skills as a savvy mediator could be instrumental after an inconclusive election.`\
 https://www.nytimes.com/2026/11/04/world/middleeast/israel-president-herzog-election-government.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011260565/a-democratic-senator-
 **Haaland and Flanagan, Two Native American Women, Break Political Barriers**\
 `Deb Haaland of New Mexico will be the nation’s first woman Native American governor, while Peggy Flanagan, Minnesota’s next senator, is the first Native American woman to win election to the chamber.`\
 https://www.nytimes.com/2026/11/04/us/elections/haaland-flanagan-native-american-women-elected.html
-
-**Bohannan Unseats Miller-Meeks in Iowa, Flipping Key House Seat**\
-`Discontent about the war with Iran and tariffs helped create a tough environment for Representative Mariannette Miller-Meeks, the defeated Republican.`\
-https://www.nytimes.com/2026/11/04/us/politics/iowa-house-1-bohannan-miller-meeks.html
-
-**Peggy Flanagan’s Victory Keeps Minnesota Senate Seat in Democratic Hands**\
-`Ms. Flanagan, Minnesota’s lieutenant governor, ran against the former sports broadcaster Michele Tafoya. She becomes the first Native American woman elected to the Senate.`\
-https://www.nytimes.com/2026/11/04/us/minnesota-senate-tafoya-flanagan.html
 
