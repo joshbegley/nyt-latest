@@ -14,7 +14,7 @@ https://www.nytimes.com/video/opinion/100000011262109/three-opinion-writers-on-t
 `Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
 https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html
 
-**The Democratic Wave Swept State Houses Across the Country**\
+**The Democratic Wave Swept Statehouses Across the Country**\
 `Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
 https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
 

@@ -1,3 +1,11 @@
+**A Trump Reckoning**\
+`The results from the U.S. midterm elections could be the beginning of the end of the Trump era.`\
+https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
+
+**Midterm Elections Live Updates: Democrats Vow to Use Majority to Check Trump**\
+`Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after a remarkable power shift in Congress. President Trump, speaking at the White House, focused on his renovation projects, not the midterms.`\
+https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
+
 **Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
 `Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
 https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
