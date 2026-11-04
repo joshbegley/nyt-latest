@@ -1,3 +1,7 @@
+**Historic Midterm Rout Serves as a Sweeping Rebuke of Trump Era**\
+`The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
+
 **With 2 Big Wins, Democrats May Have Put Ohio Back in Play**\
 `Once seen as a bellwether of the nation’s political mood, Ohio has been solidly red since President Trump first won office. Tuesday’s results could change that.`\
 https://www.nytimes.com/2026/11/04/us/elections/ohio-democrats-win-brown-acton.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/03/us/missouri-congressional-redistricting-refer
 **Democrats Outperform in Three States**\
 `Democrats have won key Senate races in Georgia, North Carolina and South Carolina. Our election data reporter Evan Reynolds explains how Democrats did well even in some historically Republican counties in these Southern states.`\
 https://www.nytimes.com/video/us/elections/100000011260134/democrats-outperform-in-three-states.html
-
-**Shomari Figures Holds Redrawn Alabama House Seat for Democrats**\
-`Representative Shomari Figures won even though a new Republican-drawn map changed his district, a move prompted by the Supreme Court decision weakening the Voting Rights Act.`\
-https://www.nytimes.com/2026/11/03/us/alabama-house-2-marques-figures.html
 
 **Midterm Elections Live Updates: Democrats Seize Control of Congress as Voters Rebuke Trump**\
 `Democrats flipped seven Senate seats, including three in states held by Republicans for decades, and overcame a redistricting effort to capture the House. President Trump told The New York Times that he would accept the election results.`\

@@ -1,3 +1,7 @@
+**Historic Midterm Rout Serves as a Sweeping Rebuke of Trump Era**\
+`The electoral backlash extended even into deep red states and indicated that President Trump has lost his hold over the coalition that lifted him to the White House twice.`\
+https://www.nytimes.com/2026/11/04/us/politics/midterm-election-rebuke-of-trump-era.html
+
 **With 2 Big Wins, Democrats May Have Put Ohio Back in Play**\
 `Once seen as a bellwether of the nation’s political mood, Ohio has been solidly red since President Trump first won office. Tuesday’s results could change that.`\
 https://www.nytimes.com/2026/11/04/us/elections/ohio-democrats-win-brown-acton.html
