@@ -1,3 +1,7 @@
+**How Hawaii Voted in the 2026 Election by Race, Gender, Age and Education**\
+`Explore the results of the election by race, gender, age and education.`\
+https://www.nytimes.com/interactive/2026/elections/voter-trends-hawaii.html
+
 **Democrats Deliver a Big Blue Bludgeoning**\
 `The party’s midterm victory reshapes the political landscape.`\
 https://www.nytimes.com/2026/11/04/us/politics/democrats-deliver-a-big-blue-bludgeoning.html
