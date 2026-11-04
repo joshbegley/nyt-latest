@@ -1,3 +1,11 @@
+**The Blame Game Begins**\
+`Also, Democrats will have a huge majority in the House. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-power.html
+
+**G.O.P. Group Says Party Faces a ‘Crisis-Level’ Loss of Elected Women**\
+`Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
+https://www.nytimes.com/2026/11/04/us/gop-group-says-party-faces-a-crisis-level-loss-of-elected-women.html
+
 **His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
 `Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
 https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/11/04/world/asia/senji-kuroi-dead.html
 **Randy Villegas, a Progressive Democrat, Ousts a G.O.P. Incumbent in California**\
 `Mr. Villegas flipped a district held by Representative David Valadao, a moderate Republican, in the state’s traditionally conservative Central Valley region.`\
 https://www.nytimes.com/2026/11/04/us/california-house-22-villegas-valadao.html
-
-**Alexander Brothers’ Team Paid Influencers to Discredit Women in Case, Documents Show**\
-`The online articles, some of which were deeply critical of the accusers, were widely shared during the brothers’ trial in which they were found guilty of sex trafficking.`\
-https://www.nytimes.com/2026/11/04/nyregion/alexander-brothers-sex-trafficking-paid-writers.html
-
-**Sherrod Brown’s Win in Ohio Is a Rare Loss for Crypto Under Trump**\
-`Fairshake, the major industry super PAC, spent $46 million on ads against the Democrat, Sherrod Brown, who won.`\
-https://www.nytimes.com/2026/11/04/technology/sherrod-brown-ohio-crypto-trump.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
