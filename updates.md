@@ -1,3 +1,15 @@
+**There’s No Modern Precedent for This Democratic Tsunami**\
+`It was hard to imagine that an electoral wave this big was still possible. But there have been extraordinary changes just beneath the surface.`\
+https://www.nytimes.com/2026/11/04/upshot/democrats-midterm-elections-trump-tsunami.html
+
+**My Adult Daughter Has Gone ‘No Contact’ With Me. What Should I Do?**\
+`A mother is distraught to find herself cut out of her daughter’s life after a frustrated outburst. Family therapy? Her daughter says no thanks.`\
+https://www.nytimes.com/2026/11/04/style/no-contact-family-estrangement.html
+
+**America’s Trade Deficit Remained Elevated in September**\
+`The gap between U.S. exports and imports, which remained at a relatively high level in September, has defied efforts by President Trump to decrease it with tariffs.`\
+https://www.nytimes.com/2026/11/04/business/us-trade-deficit-september.html
+
 **How Iowa Voted in the 2026 Election by Race, Gender, Age and Education**\
 `Explore the results of the election by race, gender, age and education.`\
 https://www.nytimes.com/interactive/2026/elections/voter-trends-iowa.html
