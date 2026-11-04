@@ -1,3 +1,7 @@
+**Republicans React After Sweeping Losses in the Midterms**\
+`Several Republican candidates and leaders responded to the party’s sweeping losses on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000011262890/republicans-midterms-elections-reaction.html
+
 **Trump Media’s Shares Fall to Record Low After Midterms**\
 `Trump Media & Technology Group’s stock plunged 24 percent a day after Democrats made huge gains in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-elections.html

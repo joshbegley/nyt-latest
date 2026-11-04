@@ -1,3 +1,7 @@
+**Republicans React After Sweeping Losses in the Midterms**\
+`Several Republican candidates and leaders responded to the party’s sweeping losses on Tuesday.`\
+https://www.nytimes.com/video/us/elections/100000011262890/republicans-midterms-elections-reaction.html
+
 **Trump Media’s Shares Fall to Record Low After Midterms**\
 `Trump Media & Technology Group’s stock plunged 24 percent a day after Democrats made huge gains in the midterm elections.`\
 https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-elections.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/04/technology/sherrod-brown-ohio-crypto-trump.ht
 **How 2026 Midterm Voters Swung Back to Democrats Amid Trump Backlash**\
 `Democrats reversed many of the gains Republicans made in 2024.`\
 https://www.nytimes.com/interactive/2026/11/04/us/elections/midterms-swing-voters-democrats.html
-
-**Juan Atkins Has Died. He Helped Invent Techno Music.**\
-`He combined the futurism of Kraftwerk with the funk of George Clinton to arrive at techno, making Detroit a capital of the genre. He was 64.`\
-https://www.nytimes.com/2026/11/04/arts/music/juan-atkins-dead.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
