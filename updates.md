@@ -1,3 +1,11 @@
+**Rebecca Bennett Unseats Tom Kean Jr. in New Jersey House Race**\
+`Rebecca Bennett, a Democrat, unseated Representative Tom Kean Jr. in a New Jersey swing district. Mr. Kean was absent from Congress for nearly four months while he was treated for depression.`\
+https://www.nytimes.com/2026/11/03/nyregion/kean-jr-bennett-nj-house-7.html
+
+**‘Trump Has Left Republicans in a Highly Perilous Position’: Opinion Writers Assess the Midterms**\
+`Kristen Soltis Anderson and Jamelle Bouie talk about the South Carolina Senate race and the implications of the Georgia race.`\
+https://www.nytimes.com/2026/11/03/opinion/politics/election-midterms-senate-house.html
+
 **Midterm Elections Live Updates: Democrats Make Major Gains in Fight for Congress**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
