@@ -1,3 +1,7 @@
+**Jon Ossoff Looks Pretty Presidential**\
+`Fighting corruption, the theme in his race, could work for Democrats in 2028.`\
+https://www.nytimes.com/2026/11/03/opinion/jon-ossoff-georgia-senate.html
+
 **Jon Ossoff Wins Georgia Senate Race Against Mike Collins**\
 `Mr. Ossoff, the Democratic incumbent, was an aggressive anti-Trump campaigner. He beat Representative Mike Collins, a Republican.`\
 https://www.nytimes.com/2026/11/03/us/ossoff-georgia-senate-race.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/03/arts/trump-kennedy-center-executive-privilege
 **Afghan Woman Is Among Dozens to Be Deported to Afghanistan**\
 `The Trump administration has arranged a flight to send dozens of Afghan immigrants back to Afghanistan, despite the risk of persecution by the Taliban.`\
 https://www.nytimes.com/2026/11/03/world/asia/afghan-deportation-flight.html
-
-**Voting Problems Cause a Surge in Misleading Fraud Claims Online**\
-`Mentions of “cheat,” “steal,” “rig” and similar terms spiked on X this morning as voting began.`\
-https://www.nytimes.com/2026/11/03/technology/midterm-elections-voter-fraud-claims.html
 
 **Midterm Elections Live Updates: Ossoff Retains Georgia Senate Seat, as Polls Close in More Battlegrounds**\
 `(No description)`\

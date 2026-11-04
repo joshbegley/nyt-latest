@@ -1,3 +1,15 @@
+**Jon Ossoff Wins Georgia Senate Race Against Mike Collins**\
+`Mr. Ossoff, the Democratic incumbent, was an aggressive anti-Trump campaigner. He beat Representative Mike Collins, a Republican.`\
+https://www.nytimes.com/2026/11/03/us/ossoff-georgia-senate-race.html
+
+**More Federal Election Monitors Than Ever Fanned Out to Polling Places**\
+`The presence caused jitters for some voters and election officials, but no major disruptions were reported.`\
+https://www.nytimes.com/2026/11/03/us/justice-department-monitors-election.html
+
+**Midterm Elections Live Updates: Ossoff Retains Georgia Senate Seat, as Polls Close in More Battlegrounds**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
+
 **Anthrax Outbreak in Africa’s Oldest National Park Is Killing Hippos**\
 `The disease has killed 30 hippopotamuses in Virunga National Park in the Democratic Republic of Congo since September, officials say.`\
 https://www.nytimes.com/2026/11/03/world/africa/congo-anthrax-hippos-virunga-park.html
