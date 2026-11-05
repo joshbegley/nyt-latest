@@ -1,3 +1,7 @@
+**Man Who Stole the Home of a Dying Woman Pleads Guilty**\
+`In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
+https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
+
 **Justice Dept. Steps Up Criminal Investigation of Supreme Court Abortion Leak**\
 `Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
 https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
