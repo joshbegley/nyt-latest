@@ -1,3 +1,7 @@
+**The Bell Tolls for Trumpism**\
+`Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
+https://www.nytimes.com/video/opinion/100000011258478/the-bell-tolls-for-trumpism.html
+
 **NYT Crossword Answers for Nov. 5, 2026**\
 `Need help interpreting David P. Williams’s puzzle?`\
 https://www.nytimes.com/2026/11/04/crosswords/daily-puzzle-2026-11-05.html
