@@ -1,3 +1,15 @@
+**Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
+`Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
+https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html
+
+**Russell Brand Is Found Guilty of Rape and Sexual Assault**\
+`The judge in London said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
+https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**6 Killed in Sunset Park Blaze: NYC’s Deadliest Fire This Year**\
+`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
+https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
+
 **Protesters Fill Streets Across France During Nationwide Strike**\
 `Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
 https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html

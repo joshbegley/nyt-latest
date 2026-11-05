@@ -1,3 +1,11 @@
+**The Big-Name Democrats Whose Bets Paid Off in the Midterms**\
+`Victory has a thousand fathers. And Democrats everywhere are clamoring for a piece of this midterm triumph.`\
+https://www.nytimes.com/2026/11/05/us/midterms-democratic-endorsements.html
+
+**Canadian Officials Search for Bears After Mother and Daughter Are Killed on Hike**\
+`Wildlife officers were working to trap grizzly bears along a trail after the remains of the two hikers were found near a remote community in British Columbia this week.`\
+https://www.nytimes.com/2026/11/05/world/canada/canada-grizzly-bear-attack-mother-daughter-killed.html
+
 **Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
 `Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
 https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/realestate/homes-for-sale-in-manhattan-and-th
 **Sherri Shepherd, in ‘Aladdin,’ Is Granting Wishes as the First Female Genie**\
 `The actress has stepped into Genie’s famous blue velvet costume, bringing a new dynamic to the role.`\
 https://www.nytimes.com/2026/11/05/theater/sherri-shepherd-genie-aladdin-broadway.html
-
-**Is Your HOA Fee Rising? You’re Not Alone.**\
-`Over the last 50 years, homeowners associations have proliferated; over the last five, fees have soared.`\
-https://www.nytimes.com/2026/11/05/realestate/is-your-hoa-fee-rising-youre-not-alone.html
-
-**Tiny Chihuahuas Hold a Big Surprise: A Sliver of Coyote DNA**\
-`The breed is descended from indigenous canines, which may have been intentionally mixed with wild coyotes long before Europeans arrived in the Americas.`\
-https://www.nytimes.com/2026/11/05/science/chihuahuas-coyote-dna.html
 
