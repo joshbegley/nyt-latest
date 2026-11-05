@@ -1,3 +1,11 @@
+**After Midterms, Trump Shows Off Ballroom**\
+`After his party suffered its worst election results in decades, President Trump emerged before the cameras for the first time to talk about his White House ballroom project.`\
+https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
+
+**The Met Has a New Gala Theme, and It Is as Uncontroversial as Possible**\
+`After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
+https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
+
 **What to Know About the Bomb Threats Disrupting Flights in Europe**\
 `Several planes that were targeted on Thursday landed safely, officials said, after similar threats earlier this week. The apparent hoaxes have added to airspace anxiety in the region.`\
 https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html

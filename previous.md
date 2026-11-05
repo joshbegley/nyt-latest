@@ -1,3 +1,11 @@
+**After Midterms, Trump Shows Off Ballroom**\
+`After his party suffered its worst election results in decades, President Trump emerged before the cameras for the first time to talk about his White House ballroom project.`\
+https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
+
+**The Met Has a New Gala Theme, and It Is as Uncontroversial as Possible**\
+`After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
+https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
+
 **British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
 `The government said the risk to the British public from the disease was low. The current outbreak in Africa has spread widely across the continent, killing more than 5,000 people.`\
 https://www.nytimes.com/2026/11/05/world/europe/british-ebola-case-congo-uk.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/movies/soul-patrol-review-a-veterans-past-con
 **‘Ramayana: Rise of a Legend’ Review: Royal Intrigue**\
 `This respectful adaptation rolls out the converging stories of the prince Rama and the demon king Ravana with brawny blockbuster-style action.`\
 https://www.nytimes.com/2026/11/05/movies/ramayana-rise-of-a-legend-review.html
-
-**‘Mouse’ Review: The Awkward Etiquette of Unexpected Loss**\
-`The actor Sophie Okonedo embodies the quiet anguish of a bereaved mother of a high school girl in this tale of grief and connection in Arkansas.`\
-https://www.nytimes.com/2026/11/05/movies/mouse-review.html
-
-**‘Hen’ Review: A Bird’s-Eye View**\
-`In this peculiar story, the Hungarian filmmaker Gyorgi Palfi follows a chicken who escapes slaughter and ends up in a pen alongside a criminal enterprise.`\
-https://www.nytimes.com/2026/11/05/movies/hen-review-a-birds-eye-view.html
 
