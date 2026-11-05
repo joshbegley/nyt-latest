@@ -1,3 +1,19 @@
+**What Shaped Anthropic CEO Dario Amodei’s Thinking on A.I.**\
+`Some call him a doomer. Others see him as a responsible technologist. Here’s how the Anthropic chief executive’s thinking on artificial intelligence was shaped.`\
+https://www.nytimes.com/2026/11/05/technology/dario-amodei-anthropic-ai.html
+
+**Anna Lambe of ‘North of North’ Puts Her Best Foot Forward**\
+`Anna Lambe can still go out in relative anonymity. But with her Indigenous Netflix sitcom returning and three new movies this fall, that may change soon.`\
+https://www.nytimes.com/2026/11/05/arts/television/anna-lambe-north-of-north.html
+
+**New Science Fiction and Fantasy**\
+`“The Subtle Art of Folding Space,” “Sublimation” and “Foundling Fathers” consider identity in worlds beyond our own.`\
+https://www.nytimes.com/2026/11/05/books/review/isabel-kim-john-chu-meg-elison.html
+
+**Was $500,000 Enough for a House in the Catskills?**\
+`Vanessa Sergeon loved her Brooklyn apartment, but there wasn’t much nature nearby.`\
+https://www.nytimes.com/quiz/2026/11/05/realestate/catskills-house-hunt.html
+
 **Democratic Health Professionals Win Seats in Congress**\
 `Some Democratic doctors and nurses ran and won congressional seats by centering their campaigns on opposing Health Secretary Robert F. Kennedy Jr.`\
 https://www.nytimes.com/video/us/politics/100000011264106/midterm-elections-doctors-nurses.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-ele
 **Whose Idea Was the Billy Evans Shower Scene in ‘You Can See Everything’?**\
 `Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
 https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
-
-**‘Tired of Stupidity and Ballrooms and Wars’**\
-`Americans are ready for a different kind of politics, and that showed up in the election results, the Opinion contributing writer E.J. Dionne Jr. argues. “People are tired of the division. They’re tired of wasting time. They’re tired of stupidity and ballrooms and wars,” he says.`\
-https://www.nytimes.com/video/opinion/100000011263294/tired-of-stupidity-and-ballrooms-and-wars.html
-
-**‘It Is Never Enough’: Susan Collins Couldn’t Outrun Trump**\
-`The Maine Republican survived tough cycles in the past even as the political ground shifted beneath her. But the anti-Trump fever in her state doomed her this time.`\
-https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
-
-**Trump Emerges After the Midterms: ‘Did You Guys See the Helipad?’**\
-`His party just suffered a drubbing unseen in decades. But the president, leading a tour of his ballroom project, was placid and eager to wax on about construction instead.`\
-https://www.nytimes.com/2026/11/04/us/trump-midterms-ballroom.html
-
-**Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
-`Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
-https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats
 
