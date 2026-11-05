@@ -1,3 +1,11 @@
+**U.S. Finds Subdued Foreign Meddling Operations in Midterm Elections**\
+`Russia was linked to influence campaigns targeting Democrats that gained little traction, but the Kremlin may be more focused on France’s elections in the spring.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterm-elections-foreign-meddling.html
+
+**Passengers Tell of Fear After Bomb Threats Hit European Flights**\
+`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland, Spain.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
+
 **Man Who Stole the Home of a Dying Woman Pleads Guilty**\
 `In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
 https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-
 
 **‘I Play Rocky’ Review: He’s a Champion**\
 `The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
-https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-hes-a-champion.html
+https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
 
 **How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
 `From Miami, Flávio Bolsonaro is doubling down on unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/mississippi-senate-race-democrat-
 **After Midterms, Trump Shows Off Ballroom**\
 `After his party suffered its worst election results in decades, President Trump emerged before the cameras for the first time to talk about his White House ballroom project.`\
 https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
-
-**The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
-`Two months after scrapping plans for an exhibition dedicated to the controversial designer, the museum’s Costume Institute is pivoting to the everyday.`\
-https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
-
-**British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
-`The government said the risk to the British public from the disease was low. The current outbreak in Africa has spread widely across the continent, killing more than 5,000 people.`\
-https://www.nytimes.com/2026/11/05/world/europe/british-ebola-case-congo-uk.html
 

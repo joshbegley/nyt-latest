@@ -1,3 +1,15 @@
+**U.S. Finds Subdued Foreign Meddling Operations in Midterm Elections**\
+`Russia was linked to influence campaigns targeting Democrats that gained little traction, but the Kremlin may be more focused on France’s elections in the spring.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterm-elections-foreign-meddling.html
+
+**Passengers Tell of Fear After Bomb Threats Hit European Flights**\
+`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland, Spain.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
+
+**‘I Play Rocky’ Review: He’s a Champion**\
+`The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
+https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
+
 **Man Who Stole the Home of a Dying Woman Pleads Guilty**\
 `In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
 https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
