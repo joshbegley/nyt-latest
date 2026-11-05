@@ -1,3 +1,7 @@
+**How Trump Is Reacting to the Midterm Results**\
+`In the days after Republicans suffered massive midterm election defeats, President Trump appeared unmoved. The New York Times’s White House correspondent Maggie Haberman explains how Trump’s public demeanor compares with what he has shared behind closed doors about voters’ frustration with some of his policies.`\
+https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-to-the-midterm-results.html
+
 **Finland Sends 2 Men to Prison for Damaging Undersea Cable in Baltic Sea**\
 `A Finnish court convicted the captain and boatswain of a cargo ship of aggravated criminal damage in relation to an incident last year in the Gulf of Finland.`\
 https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
@@ -110,7 +114,7 @@ https://www.nytimes.com/2026/11/05/arts/design/yoshitomo-nara-david-zwirner-hirs
 `The third most populous state withstood a national Democratic surge on Tuesday, even as Republicans amassed deep losses in Texas and across the electoral map.`\
 https://www.nytimes.com/2026/11/05/us/florida-republicans-midterms.html
 
-**How Texas Democrats Turned Decades of Defeat Into a Statewide Sweep**\
+**To Sweep Texas, Democrats Built ‘a Machine’ With Every Piece in Place**\
 `Years of organizing met a moment of voter discontent, as James Talarico and Gina Hinojosa offered Texans a message of economic relief and political change.`\
 https://www.nytimes.com/2026/11/05/us/texas-democrats-statewide-sweep.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/movies/hen-review-a-birds-eye-view.html
 **‘Godzilla Minus Zero’ Review: Reprieve of Destruction**\
 `The belligerent beastie returns to terrorize the survivors of his previous rampage and battle a new foe in this dazzling, darkly haunted sequel.`\
 https://www.nytimes.com/2026/11/05/movies/godzilla-minus-zero-review-reprieve-of-destruction.html
-
-**‘De Gaulle: Résistance’ Review: Uniting a Country at War**\
-`This two-part film centers on Charles de Gaulle’s exile from France. As the Nazis close in, the Free French movement emerges.`\
-https://www.nytimes.com/2026/11/05/movies/de-gaulle-resistance-review.html
 
