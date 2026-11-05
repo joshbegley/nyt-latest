@@ -1,3 +1,7 @@
+**The Met Announces New Theme After Backlash**\
+`Vanessa Friedman, The New York Times’s chief fashion critic, discusses the new theme for the 2027 Met Gala. The previous one had been set to honor John Galliano, a designer with a history of antisemitic remarks who withdrew from a planned exhibition.`\
+https://www.nytimes.com/video/style/100000011262709/the-met-announces-new-theme-after-backlash.html
+
 **Russell Brand Is Found Guilty of Rape and Sexual Assault**\
 `The judge said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
