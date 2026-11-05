@@ -1,3 +1,7 @@
+**High Gas Prices Boost Sales of Hybrids for Toyota, Sending Its Stock Soaring**\
+`Toyota is cashing in on a U.S. hybrid boom as electric-vehicle demand slows, but shifting political tides in Washington could jeopardize its edge.`\
+https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
+
 **Change Is Coming**\
 `The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
 https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.ht
 **With V.R., Passive Concert Audiences Become Active Participants**\
 `Imaginative virtual reality projects in London bring listeners up close to the pianist Yuja Wang and let them perform with the Philharmonia Orchestra.`\
 https://www.nytimes.com/2026/11/05/arts/music/virtual-reality-classical-music.html
-
-**Tailoring’s Glamorous Turn**\
-`This fall, try classic pieces made from luxe materials — and paired with standout accessories.`\
-https://www.nytimes.com/2026/11/05/t-magazine/mens-tailored-fashion-outerwear.html
 
