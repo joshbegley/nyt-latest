@@ -1,3 +1,7 @@
+**Democratic Health Professionals Win Seats in Congress**\
+`Some Democratic doctors and nurses ran and won congressional seats by centering their campaigns on opposing Health Secretary Robert F. Kennedy Jr.`\
+https://www.nytimes.com/video/us/politics/100000011264106/midterm-elections-doctors-nurses.html
+
 **Muslim Voters Thrilled By El-Sayed’s Victory in Michigan**\
 `Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
 https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
@@ -142,13 +146,13 @@ https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
 `The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
 https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
 
-**Bob Dylan Meets With Pope Leo**\
-`Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
-https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
-
 **After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
 `A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
 https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
+
+**Bob Dylan Meets With Pope Leo**\
+`Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
+https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
 
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump
 **Trump Emerges After the Midterms: ‘Did You Guys See the Helipad?’**\
 `His party just suffered a drubbing unseen in decades. But the president, leading a tour of his ballroom project, was placid and eager to wax on about construction instead.`\
 https://www.nytimes.com/2026/11/04/us/trump-midterms-ballroom.html
-
-**Trump Administration Moves to Oust Arbitrators as Doctor Payouts Soar**\
-`The two companies settled billing disputes between doctors and insurers, keeping patients out of the middle. One let doctors win 96 percent of the time.`\
-https://www.nytimes.com/2026/11/04/health/arbitrators-medical-bills.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
