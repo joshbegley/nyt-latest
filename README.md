@@ -1,6 +1,6 @@
 **Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/11/05/world/05wea-quake-tracker-tanzania-nytflna9-v2.html
+https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
 
 **The Onion Wants to Sponsor a Bowl Game**\
 `A satirical newspaper goes up against the sports industrial complex.`\
