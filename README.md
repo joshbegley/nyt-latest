@@ -1,3 +1,7 @@
+**Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
+`Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
+https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
+
 **The Bell Tolls for Trumpism**\
 `Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
 https://www.nytimes.com/video/opinion/100000011258478/the-bell-tolls-for-trumpism.html
@@ -86,13 +90,13 @@ https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
 `The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
 https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
 
-**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
-`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
-https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
-
 **Bob Dylan Meets With Pope Leo**\
 `Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
 https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
+
+**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
 
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
 **Trump Wanted Democrats to Win**\
 `The president loves combat and chaos. He’s about to get more of it.`\
 https://www.nytimes.com/2026/11/04/opinion/trump-democrats-midterms.html
-
-**We Banned Bots From Our Dating Apps. This Is Why.**\
-`A.I. agents can make things easier. That’s not always a good thing.`\
-https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
