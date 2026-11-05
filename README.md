@@ -1,3 +1,7 @@
+**Rubio Rejects Reports He Will Leave His Jobs to Run for President**\
+`President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
+https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
+
 **Trump Takes Fresh Aim at Alaska, Still Counting Its Senate Results**\
 `Mary Peltola, the Democrat, was leading Senator Dan Sullivan, the Republican, in incomplete returns. A New York Times analysis suggested she was on track to prevail.`\
 https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-what-to-know.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak
 **How Democrats Won Across the South**\
 `They won Senate races in North Carolina, South Carolina and Georgia, with a Mississippi race still too close to call. Their wins lifted down-ballot candidates too.`\
 https://www.nytimes.com/2026/11/05/us/politics/midterms-southern-democrats.html
-
-**Vance and the Art of Finger-Pointing**\
-`Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
-https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
 
