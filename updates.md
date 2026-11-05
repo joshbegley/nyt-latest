@@ -1,3 +1,7 @@
+**House G.O.P. Leaders Ask Nvidia’s Huang to Speak in Closed-Door Briefing**\
+`The New York Times reported last week that Mr. Huang had a close relationship with an executive that U.S. officials determined was funneling information to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/05/technology/house-republicans-nvidia-jensen-huang-china.html
+
 **Hegseth Lashes Out at Critics Calling for His Firing**\
 `In a new video, the defense secretary vowed to “finish what we have started.” Some Republicans say the Iran war was a big factor in their party’s midterm losses.`\
 https://www.nytimes.com/2026/11/05/us/politics/hegseth-video-midterms-trump.html
