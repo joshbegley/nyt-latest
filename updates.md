@@ -1,3 +1,11 @@
+**Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
+
+**The Onion Wants to Sponsor a Bowl Game**\
+`A satirical newspaper goes up against the sports industrial complex.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-onion-sponsor-sports-bowl-game.html
+
 **Netanyahu Alleges Election Fraud in Connection With Arab Turnout**\
 `The Israeli leader and his allies are alleging that Arab voters last month stole the election. Election officials say that while foul play was being investigated, it could not have affected the result.`\
 https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html

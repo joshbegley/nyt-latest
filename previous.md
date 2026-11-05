@@ -1,3 +1,11 @@
+**Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
+
+**The Onion Wants to Sponsor a Bowl Game**\
+`A satirical newspaper goes up against the sports industrial complex.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-onion-sponsor-sports-bowl-game.html
+
 **Netanyahu Alleges Election Fraud in Connection With Arab Turnout**\
 `The Israeli leader and his allies are alleging that Arab voters last month stole the election. Election officials say that while foul play was being investigated, it could not have affected the result.`\
 https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011226304/trump-triumphal-arch-d
 **Secret Deals Reveal K-Pop’s Firm Grip on a Top Girl Group**\
 `NewJeans shattered records. Behind the scenes were unusually restrictive contracts, signed when the girls were ages 14 to 17.`\
 https://www.nytimes.com/interactive/2026/11/05/world/asia/kpop-newjeans-contract.html
-
-**Alex de Betak Reinvents His Life**\
-`Alex de Betak spent decades as a force in the fashion world. Tragedy and a new dream made him walk away. Here’s what happened next.`\
-https://www.nytimes.com/2026/11/05/style/reinventing-your-life.html
-
-**An Artist Who Won’t Avert Her Gaze From Violence**\
-`Teresa Margolles grapples with the traces of murder and disappearance. A survey at MoMA PS1 connects her projects in Mexico since the 2000s, and the United States today.`\
-https://www.nytimes.com/2026/11/05/arts/design/teresa-margolles-exhibition.html
 
