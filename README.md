@@ -1,3 +1,11 @@
+**‘I Play Rocky’ Review: He’s a Champion**\
+`The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
+https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-hes-a-champion.html
+
+**How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
+`From Miami, Flávio Bolsonaro is doubling down on unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
+https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html
+
 **Sex Work Made Me See Men Differently**\
 `Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how working in a legal brothel in Nevada changed her understanding of men.`\
 https://www.nytimes.com/video/podcasts/100000011262384/sex-work-made-me-see-men-differently.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011240996/meet-new-yorks-happiest
 **The Texas-size Political Tremor Rattling Big Business**\
 `The Lone Star State’s business-friendly playbook could be rewritten by the Democrats’ election sweep there.`\
 https://www.nytimes.com/2026/11/05/business/dealbook/texas-blue-wave-business-fallout.html
-
-**Bank of England Raises Rates for First Time in Three Years**\
-`The central bank increased interest rates for the first time in more than three years and warned that inflation would climb to about 5 percent next year, far above its target.`\
-https://www.nytimes.com/2026/11/05/business/bank-of-england-interest-rates-inflation.html
-
-**High Gas Prices Boost Sales of Hybrids for Toyota, Sending Its Stock Soaring**\
-`Toyota is cashing in on a U.S. hybrid boom as electric-vehicle demand slows, but shifting political tides in Washington could jeopardize its edge.`\
-https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
 
