@@ -1,3 +1,7 @@
+**Bank of England Raises Rates for First Time in Three Years**\
+`The central bank said that inflation would climb to about 5 percent next year, far above its target, because of higher energy prices driven by the war in Iran.`\
+https://www.nytimes.com/2026/11/05/business/bank-of-england-interest-rates-inflation.html
+
 **High Gas Prices Boost Sales of Hybrids for Toyota, Sending Its Stock Soaring**\
 `Toyota is cashing in on a U.S. hybrid boom as electric-vehicle demand slows, but shifting political tides in Washington could jeopardize its edge.`\
 https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
 `The Ozymandias election.`\
 https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html
 
-**We Still Know How to Throw the Bums Out**\
+**Elation Is Not Too Strong a Word**\
 `What an amazing election night.`\
 https://www.nytimes.com/2026/11/05/opinion/trump-blue-wave-democrats.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/t-magazine/cultivate-fashion-decor-artists.ht
 **Latinos Didn’t Come Back to Democrats Out of Loyalty**\
 `They are the indispensable swing bloc, and their votes will have to be won every cycle.`\
 https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.html
-
-**With V.R., Passive Concert Audiences Become Active Participants**\
-`Imaginative virtual reality projects in London bring listeners up close to the pianist Yuja Wang and let them perform with the Philharmonia Orchestra.`\
-https://www.nytimes.com/2026/11/05/arts/music/virtual-reality-classical-music.html
 
