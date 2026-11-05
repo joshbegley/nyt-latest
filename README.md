@@ -1,4 +1,4 @@
-**Nithya Raman, Democratic Socialist, Wins Los Angeles Mayoral Race**\
+**Nithya Raman Wins Los Angeles Mayoral Race, Defeating Karen Bass**\
 `The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
 https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
 
@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
 
 **Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
-`Gov. Gavin Newsom, in one of his last acts, commuted the sentences of all prisoners with death sentences, calling capital punishment morally objectionable. That’s about a quarter of death sentences nationwide.`\
+`Gov. Gavin Newsom, who is expected to run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
 https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
 
 **How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-
 https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
 
 **How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
-`From Miami, Flávio Bolsonaro is doubling down on unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
+`From Miami, Flávio Bolsonaro is making unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
 https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html
 
 **Sex Work Made Me See Men Differently**\
