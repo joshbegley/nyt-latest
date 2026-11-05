@@ -1,3 +1,7 @@
+**3 Spots for Pizza That Break the Mold**\
+`In honor of our updated list of the best pizza in New York City — some off-the-beaten-path choices.`\
+https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
+
 **The Dark Side of K-Pop**\
 `As the popularity of the genre has surged, a dispute between a band and its label has put a spotlight on restrictive artist contracts.`\
 https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html
 **Kehinde Wiley Will Debut New Art Series**\
 `The artist, who has been facing sexual misconduct allegations, became a single father in May and  returns to the gallery world this week with a new show, “What the Light Becomes.”`\
 https://www.nytimes.com/2026/11/05/arts/design/kehinde-wiley-what-the-light-becomes.html
-
-**Paintings That ‘Revolt Against the Loneliness of Caretaking’**\
-`Plus: suggestive chocolates, a restaurant with a mythical owner and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/11/05/t-magazine/victoire-bourgois-motherhood-paintings.html
 
