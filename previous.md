@@ -1,3 +1,15 @@
+**Across the U.S., Democrats Are Rejoicing. In Brooklyn, They’re Fighting.**\
+`Sarah Koenig goes inside the civil war playing out among Brooklyn Democrats.`\
+https://www.nytimes.com/2026/11/05/podcasts/influence-new-york-college-senior-democrats.html
+
+**15-Minute Lesson Plan: A.I. Music**\
+`Can you tell music made by humans from music made by machines? Does learning about the human process change what you hear?`\
+https://www.nytimes.com/2026/11/05/learning/15-minute-lesson-plan-ai-music.html
+
+**Here’s Who Is Meeting Israel’s President to Recommend a Prime Minister**\
+`Israeli party leaders are in discussions with President Isaac Herzog over who should get the first chance to form a governing coalition.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/israel-herzog-prime-minister.html
+
 **Washington Is in a New York State of Mind**\
 `The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
 https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/11/04/health/arbitrators-medical-bills.html
 **Retracing the Night Katie Suarez Was Attacked During Her Jog in Brooklyn**\
 `Katie Suarez was a regular runner on a desolate stretch of the Brooklyn waterfront. On Friday, her parents went looking for her after she stopped returning phone calls.`\
 https://www.nytimes.com/2026/11/04/nyregion/katie-suarez-stabbing-brooklyn-jogger-nyc.html
-
-**Trump Points to War in Iran for Republican Midterm Losses**\
-`President Trump answered questions on Wednesday from reporters about the election results. He also commented on Vice President JD Vance’s lengthy social media post that largely blamed the Republican losses on the war in Iran.`\
-https://www.nytimes.com/video/us/politics/100000011262701/trump-iran-war-midterm-elections-republicans.html
-
-**Medical Professionals Are Among the Winners of the Midterms**\
-`About a half-dozen Democratic doctors and nurses ran for Congress. Some made opposition to Health Secretary Robert F. Kennedy Jr. central to their campaigns.`\
-https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.html
-
-**Texas Democrats Prepare to Relearn a Skill: How to Govern**\
-`Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
-https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

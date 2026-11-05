@@ -1,3 +1,15 @@
+**Across the U.S., Democrats Are Rejoicing. In Brooklyn, They’re Fighting.**\
+`Sarah Koenig goes inside the civil war playing out among Brooklyn Democrats.`\
+https://www.nytimes.com/2026/11/05/podcasts/influence-new-york-college-senior-democrats.html
+
+**15-Minute Lesson Plan: A.I. Music**\
+`Can you tell music made by humans from music made by machines? Does learning about the human process change what you hear?`\
+https://www.nytimes.com/2026/11/05/learning/15-minute-lesson-plan-ai-music.html
+
+**Here’s Who Is Meeting Israel’s President to Recommend a Prime Minister**\
+`Israeli party leaders are in discussions with President Isaac Herzog over who should get the first chance to form a governing coalition.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/israel-herzog-prime-minister.html
+
 **Washington Is in a New York State of Mind**\
 `The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
 https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
