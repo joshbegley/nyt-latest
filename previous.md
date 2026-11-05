@@ -1,3 +1,19 @@
+**There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
+`After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
+https://www.nytimes.com/2026/11/05/style/there-was-one-thing-cancer-wouldnt-keep-him-from-doing.html
+
+**Parents Sue Google Over A.I. Safety Risks on School Chromebooks**\
+`A student made plans to end her life after chatting with Google’s artificial intelligence, a new lawsuit claims, amid mounting concerns about online harms to children.`\
+https://www.nytimes.com/2026/11/05/technology/ai-safety-school-chromebooks-google-lawsuit.html
+
+**What People Get Wrong About Sex Work**\
+`Paloma Karr, a sex worker and writer, tells Anna Martin, host of the “Modern Love” podcast, what she believes are the biggest misconceptions about her job.`\
+https://www.nytimes.com/video/podcasts/100000011262413/what-people-get-wrong-about-sex-work.html
+
+**Is This the End of Trumpism?**\
+`“There’s no Trumpism. There was only ever Trump.” Ezra Klein and his editor, Aaron Retica, discuss the end of the Trump era on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpism.html
+
 **Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan**\
 `Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
 https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/05/business/softbank-robotics-china-block.html
 **Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
-
-**The Onion Wants to Sponsor a Bowl Game**\
-`A satirical newspaper goes up against the sports industrial complex.`\
-https://www.nytimes.com/2026/11/05/podcasts/the-onion-sponsor-sports-bowl-game.html
-
-**Netanyahu Alleges Election Fraud in Connection With Arab Turnout**\
-`The Israeli leader and his allies are alleging that Arab voters last month stole the election. Election officials say that while foul play was being investigated, it could not have affected the result.`\
-https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html
-
-**What Democrats Plan to Do Next, and What JD Vance Says Went Wrong**\
-`Plus, how K-pop controls its stars.`\
-https://www.nytimes.com/2026/11/05/podcasts/the-headlines/democrats-midterm-elections-jd-vance-kpop.html
-
-**The Voters Who Flipped Congress**\
-`The Times’s chief political analyst breaks down the results of the midterm elections.`\
-https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flipped-congress.html
 

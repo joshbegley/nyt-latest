@@ -1,3 +1,19 @@
+**There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
+`After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
+https://www.nytimes.com/2026/11/05/style/there-was-one-thing-cancer-wouldnt-keep-him-from-doing.html
+
+**Parents Sue Google Over A.I. Safety Risks on School Chromebooks**\
+`A student made plans to end her life after chatting with Google’s artificial intelligence, a new lawsuit claims, amid mounting concerns about online harms to children.`\
+https://www.nytimes.com/2026/11/05/technology/ai-safety-school-chromebooks-google-lawsuit.html
+
+**What People Get Wrong About Sex Work**\
+`Paloma Karr, a sex worker and writer, tells Anna Martin, host of the “Modern Love” podcast, what she believes are the biggest misconceptions about her job.`\
+https://www.nytimes.com/video/podcasts/100000011262413/what-people-get-wrong-about-sex-work.html
+
+**Is This the End of Trumpism?**\
+`“There’s no Trumpism. There was only ever Trump.” Ezra Klein and his editor, Aaron Retica, discuss the end of the Trump era on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpism.html
+
 **Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan**\
 `Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
 https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
