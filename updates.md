@@ -1,3 +1,7 @@
+**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
+
 **These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
 `The president’s approval was essential to winning Republican Senate primaries. It became lethal in competitive general-election races.`\
 https://www.nytimes.com/2026/11/04/us/trump-allies-defeated-midterms.html
