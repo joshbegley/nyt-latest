@@ -1,3 +1,11 @@
+**Vance and the Art of Finger-Pointing**\
+`Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
+https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
+
+**Salads Rife With Apple, Cheesy Galette Filled With Pear**\
+`It’s savory fruit season, folks.`\
+https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-filled-with-pear.html
+
 **Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
 `One study found a 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
 https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html

@@ -1,3 +1,11 @@
+**Vance and the Art of Finger-Pointing**\
+`Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
+https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
+
+**Salads Rife With Apple, Cheesy Galette Filled With Pear**\
+`It’s savory fruit season, folks.`\
+https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-filled-with-pear.html
+
 **‘I Play Rocky’ Review: He’s a Champion**\
 `The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
 https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-hes-a-champion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-balt
 **Midterm Elections Live Updates: Democrats Expand House Majority as Lead in Mississippi Senate Race Grows**\
 `Democrats flipped three more House seats. In Mississippi, Scott Colom, the Democratic candidate for Senate, leads the Republican incumbent, Cindy Hyde-Smith, by a little more than 1,700 votes.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
-
-**Meet New York’s Happiest Silkworms**\
-`The fashion designer Grace Gui raises silkworms in Queens to embellish the garments she makes.`\
-https://www.nytimes.com/video/t-magazine/100000011240996/meet-new-yorks-happiest-silkworms.html
-
-**The Texas-size Political Tremor Rattling Big Business**\
-`The Lone Star State’s business-friendly playbook could be rewritten by the Democrats’ election sweep there.`\
-https://www.nytimes.com/2026/11/05/business/dealbook/texas-blue-wave-business-fallout.html
 
