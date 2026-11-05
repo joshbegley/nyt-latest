@@ -1,3 +1,23 @@
+**New York Times Company in Advanced Talks to Acquire Letterboxd**\
+`The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
+https://www.nytimes.com/2026/11/05/business/letterboxd-new-york-times-company.html
+
+**National Guard to Expand Patrols in Washington With Military Vehicles and Boats**\
+`The Pentagon said that the decision by Pete Hegseth to widen the patrols was made on Oct. 29, just before a landslide defeat for Republicans in the midterm elections.`\
+https://www.nytimes.com/2026/11/05/us/politics/washington-dc-national-guard-troops-hegseth-trump.html
+
+**The Evening: The Blue Wave Swells**\
+`Plus, Gov. Gavin Newsom clears California’s death row. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/11/05/briefing/elections-newsom-amodei.html
+
+**Steve Kornacki and NBC Drew Crowds as Midterms Got a Ratings Bump**\
+`More than 31 million viewers followed along with the Democrats’ big night on television, a 23 percent jump from the 2022 midterm elections.`\
+https://www.nytimes.com/2026/11/05/business/media/tv-ratings-midterms-steve-kornacki.html
+
+**Rubio Dismisses Reports He Will Leave His Jobs to Run for President**\
+`President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
+https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
+
 **Harriet Hancock, a Force in South Carolina’s Gay Rights Movement, Has Died**\
 `She became an early and leading activist for gay and lesbian rights in a time and place where that was extremely rare. She was 89.`\
 https://www.nytimes.com/2026/11/05/us/harriet-hancock-dead.html
