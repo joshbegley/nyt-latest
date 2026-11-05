@@ -1,5 +1,5 @@
 **Russell Brand Is Found Guilty of Rape and Sexual Assault**\
-`The popular conspiratorial YouTuber and former movie star faced seven charges in total. The British police have also interviewed him about two further rape accusations.`\
+`The judge said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
 
 **How Colom Changed a Long Shot in Mississippi Into a Race Too Close to Call**\
@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/11/05/crosswords/strands-sidekick-978.html
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
 https://www.nytimes.com/2026/11/05/crosswords/wordle-review-1966.html
 
-**6 Are Killed in Fire That Tore Through Brooklyn Low-Rise**\
+**6 Are Killed in Fire That Tore Through Sunset Park Low-Rise**\
 `Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
 https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
 
@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/11/05/opinion/elon-musk-midterms-trump-results.html
 `Some Democrats quickly signaled they could try to roll back the president’s tax and trade policies, ignoring his early veto threats.`\
 https://www.nytimes.com/2026/11/05/us/politics/midterms-democrats-trump-taxes-tariffs.html
 
-**Triumphal Arch Set to Win Final Approval Despite Court Challenges**\
+**Trump’s Triumphal Arch Set for Final Approval Despite Legal Challenges**\
 `President Trump’s 250-foot arch project is expected to win approval on Thursday from a federal planning board. Court action and Democrats’ upcoming control of Congress could halt the plans.`\
 https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-commission.html
 

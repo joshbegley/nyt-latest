@@ -1,4 +1,16 @@
 **Russell Brand Is Found Guilty of Rape and Sexual Assault**\
+`The judge said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
+https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**6 Are Killed in Fire That Tore Through Sunset Park Low-Rise**\
+`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
+https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
+
+**Trump’s Triumphal Arch Set for Final Approval Despite Legal Challenges**\
+`President Trump’s 250-foot arch project is expected to win approval on Thursday from a federal planning board. Court action and Democrats’ upcoming control of Congress could halt the plans.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-commission.html
+
+**Russell Brand Is Found Guilty of Rape and Sexual Assault**\
 `The popular conspiratorial YouTuber and former movie star faced seven charges in total. The British police have also interviewed him about two further rape accusations.`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
 
