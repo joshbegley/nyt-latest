@@ -1,3 +1,19 @@
+**In Alaska, Ranked-Choice Ballots Are Unlikely to Be Enough for Dan Sullivan**\
+`An analysis shows Mary Peltola is likely to keep her lead in the Senate race in part because of ballots she’d accumulate in ranked-choice tabulation from supporters of the other Dan Sullivan.`\
+https://www.nytimes.com/2026/11/05/us/alaska-ranked-choice-data-sullivan-peltola.html
+
+**Carney Asserts Canada’s Sovereignty and Vows to End Homelessness in Budget**\
+`The prime minister’s second budget repeatedly stresses diversifying Canada’s economy away from the United States.`\
+https://www.nytimes.com/2026/11/05/world/canada/carney-sovereignty-federal-budget-trade.html
+
+**Trump Tried to Undermine the Nation’s Elections. It Didn’t Work.**\
+`Millions of Americans cast their ballots on Tuesday in an election that showed the resiliency of democracy. The president said he would accept the results.`\
+https://www.nytimes.com/2026/11/05/us/election-deniers-midterms-trump.html
+
+**Read the document**\
+`A letter sent to the Public Service Commission from 24 environmental groups about data centers.`\
+https://www.nytimes.com/interactive/2026/11/05/nyregion/dpsdatacenters.html
+
 **Dozens Are Rescued in Georgia and Tennessee After Heavy Rain**\
 `More than 100 people were rescued by boat on both sides of the state line as the Toccoa River reached “catastrophic” flooding levels, officials said.`\
 https://www.nytimes.com/2026/11/05/weather/flooding-georgia-tennessee.html
