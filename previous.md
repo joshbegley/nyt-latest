@@ -1,3 +1,7 @@
+**Golden State Valkyries Reign Supreme in San Francisco, a City of Start-Ups**\
+`San Francisco hosted a victory parade on Wednesday for the new W.N.B.A. champions, a team that’s not even two years old but has made the Bay Area swoon.`\
+https://www.nytimes.com/2026/11/04/us/golden-state-valkyries-san-francisco-parade.html
+
 **The Bell Tolls for Trumpism**\
 `Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
 https://www.nytimes.com/2026/11/04/opinion/ezra-klein-podcast-aaron-retica-midterm-2026.html
@@ -94,8 +98,8 @@ https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.htm
 `Americans are ready for a different kind of politics, and that showed up in the election results, the Opinion contributing writer E.J. Dionne Jr. argues. “People are tired of the division. They’re tired of wasting time. They’re tired of stupidity and ballrooms and wars,” he says.`\
 https://www.nytimes.com/video/opinion/100000011263294/tired-of-stupidity-and-ballrooms-and-wars.html
 
-**Susan Collins Finally Falls to an Election Foe: Donald Trump**\
-`The Maine Republican survived tough cycles in the past even as the political ground shifted underneath her. But the anti-Trump fever in her state doomed her this time.`\
+**‘It Was Never Enough’: Susan Collins Couldn’t Outrun Trump**\
+`The Maine Republican survived tough cycles in the past even as the political ground shifted beneath her. But the anti-Trump fever in her state doomed her this time.`\
 https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
 
 **Trump Emerges After the Midterms: ‘Did You Guys See the Helipad?’**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-chees
 **Colom Makes Confident Speech as Vote Count Continues in Mississippi**\
 `The Democratic candidate for Senate, Scott Colom, led his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
 https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
-
-**Appeals Court Allows Mamdani to Move Forward with Pied-à-Terre Tax**\
-`The court reversed a judge’s order that had said New York erred in its rollout of the tax, granting Mayor Zohran Mamdani a victory over a key piece of his agenda.`\
-https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home-tax.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

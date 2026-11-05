@@ -1,3 +1,11 @@
+**Golden State Valkyries Reign Supreme in San Francisco, a City of Start-Ups**\
+`San Francisco hosted a victory parade on Wednesday for the new W.N.B.A. champions, a team that’s not even two years old but has made the Bay Area swoon.`\
+https://www.nytimes.com/2026/11/04/us/golden-state-valkyries-san-francisco-parade.html
+
+**‘It Was Never Enough’: Susan Collins Couldn’t Outrun Trump**\
+`The Maine Republican survived tough cycles in the past even as the political ground shifted beneath her. But the anti-Trump fever in her state doomed her this time.`\
+https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
+
 **The Bell Tolls for Trumpism**\
 `Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
 https://www.nytimes.com/2026/11/04/opinion/ezra-klein-podcast-aaron-retica-midterm-2026.html
