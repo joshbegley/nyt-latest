@@ -1,3 +1,7 @@
+**What to Know About the Bomb Threats Disrupting Flights in Europe**\
+`Several planes that were targeted on Thursday landed safely, officials said, after similar threats earlier this week. The apparent hoaxes have added to airspace anxiety in the region.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html
+
 **British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
 `The government said the risk to the British public from the disease was low. The current outbreak in Africa has spread widely across the continent, killing more than 5,000 people.`\
 https://www.nytimes.com/2026/11/05/world/europe/british-ebola-case-congo-uk.html

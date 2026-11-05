@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
 `The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
 https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
 
-**New Series of Bomb Threats Disrupts Flights in Europe**\
-`The planes that were targeted, including in Italy and France, landed safely, officials said. No explosives have been found.`\
+**What to Know About the Bomb Threats Disrupting Flights in Europe**\
+`Several planes that were targeted on Thursday landed safely, officials said, after similar threats earlier this week. The apparent hoaxes have added to airspace anxiety in the region.`\
 https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html
 
 **Everyone’s Talking About the ‘Blue Tsunami.’ In Japan, It’s Complicated.**\
