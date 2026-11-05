@@ -1,3 +1,7 @@
+**House G.O.P. Leaders Ask Nvidia’s Huang to Speak in Closed-Door Briefing**\
+`The New York Times reported last week that Mr. Huang had a close relationship with an executive that U.S. officials determined was funneling information to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/05/technology/house-republicans-nvidia-jensen-huang-china.html
+
 **Hegseth Lashes Out at Critics Calling for His Firing**\
 `In a new video, the defense secretary vowed to “finish what we have started.” Some Republicans say the Iran war was a big factor in their party’s midterm losses.`\
 https://www.nytimes.com/2026/11/05/us/politics/hegseth-video-midterms-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
 **Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
 `The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
-
-**Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
-`Gov. Gavin Newsom, who is considering a run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
-https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
 
