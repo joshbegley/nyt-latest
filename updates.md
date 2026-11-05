@@ -1,3 +1,19 @@
+**What Shaped Anthropic CEO Dario Amodei’s Thinking on A.I.**\
+`Some call him a doomer. Others see him as a responsible technologist. Here’s how the Anthropic chief executive’s thinking on artificial intelligence was shaped.`\
+https://www.nytimes.com/2026/11/05/technology/dario-amodei-anthropic-ai.html
+
+**Anna Lambe of ‘North of North’ Puts Her Best Foot Forward**\
+`Anna Lambe can still go out in relative anonymity. But with her Indigenous Netflix sitcom returning and three new movies this fall, that may change soon.`\
+https://www.nytimes.com/2026/11/05/arts/television/anna-lambe-north-of-north.html
+
+**New Science Fiction and Fantasy**\
+`“The Subtle Art of Folding Space,” “Sublimation” and “Foundling Fathers” consider identity in worlds beyond our own.`\
+https://www.nytimes.com/2026/11/05/books/review/isabel-kim-john-chu-meg-elison.html
+
+**Was $500,000 Enough for a House in the Catskills?**\
+`Vanessa Sergeon loved her Brooklyn apartment, but there wasn’t much nature nearby.`\
+https://www.nytimes.com/quiz/2026/11/05/realestate/catskills-house-hunt.html
+
 **Muslim Voters Thrilled by El-Sayed’s Victory in Michigan**\
 `Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
 https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
