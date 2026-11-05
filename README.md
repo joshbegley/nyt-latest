@@ -1,3 +1,19 @@
+**Washington Is in a New York State of Mind**\
+`The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
+https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
+
+**He Felt Stuck in New York. So He Started Walking to California.**\
+`A Bronx native who’d spent his whole life in the city left on foot in May.`\
+https://www.nytimes.com/2026/11/05/nyregion/he-felt-stuck-in-new-york-so-he-started-walking-to-california.html
+
+**NYT Spelling Bee Answers for November 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/05/crosswords/spelling-bee-forum.html
+
+**Late Night Gets Carried Away by the Blue Wave**\
+`“There’s going to be so many Republicans leaving the Capitol it will look like a reverse January 6,” Jimmy Fallon said after Democrats swept the midterm elections.`\
+https://www.nytimes.com/2026/11/05/arts/television/latenight-midterms-blue-wave.html
+
 **First, France Had Riots and Protests. Now It’s Bracing for a General Strike.**\
 `More than 220 demonstrations are expected to take place across the country on Thursday, escalating weeks of protests against the rising cost of living.`\
 https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html
@@ -177,18 +193,6 @@ https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.
 **Texas Democrats Prepare to Relearn a Skill: How to Govern**\
 `Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
 https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
-
-**The Local: The Minnesota midterms, by the numbers**\
-`Democrats’ strong showing included wins in every statewide race.`\
-https://www.nytimes.com/2026/11/04/briefing/minnesota-midterms.html
-
-**A Trump Reckoning**\
-`The results from the U.S. midterm elections could be the beginning of the end of the Trump era.`\
-https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
-
-**Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
-`Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
-https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
