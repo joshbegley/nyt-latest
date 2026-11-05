@@ -1,3 +1,7 @@
+**Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
+`One study found a 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
+https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
+
 **‘I Play Rocky’ Review: He’s a Champion**\
 `The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
 https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-hes-a-champion.html

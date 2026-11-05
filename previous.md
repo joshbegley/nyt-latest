@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements
 https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
 
 **Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
-`One study found a staggering 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
+`One study found a 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
 https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
 
 **A Historic Collapse**\
