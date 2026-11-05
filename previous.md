@@ -1,3 +1,11 @@
+**The Dark Side of K-Pop**\
+`As the popularity of the genre has surged, a dispute between a band and its label has put a spotlight on restrictive artist contracts.`\
+https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
+
+**Across the South, Black Voters Help Propel Democratic Wins**\
+`Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
+https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
+
 **Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
 `According to the best data we have, teen mental health is improving.`\
 https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
@@ -86,7 +94,7 @@ https://www.nytimes.com/2026/11/05/us/politics/the-docket-supreme-court-election
 `Russia was linked to influence campaigns targeting Democrats that gained little traction, but the Kremlin may be more focused on France’s elections in the spring.`\
 https://www.nytimes.com/2026/11/05/us/politics/midterm-elections-foreign-meddling.html
 
-**Passengers Tell of Fear After Bomb Threats Hit European Flights**\
+**Bomb Threats Disrupt European Flights and Rattle Passengers**\
 `Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland and Spain.`\
 https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/arts/design/kehinde-wiley-what-the-light-beco
 **Paintings That ‘Revolt Against the Loneliness of Caretaking’**\
 `Plus: suggestive chocolates, a restaurant with a mythical owner and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/11/05/t-magazine/victoire-bourgois-motherhood-paintings.html
-
-**Stocks Erase Post-Midterm Elections Rally, Dragged Down by Tech**\
-`The S&P 500 slumped to its worst daily decline in more than a year, dragged down by the technology sector as investors fretted about the durability of the A.I. build-out.`\
-https://www.nytimes.com/2026/11/05/business/stocks-midterms-artificial-intelligence.html
-
-**What to Know About Sexual Abuse Settlements Paid by Catholic Dioceses in the U.S.**\
-`A new agreement in New York is only the latest that Catholic dioceses have reached since the early 2000s with people who say they were victims of clergy sexual abuse.`\
-https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements-new-york.html
 

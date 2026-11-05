@@ -1,3 +1,15 @@
+**The Dark Side of K-Pop**\
+`As the popularity of the genre has surged, a dispute between a band and its label has put a spotlight on restrictive artist contracts.`\
+https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
+
+**Across the South, Black Voters Help Propel Democratic Wins**\
+`Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
+https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
+
+**Bomb Threats Disrupt European Flights and Rattle Passengers**\
+`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland and Spain.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
+
 **Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
 `According to the best data we have, teen mental health is improving.`\
 https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
