@@ -1,3 +1,7 @@
+**Read the document**\
+`A letter sent to the Public Service Commission from 24 environmental groups about data centers.`\
+https://www.nytimes.com/interactive/2026/11/05/nyregion/dpsdatacenters.html
+
 **Environmental Ballot Wins**\
 `Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
 https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
 **Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
 `After days of protests, a new wage board created by Bangladesh’s government agreed to raise garment workers’ pay by the end of the year.`\
 https://www.nytimes.com/video/world/asia/100000011264109/bangladesh-garment-workers-protest-minimum-wage.html
-
-**Iran is Reviewing ‘Concrete Proposals’ on Nuclear Program, Officials Say**\
-`Iran’s willingness to re-engage on the issue suggests that Qatar-led diplomatic efforts to avert full-blown war between the U.S. and Iran have had some success.`\
-https://www.nytimes.com/2026/11/05/world/middleeast/peace-talks-iran-united-states-qatar-nuclear-program.html
 

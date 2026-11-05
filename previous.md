@@ -1,3 +1,15 @@
+**Environmental Ballot Wins**\
+`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
+https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
+
+**Dozens Are Rescued in Georgia and Tennessee After Heavy Rain**\
+`More than 100 people were rescued by boat on both sides of the state line as the Toccoa River reached “catastrophic” flooding levels, officials said.`\
+https://www.nytimes.com/2026/11/05/weather/flooding-georgia-tennessee.html
+
+**Klaus-Michael Kühne Has Died. His Company Played a Dark Role in Nazi Germany.**\
+`As Klaus-Michael Kühne’s business became a global force in container shipping, he resisted demands to document its wartime activities. He was 89.`\
+https://www.nytimes.com/2026/11/05/world/europe/klaus-michael-kuhne-dead.html
+
 **What’s Going On in This Picture? | Nov. 9, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-picture-nov-9-2026.html
@@ -57,10 +69,6 @@ https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza
 **Russell Brand Found Guilty of Rape and Sexual Assault**\
 `Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
 https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
-
-**Environmental Ballot Wins**\
-`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
-https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
 
 **What Teenagers Are Saying About Childhood Independence**\
 `Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011264109/bangladesh-garment-work
 **Iran is Reviewing ‘Concrete Proposals’ on Nuclear Program, Officials Say**\
 `Iran’s willingness to re-engage on the issue suggests that Qatar-led diplomatic efforts to avert full-blown war between the U.S. and Iran have had some success.`\
 https://www.nytimes.com/2026/11/05/world/middleeast/peace-talks-iran-united-states-qatar-nuclear-program.html
-
-**American Is Convicted of Murder in Case That Gripped Italy**\
-`A TV program helped to identify the victims, a Russian woman and her young daughter, who were found dead in a Rome park.`\
-https://www.nytimes.com/2026/11/05/world/europe/italy-american-murder-case.html
-
-**Milton L. Williams Has Died. His Legal Career Touched Major N.Y.C. Events.**\
-`He was executive director of the inquiry into the Attica prison uprising and made a provocative decision in the Central Park jogger case. He died at 93.`\
-https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html
 

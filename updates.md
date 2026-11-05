@@ -1,3 +1,11 @@
+**Dozens Are Rescued in Georgia and Tennessee After Heavy Rain**\
+`More than 100 people were rescued by boat on both sides of the state line as the Toccoa River reached “catastrophic” flooding levels, officials said.`\
+https://www.nytimes.com/2026/11/05/weather/flooding-georgia-tennessee.html
+
+**Klaus-Michael Kühne Has Died. His Company Played a Dark Role in Nazi Germany.**\
+`As Klaus-Michael Kühne’s business became a global force in container shipping, he resisted demands to document its wartime activities. He was 89.`\
+https://www.nytimes.com/2026/11/05/world/europe/klaus-michael-kuhne-dead.html
+
 **What’s Going On in This Picture? | Nov. 9, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-picture-nov-9-2026.html
