@@ -28,7 +28,7 @@ https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-
 
 **‘I Play Rocky’ Review: He’s a Champion**\
 `The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
-https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-hes-a-champion.html
+https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
 
 **How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
 `From Miami, Flávio Bolsonaro is doubling down on unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
