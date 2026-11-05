@@ -1,3 +1,15 @@
+**Voters in 3 States Limit Trans Athletes**\
+`Voters in Arizona, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
+https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
+
+**‘The Pitt’ Resembles ‘ER’ Enough for Lawsuit to Proceed, Judge Rules**\
+`The widow of Michael Crichton has claimed that the award-winning HBO show “The Pitt” is essentially a reboot of the medical drama her husband helped create.`\
+https://www.nytimes.com/2026/11/05/arts/television/the-pitt-lawsuit-er-michael-crichton.html
+
+**Calling Trump**\
+`Plus: A critic of our Alaska Senate race story, and election night inside The Times.`\
+https://www.nytimes.com/2026/11/05/insider/calling-trump-election-night.html
+
 **Salon, a Pioneer of Digital Journalism, Shuts Down**\
 `The progressive website, founded in 1995, said its business was “no longer sustainable.”`\
 https://www.nytimes.com/2026/11/05/business/media/salon-online-magazine-shutters.html
