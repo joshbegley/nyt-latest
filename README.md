@@ -1,3 +1,11 @@
+**Archdiocese of New York Finalizes $800 Million Sex Abuse Settlement**\
+`The agreement, with 1,300 people who said they were abused by clergy and lay leaders, might help America’s foremost Roman Catholic archdiocese avoid bankruptcy.`\
+https://www.nytimes.com/2026/11/05/nyregion/archdiocese-new-york-sex-abuse-settlement-catholic-church.html
+
+**Times Reporters on Calling Trump for His Midterms Reaction**\
+`Two Times reporters were the first to get ahold of the president Tuesday evening, when a blue wave was crashing across the country.`\
+https://www.nytimes.com/2026/11/05/insider/trump-midterms-elections-results-tyler-pager-erica-green.html
+
 **Timeline: How Russell Brand Went From Comedy Star to Convicted Rapist**\
 `The comedian, actor and YouTuber has had ups and downs throughout a tumultuous career. A conviction on charges of rape and sexual assault was a new low.`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-career-timeline.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/nyregion/how-will-new-yorks-victorious-democr
 **Do You Have a Side Hustle?**\
 `The Times reports that while young people today have fewer traditional jobs, they are still working hard to earn money. Would you want a side gig too?`\
 https://www.nytimes.com/2026/11/05/learning/do-you-have-a-side-hustle.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a four-bedroom in Oyster Bay, N.Y., and a three-bedroom in Redding, Conn.`\
-https://www.nytimes.com/2026/11/05/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are on the Upper West Side, in Chelsea and Pelham Bay.`\
-https://www.nytimes.com/2026/11/05/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
 
