@@ -1,3 +1,11 @@
+**The Big-Name Democrats Whose Bets Paid Off in the Midterms**\
+`Victory has a thousand fathers. And Democrats everywhere are clamoring for a piece of this midterm triumph.`\
+https://www.nytimes.com/2026/11/05/us/midterms-democratic-endorsements.html
+
+**Canadian Officials Search for Bears After Mother and Daughter Are Killed on Hike**\
+`Wildlife officers were working to trap grizzly bears along a trail after the remains of the two hikers were found near a remote community in British Columbia this week.`\
+https://www.nytimes.com/2026/11/05/world/canada/canada-grizzly-bear-attack-mother-daughter-killed.html
+
 **Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
 `Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
 https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html

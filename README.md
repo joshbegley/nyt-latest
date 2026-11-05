@@ -1,3 +1,7 @@
+**Timeline: How Russell Brand Went From Comedy Star to Convicted Rapist**\
+`The comedian, actor and YouTuber has had ups and downs throughout a tumultuous career. A conviction on charges of rape and sexual assault was a new low.`\
+https://www.nytimes.com/2026/11/05/arts/russell-brand-career-timeline.html
+
 **The Big-Name Democrats Whose Bets Paid Off in the Midterms**\
 `Victory has a thousand fathers. And Democrats everywhere are clamoring for a piece of this midterm triumph.`\
 https://www.nytimes.com/2026/11/05/us/midterms-democratic-endorsements.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are on the Upper West Side, in Chelsea and Pelham Bay.`\
 https://www.nytimes.com/2026/11/05/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
-
-**Sherri Shepherd, in ‘Aladdin,’ Is Granting Wishes as the First Female Genie**\
-`The actress has stepped into Genie’s famous blue velvet costume, bringing a new dynamic to the role.`\
-https://www.nytimes.com/2026/11/05/theater/sherri-shepherd-genie-aladdin-broadway.html
 
