@@ -1,3 +1,27 @@
+**RFK Jr.’s Appointees to Health Task Force Included Four Allowed to Keep Drug Stocks**\
+`New members of the influential U.S. Preventive Services Task Force were given waivers to serve with financial conflicts.`\
+https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
+
+**JoAnna Mendoza Wins in Arizona, Giving Democrats a Key House Pickup**\
+`The Democrat, a retired Marine, defeated Representative Juan Ciscomani, a two-term Republican, in a highly competitive district in southeastern Arizona.`\
+https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza.html
+
+**Russell Brand Found Guilty of Rape and Sexual Assault**\
+`Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
+https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**Environmental Ballot Wins**\
+`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
+https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
+
+**What Teenagers Are Saying About Childhood Independence**\
+`Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
+https://www.nytimes.com/2026/11/05/learning/what-teenagers-are-saying-about-childhood-independence.html
+
+**Passengers Tell of Fear After Bomb Threats Hit European Flights**\
+`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland and Spain.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
+
 **‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
 `Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
 https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html

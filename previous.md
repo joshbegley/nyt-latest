@@ -1,3 +1,23 @@
+**RFK Jr.’s Appointees to Health Task Force Included Four Allowed to Keep Drug Stocks**\
+`New members of the influential U.S. Preventive Services Task Force were given waivers to serve with financial conflicts.`\
+https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
+
+**JoAnna Mendoza Wins in Arizona, Giving Democrats a Key House Pickup**\
+`The Democrat, a retired Marine, defeated Representative Juan Ciscomani, a two-term Republican, in a highly competitive district in southeastern Arizona.`\
+https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza.html
+
+**Russell Brand Found Guilty of Rape and Sexual Assault**\
+`Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
+https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**Environmental Ballot Wins**\
+`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
+https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
+
+**What Teenagers Are Saying About Childhood Independence**\
+`Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
+https://www.nytimes.com/2026/11/05/learning/what-teenagers-are-saying-about-childhood-independence.html
+
 **‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
 `Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
 https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
@@ -35,7 +55,7 @@ https://www.nytimes.com/2026/11/05/us/politics/the-docket-supreme-court-election
 https://www.nytimes.com/2026/11/05/us/politics/midterm-elections-foreign-meddling.html
 
 **Passengers Tell of Fear After Bomb Threats Hit European Flights**\
-`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland, Spain.`\
+`Passengers recounted landing at a military base and being subjected to security checks and travel delays after threats that turned out to be hoaxes affected planes in Italy, Poland and Spain.`\
 https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html
 
 **Man Who Stole the Home of a Dying Woman Pleads Guilty**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ce
 **Katherine Clark Could Be the House Majority Leader. Who Is She?**\
 `A Massachusetts liberal who has never sought the No. 1 leadership spot, Ms. Clark is known as an adept member manager.`\
 https://www.nytimes.com/2026/11/05/us/politics/katherine-clark-house-majority-leader.html
-
-**Tech Billionaires Face Tricky Political Waters After Democratic Midterm Sweep**\
-`Many donated money to President Trump’s favored causes and became his allies. Now that political alignment may be a liability.`\
-https://www.nytimes.com/2026/11/05/technology/tech-billionaires-democrats-midterms.html
-
-**They Made History as ‘Firsts.’ That’s Not What They Ran On.**\
-`Several midterm winners broke barriers, but with campaigns that focused on delivering material change to the lives of Americans.`\
-https://www.nytimes.com/2026/11/05/us/politics/midterms-identity-politics.html
-
-**Archdiocese of New York Finalizes $800 Million Sex Abuse Settlement**\
-`The agreement, with 1,300 people who said they were abused by clergy and lay leaders, might help America’s foremost Roman Catholic archdiocese avoid bankruptcy.`\
-https://www.nytimes.com/2026/11/05/nyregion/archdiocese-new-york-sex-abuse-settlement-catholic-church.html
-
-**Times Reporters on Calling Trump for His Midterms Reaction**\
-`Two Times reporters were the first to get ahold of the president Tuesday evening, when a blue wave was crashing across the country.`\
-https://www.nytimes.com/2026/11/05/insider/trump-midterms-elections-results-tyler-pager-erica-green.html
-
-**Timeline: How Russell Brand Went From Comedy Star to Convicted Rapist**\
-`The comedian, actor and YouTuber has had ups and downs throughout a tumultuous career. A conviction on charges of rape and sexual assault was a new low.`\
-https://www.nytimes.com/2026/11/05/arts/russell-brand-career-timeline.html
 

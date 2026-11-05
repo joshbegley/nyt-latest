@@ -1,3 +1,7 @@
+**Nithya Raman, Democratic Socialist, Wins Los Angeles Mayoral Race**\
+`The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
+https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
+
 **RFK Jr.’s Appointees to Health Task Force Included Four Allowed to Keep Drug Stocks**\
 `New members of the influential U.S. Preventive Services Task Force were given waivers to serve with financial conflicts.`\
 https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-sen
 **How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
 `Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
 https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
-
-**Katherine Clark Could Be the House Majority Leader. Who Is She?**\
-`A Massachusetts liberal who has never sought the No. 1 leadership spot, Ms. Clark is known as an adept member manager.`\
-https://www.nytimes.com/2026/11/05/us/politics/katherine-clark-house-majority-leader.html
 
