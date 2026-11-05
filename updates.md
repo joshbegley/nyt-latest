@@ -1,3 +1,7 @@
+**Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
+`Mr. Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
+https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
+
 **First, France Had Riots and Protests. Now It’s Bracing for a General Strike.**\
 `More than 220 demonstrations are expected to take place across the country on Thursday, escalating weeks of protests against the rising cost of living.`\
 https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html

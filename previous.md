@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/11/05/learning/from-the-front-page-trump-wins-a-sec
 https://www.nytimes.com/2026/11/04/dining/world-50-best-restaurants.html
 
 **Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
-`Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
+`Mr. Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
 https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
 
 **The Bell Tolls for Trumpism**\
