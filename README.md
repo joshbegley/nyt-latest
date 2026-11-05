@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Nov. 9, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-picture-nov-9-2026.html
+
 **3 Spots for Pizza That Break the Mold**\
 `In honor of our updated list of the best pizza in New York City — some off-the-beaten-path choices.`\
 https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/world/europe/italy-american-murder-case.html
 **Milton L. Williams Has Died. His Legal Career Touched Major N.Y.C. Events.**\
 `He was executive director of the inquiry into the Attica prison uprising and made a provocative decision in the Central Park jogger case. He died at 93.`\
 https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html
-
-**Kehinde Wiley Will Debut New Art Series**\
-`The artist, who has been facing sexual misconduct allegations, became a single father in May and  returns to the gallery world this week with a new show, “What the Light Becomes.”`\
-https://www.nytimes.com/2026/11/05/arts/design/kehinde-wiley-what-the-light-becomes.html
 
