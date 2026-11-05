@@ -1,3 +1,7 @@
+**‘Let’s Go, Bahhston’: Logan Airport Chooses Its New Voice**\
+`A pipe fitter from Massachusetts beat out thousands of other applicants to provide the voice that welcomes travelers to Boston Logan Airport.`\
+https://www.nytimes.com/2026/11/05/us/voice-of-logan-airport-boston-winner.html
+
 **Trump Says He Met With a Senior Russian Official on a Ukraine Peace Deal**\
 `President Trump said the deal “might involve all of Europe.” He indicated he had met with a Kremlin envoy whom Melania Trump hosted at the White House on Thursday.`\
 https://www.nytimes.com/2026/11/05/us/politics/trump-russian-official-ukraine-peace-deal.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-se
 **What Teenagers Are Saying About Childhood Independence**\
 `Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
 https://www.nytimes.com/2026/11/05/learning/what-teenagers-are-saying-about-childhood-independence.html
-
-**‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
-`Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
-https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
 

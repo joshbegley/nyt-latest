@@ -1,3 +1,7 @@
+**Trump Says He Met With a Senior Russian Official on a Ukraine Peace Deal**\
+`President Trump said the deal “might involve all of Europe.” He indicated he had met with a Kremlin envoy whom Melania Trump hosted at the White House on Thursday.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-russian-official-ukraine-peace-deal.html
+
 **House G.O.P. Leaders Ask Nvidia’s Huang to Speak in Closed-Door Briefing**\
 `The New York Times reported last week that Mr. Huang had a close relationship with an executive that U.S. officials determined was funneling information to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/05/technology/house-republicans-nvidia-jensen-huang-china.html

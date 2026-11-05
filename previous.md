@@ -1,3 +1,7 @@
+**Trump Says He Met With a Senior Russian Official on a Ukraine Peace Deal**\
+`President Trump said the deal “might involve all of Europe.” He indicated he had met with a Kremlin envoy whom Melania Trump hosted at the White House on Thursday.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-russian-official-ukraine-peace-deal.html
+
 **House G.O.P. Leaders Ask Nvidia’s Huang to Speak in Closed-Door Briefing**\
 `The New York Times reported last week that Mr. Huang had a close relationship with an executive that U.S. officials determined was funneling information to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/05/technology/house-republicans-nvidia-jensen-huang-china.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/learning/what-teenagers-are-saying-about-chil
 **‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
 `Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
 https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
-
-**Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
-`The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
-https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
 
