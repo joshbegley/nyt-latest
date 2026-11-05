@@ -1,3 +1,11 @@
+**RFK Jr.’s Appointees to Health Task Force Included Four Allowed to Keep Drug Stocks**\
+`New members of the influential U.S. Preventive Services Task Force were given waivers to serve with financial conflicts.`\
+https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
+
+**JoAnna Mendoza Wins in Arizona, Giving Democrats a Key House Pickup**\
+`The Democrat, a retired Marine, defeated Representative Juan Ciscomani, a two-term Republican, in a highly competitive district in southeastern Arizona.`\
+https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza.html
+
 **Russell Brand Found Guilty of Rape and Sexual Assault**\
 `Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
 https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ce
 **Katherine Clark Could Be the House Majority Leader. Who Is She?**\
 `A Massachusetts liberal who has never sought the No. 1 leadership spot, Ms. Clark is known as an adept member manager.`\
 https://www.nytimes.com/2026/11/05/us/politics/katherine-clark-house-majority-leader.html
-
-**Tech Billionaires Face Tricky Political Waters After Democratic Midterm Sweep**\
-`Many donated money to President Trump’s favored causes and became his allies. Now that political alignment may be a liability.`\
-https://www.nytimes.com/2026/11/05/technology/tech-billionaires-democrats-midterms.html
-
-**They Made History as ‘Firsts.’ That’s Not What They Ran On.**\
-`Several midterm winners broke barriers, but with campaigns that focused on delivering material change to the lives of Americans.`\
-https://www.nytimes.com/2026/11/05/us/politics/midterms-identity-politics.html
 
