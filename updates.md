@@ -1,3 +1,7 @@
+**British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
+`The government said the risk to the British public from the disease was low. The current outbreak in Africa has spread widely across the continent, killing more than 5,000 people.`\
+https://www.nytimes.com/2026/11/05/world/europe/british-ebola-case-congo-uk.html
+
 **How Trump Is Reacting to the Midterm Results**\
 `In the days after Republicans suffered massive midterm election defeats, President Trump appeared unmoved. The New York Times’s White House correspondent Maggie Haberman explains how Trump’s public demeanor compares with what he has shared behind closed doors about voters’ frustration with some of his policies.`\
 https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-to-the-midterm-results.html
