@@ -1,3 +1,11 @@
+**Cait Conley Flips N.Y. Swing Seat for Democrats, Ousting Mike Lawler**\
+`A ballot-counting issue in the key suburban district delayed the official result, but even before the race was called, Mr. Lawler conceded to Ms. Conley.`\
+https://www.nytimes.com/2026/11/05/nyregion/new-york-house-17-lawler-conley.html
+
+**Voters in 3 States Limit Trans Athletes**\
+`Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
+https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
+
 **A Critic of Our Alaska Senate Story Sounds Off**\
 `In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
 https://www.nytimes.com/video/insider/100000011266420/a-critic-of-our-alaska-senate-story-sounds-off.html

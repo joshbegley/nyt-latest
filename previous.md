@@ -1,3 +1,7 @@
+**Cait Conley Flips N.Y. Swing Seat for Democrats, Ousting Mike Lawler**\
+`A ballot-counting issue in the key suburban district delayed the official result, but even before the race was called, Mr. Lawler conceded to Ms. Conley.`\
+https://www.nytimes.com/2026/11/05/nyregion/new-york-house-17-lawler-conley.html
+
 **A Critic of Our Alaska Senate Story Sounds Off**\
 `In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
 https://www.nytimes.com/video/insider/100000011266420/a-critic-of-our-alaska-senate-story-sounds-off.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senat
 https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
 
 **Voters in 3 States Limit Trans Athletes**\
-`Voters in Arizona, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
+`Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
 https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
 
 **‘The Pitt’ Resembles ‘ER’ Enough for Lawsuit to Proceed, Judge Rules**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.ht
 **How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
 `A reissue of “The Black Parade” topped Olivia Rodrigo and Morgan Wallen for the No. 1 album in the country this week.`\
 https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-no-1-album.html
-
-**Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
-`The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
-https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
 
