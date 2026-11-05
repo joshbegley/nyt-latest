@@ -1,3 +1,15 @@
+**The Bell Tolls for Trumpism**\
+`Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
+https://www.nytimes.com/2026/11/04/opinion/ezra-klein-podcast-aaron-retica-midterm-2026.html
+
+**Hispanic Voter Trends**\
+`Our election data reporter Caroline Soler outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
+https://www.nytimes.com/video/us/elections/100000011262277/hispanic-voter-trends.html
+
+**Abdul El-Sayed’s Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
+`Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
+https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
+
 **After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
 `A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
 https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
