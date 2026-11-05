@@ -1,3 +1,19 @@
+**A Historic Collapse**\
+`We look at more from the midterms.`\
+https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
+
+**Chicken Legs Meet Hot Honey Meets Carrots Meet Sheet Pan**\
+`An easy weeknight meal that transcends the sum of its parts.`\
+https://www.nytimes.com/2026/11/05/dining/chicken-legs-meet-hot-honey-meets-carrots-meet-sheet-pan.html
+
+**Our World Has Become Ultraprocessed. We Can Change That.**\
+`The question is not whether we choose to plug in but rather how intentional we are about unplugging.`\
+https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.html
+
+**Why the Best Hugs Are So Memorable, According to a New Study**\
+`How you remember an embrace could correlate with your attachment style, a new study says.`\
+https://www.nytimes.com/2026/11/05/well/hugs-attachment-style-touch-survey.html
+
 **A Critic of Our Alaska Senate Story Weighs In**\
 `In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
 https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/trump-iran-war-midterm-elections.
 **Nara, Dreaming of a Lost Girlhood, Finds New Freedom in Color**\
 `In interviews in New York and Washington, on the eve of two major shows, he discloses the effect of glaucoma on his work.`\
 https://www.nytimes.com/2026/11/05/arts/design/yoshitomo-nara-david-zwirner-hirshhorn-museum.html
-
-**‘Florida Is the Last Main Anchor Standing’ for Republicans**\
-`The third most populous state withstood a national Democratic surge on Tuesday, even as Republicans amassed deep losses in Texas and across the electoral map.`\
-https://www.nytimes.com/2026/11/05/us/florida-republicans-midterms.html
-
-**To Sweep Texas, Democrats Built ‘a Machine’ With Every Piece in Place**\
-`Years of organizing met a moment of voter discontent, as James Talarico and Gina Hinojosa offered Texans a message of economic relief and political change.`\
-https://www.nytimes.com/2026/11/05/us/texas-democrats-statewide-sweep.html
-
-**Amazon Kindle Colorsoft Review: The Single-Task Gadget of Our Times**\
-`E-book reader sales are soaring as consumers seek technology offering respite from social media and artificial intelligence hype. It’s even better in color.`\
-https://www.nytimes.com/2026/11/05/technology/personaltech/amazon-kindle-colorsoft-review.html
-
-**Moebius Helped Shape the Sci-Fi Worlds We Know Today**\
-`The work of the French artist Moebius made him a foundational influence on the fantasy worlds of the 20th century.`\
-https://www.nytimes.com/interactive/2026/11/05/books/moebius-comic-books-fantasy-influence.html
 
