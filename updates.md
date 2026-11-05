@@ -1,3 +1,23 @@
+**Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
+`According to the best data we have, teen mental health is improving.`\
+https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
+
+**I’m a Republican. We Have Let Too Many Weirdos Into Our Party.**\
+`The G.O.P. cannot allow itself to be defined by its radicals.`\
+https://www.nytimes.com/2026/11/05/opinion/republicans-jd-vance-weirdo-right.html
+
+**Strand Bookstore to Pay U.S. $1.5 Million Over Pandemic-Relief Loan**\
+`The store agreed to settle a claim that it was not entitled to the loan because its owner is married to a U.S. senator.`\
+https://www.nytimes.com/2026/11/05/nyregion/strand-bookstore-pay-pandemic-loan-nyc.html
+
+**This Is What the Big Tent Looks Like**\
+`On “The Ezra Klein Show,” Ezra Klein argues that “the big tent is real” and breaks down Democratic showings in North Carolina, Georgia, Kansas and Mississippi.`\
+https://www.nytimes.com/video/opinion/100000011258482/this-is-what-the-big-tent-looks-like.html
+
+**FBI Agent Struck Pedestrian in Brooklyn and Drove Off, U.S. Says**\
+`The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
+https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
+
 **F.B.I. Agent Hit Pedestrian and Failed to Call for Help, U.S. Says**\
 `The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
 https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
