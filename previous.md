@@ -1,3 +1,7 @@
+**Salon, a Pioneer of Digital Journalism, Shuts Down**\
+`The progressive website, founded in 1995, said its business was “no longer sustainable.”`\
+https://www.nytimes.com/2026/11/05/business/media/salon-online-magazine-shutters.html
+
 **For Democrats, Midterm Wins Bring New Challenge**\
 `The Democrats’ sweeping midterm victory put the party in control of Congress, but that did little to settle the debate over the best ideological path forward. Lisa Lerer, a national political correspondent, explains where moderates and progressives agree, including affordability and oversight, and where they remain divided.`\
 https://www.nytimes.com/video/us/politics/100000011261785/for-democrats-midterm-wins-bring-new-challenge.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/forstag-flint-montana-first-house-district
 **There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
 `After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
 https://www.nytimes.com/2026/11/05/style/samuel-braslow-cancer-kalie-ann-nassoura-wedding.html
-
-**Parents Sue Google Over A.I. Safety Risks on School Chromebooks**\
-`A student made plans to end her life after chatting with Google’s artificial intelligence, a new lawsuit claims, amid mounting concerns about online harms to children.`\
-https://www.nytimes.com/2026/11/05/technology/ai-safety-school-chromebooks-google-lawsuit.html
 

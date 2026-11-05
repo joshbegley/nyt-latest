@@ -1,3 +1,11 @@
+**‘The Pitt’ Resembles ‘ER’ Enough for Lawsuit to Proceed, Judge Rules**\
+`The widow of Michael Crichton has claimed that the award-winning HBO show “The Pitt” is essentially a reboot of the medical drama her husband helped create.`\
+https://www.nytimes.com/2026/11/05/arts/television/the-pitt-lawsuit-er-michael-crichton.html
+
+**Calling Trump**\
+`Plus: A critic of our Alaska Senate race story, and election night inside The Times.`\
+https://www.nytimes.com/2026/11/05/insider/calling-trump-election-night.html
+
 **Salon, a Pioneer of Digital Journalism, Shuts Down**\
 `The progressive website, founded in 1995, said its business was “no longer sustainable.”`\
 https://www.nytimes.com/2026/11/05/business/media/salon-online-magazine-shutters.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/us/virginia-house-1-wittman-taylor.html
 **Virginia House Republican Who Had Seemed Vulnerable Fends Off Democrat**\
 `Representative John McGuire, a Republican, held off a challenge from former Representative Tom Perriello, a Democrat.`\
 https://www.nytimes.com/2026/11/05/us/virginia-house-5-mcguire-perriello.html
-
-**Sam Forstag, a Smoke Jumper, Flips a House Seat for Democrats in Montana**\
-`The union leader’s victory gives his party its first congressional seat in the state in more than 30 years.`\
-https://www.nytimes.com/2026/11/05/us/forstag-flint-montana-first-house-district.html
-
-**There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
-`After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
-https://www.nytimes.com/2026/11/05/style/samuel-braslow-cancer-kalie-ann-nassoura-wedding.html
 
