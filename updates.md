@@ -1,3 +1,31 @@
+**Milton L. Williams Has Died. His Legal Career Touched Major N.Y.C. Events.**\
+`He was executive director of the inquiry into the Attica prison uprising and made a provocative decision in the Central Park jogger case. He died at 93.`\
+https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html
+
+**Kehinde Wiley Will Debut New Art Series**\
+`The artist, who has been facing sexual misconduct allegations, became a single father in May and  returns to the gallery world this week with a new show, “What the Light Becomes.”`\
+https://www.nytimes.com/2026/11/05/arts/design/kehinde-wiley-what-the-light-becomes.html
+
+**Paintings That ‘Revolt Against the Loneliness of Caretaking’**\
+`Plus: suggestive chocolates, a restaurant with a mythical owner and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/11/05/t-magazine/victoire-bourgois-motherhood-paintings.html
+
+**Stocks Erase Post-Midterm Elections Rally, Dragged Down by Tech**\
+`The S&P 500 slumped to its worst daily decline in more than a year, dragged down by the technology sector as investors fretted about the durability of the A.I. build-out.`\
+https://www.nytimes.com/2026/11/05/business/stocks-midterms-artificial-intelligence.html
+
+**What to Know About Sexual Abuse Settlements Paid by Catholic Dioceses in the U.S.**\
+`A new agreement in New York is only the latest that Catholic dioceses have reached since the early 2000s with people who say they were victims of clergy sexual abuse.`\
+https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements-new-york.html
+
+**What to Know About the Bomb Threats Disrupting Flights in Europe**\
+`More than a dozen planes that were targeted on Thursday landed safely, officials said, after similar threats earlier this week. The hoaxes have added to airspace anxiety in the region.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html
+
+**6 Killed in Sunset Park Blaze: NYC’s Deadliest Fire This Year**\
+`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park, Brooklyn.`\
+https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
+
 **Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
 `A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
 https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
