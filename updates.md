@@ -1,3 +1,7 @@
+**50 Best Restaurants in the World Announced for 2026**\
+`A live-fire luminary in the Basque region takes the top spot, while only one U.S. restaurant is recognized.`\
+https://www.nytimes.com/2026/11/04/dining/world-50-best-restaurants.html
+
 **Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
 `Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
 https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
