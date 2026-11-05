@@ -1,3 +1,19 @@
+**First, France Had Riots and Protests. Now It’s Bracing for a General Strike.**\
+`More than 220 demonstrations are expected to take place across the country on Thursday, escalating weeks of protests against the rising cost of living.`\
+https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html
+
+**The New Zealand Election That Could ‘Flip the Table’**\
+`Support for the major parties — led by two men called Chris — is cratering, thanks to dissatisfaction with the economy. Minor parties stand to benefit from a desire among voters for change.`\
+https://www.nytimes.com/2026/11/05/world/australia/new-zealand-election-polls.html
+
+**Voters Are Turning Out in Droves to Cut Autocrats Down to Size**\
+`In country after country stricken by democratic decay, overwhelming turnout in elections is making a difference.`\
+https://www.nytimes.com/2026/11/05/world/europe/voters-are-turning-out-in-droves-to-cut-autocrats-down-to-size.html
+
+**From the Front Page: Trump Wins a Second Term on Nov. 5, 2024**\
+`Donald J. Trump was elected the 47th president of the United States, becoming the first president since Grover Cleveland to win nonconsecutive terms.`\
+https://www.nytimes.com/2026/11/05/learning/from-the-front-page-trump-wins-a-second-term-on-nov-5-2024.html
+
 **50 Best Restaurants in the World Announced for 2026**\
 `A live-fire luminary in the Basque region takes the top spot, while only one U.S. restaurant is recognized.`\
 https://www.nytimes.com/2026/11/04/dining/world-50-best-restaurants.html
