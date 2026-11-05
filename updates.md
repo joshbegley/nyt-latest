@@ -1,3 +1,11 @@
+**A Critic of Our Alaska Senate Story Sounds Off**\
+`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
+https://www.nytimes.com/video/insider/100000011266420/a-critic-of-our-alaska-senate-story-sounds-off.html
+
+**New York Times Company in Advanced Talks to Acquire Letterboxd**\
+`The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
+https://www.nytimes.com/2026/11/05/business/media/letterboxd-new-york-times-company.html
+
 **How British Law Informed Russell Brand Trial Coverage**\
 `British criminal trials like Russell Brand’s have rules around what can be reported.`\
 https://www.nytimes.com/2026/11/05/insider/russell-brand-trial-british-law.html
