@@ -1,3 +1,7 @@
+**Across the South, Black Voters Help Propel Democratic Wins**\
+`Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
+https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
+
 **Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
 `According to the best data we have, teen mental health is improving.`\
 https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/t-magazine/victoire-bourgois-motherhood-paint
 **Stocks Erase Post-Midterm Elections Rally, Dragged Down by Tech**\
 `The S&P 500 slumped to its worst daily decline in more than a year, dragged down by the technology sector as investors fretted about the durability of the A.I. build-out.`\
 https://www.nytimes.com/2026/11/05/business/stocks-midterms-artificial-intelligence.html
-
-**What to Know About Sexual Abuse Settlements Paid by Catholic Dioceses in the U.S.**\
-`A new agreement in New York is only the latest that Catholic dioceses have reached since the early 2000s with people who say they were victims of clergy sexual abuse.`\
-https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements-new-york.html
 
