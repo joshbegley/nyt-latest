@@ -1,3 +1,19 @@
+**Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
+`The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
+https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
+
+**Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
+`Gov. Gavin Newsom, in one of his last acts, commuted the sentences of all prisoners with death sentences, calling capital punishment morally objectionable. That’s about a quarter of death sentences nationwide.`\
+https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
+
+**How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
+`A reissue of “The Black Parade” topped Olivia Rodrigo and Morgan Wallen for the No. 1 album in the country this week.`\
+https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-no-1-album.html
+
+**Justice Dept. Steps Up Investigation of Supreme Court Abortion Decision Leak**\
+`Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
+https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
+
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
 `The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html

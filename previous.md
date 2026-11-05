@@ -1,3 +1,15 @@
+**Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
+`The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
+https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
+
+**Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
+`Gov. Gavin Newsom, in one of his last acts, commuted the sentences of all prisoners with death sentences, calling capital punishment morally objectionable. That’s about a quarter of death sentences nationwide.`\
+https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
+
+**How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
+`A reissue of “The Black Parade” topped Olivia Rodrigo and Morgan Wallen for the No. 1 album in the country this week.`\
+https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-no-1-album.html
+
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
 `The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
@@ -26,7 +38,7 @@ https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.
 `In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
 https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
 
-**Justice Dept. Steps Up Criminal Investigation of Supreme Court Abortion Leak**\
+**Justice Dept. Steps Up Investigation of Supreme Court Abortion Decision Leak**\
 `Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
 https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/05/arts/russell-brand-career-timeline.html
 **The Big-Name Democrats Whose Bets Paid Off in the Midterms**\
 `Victory has a thousand fathers. And Democrats everywhere are clamoring for a piece of this midterm triumph.`\
 https://www.nytimes.com/2026/11/05/us/midterms-democratic-endorsements.html
-
-**Canadian Officials Search for Bears After Mother and Daughter Are Killed on Hike**\
-`Wildlife officers were working to trap grizzly bears along a trail after the remains of the two hikers were found near a remote community in British Columbia this week.`\
-https://www.nytimes.com/2026/11/05/world/canada/canada-grizzly-bear-attack-mother-daughter-killed.html
-
-**Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
-`Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
-https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html
-
-**Protesters Fill Streets Across France During Nationwide Strike**\
-`Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
-https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html
 
