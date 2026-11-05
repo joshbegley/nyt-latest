@@ -1,3 +1,7 @@
+**High Gas Prices Boost Sales of Hybrids for Toyota, Sending Its Stock Soaring**\
+`Toyota is cashing in on a U.S. hybrid boom as electric-vehicle demand slows, but shifting political tides in Washington could jeopardize its edge.`\
+https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
+
 **Change Is Coming**\
 `The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
 https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
