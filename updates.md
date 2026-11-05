@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
+`Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by a little more than 1,100 votes. It could be days or weeks until either contest is decided.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
 **Milton L. Williams Has Died. His Legal Career Touched Major N.Y.C. Events.**\
 `He was executive director of the inquiry into the Attica prison uprising and made a provocative decision in the Central Park jogger case. He died at 93.`\
 https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html

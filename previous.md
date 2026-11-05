@@ -123,7 +123,7 @@ https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-
 https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
 
 **Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
-`Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by 1,138 votes. It could be days or weeks until either contest is decided.`\
+`Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by a little more than 1,100 votes. It could be days or weeks until either contest is decided.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
 
 **Meet New York’s Happiest Silkworms**\
