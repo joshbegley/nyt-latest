@@ -1,3 +1,7 @@
+**Here’s Who Is Meeting Israel’s President to Recommend a Prime Minister**\
+`Israeli party leaders are in discussions with President Isaac Herzog over who should get the first chance to form a governing coalition.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/israel-herzog-prime-minister.html
+
 **Washington Is in a New York State of Mind**\
 `The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
 https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/politics/100000011262701/trump-iran-war-midterm
 **Medical Professionals Are Among the Winners of the Midterms**\
 `About a half-dozen Democratic doctors and nurses ran for Congress. Some made opposition to Health Secretary Robert F. Kennedy Jr. central to their campaigns.`\
 https://www.nytimes.com/2026/11/04/us/politics/midterm-elections-doctors-nurses.html
-
-**Texas Democrats Prepare to Relearn a Skill: How to Govern**\
-`Democrats will have a real chance to govern in Texas for the first time in about 25 years, and they’re facing pressure to deliver.`\
-https://www.nytimes.com/2026/11/04/us/texas-democrats-governing.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
