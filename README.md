@@ -1,3 +1,7 @@
+**What to Know About Sexual Abuse Settlements Paid by Catholic Dioceses in the U.S.**\
+`A new agreement in New York is only the latest that Catholic dioceses have reached since the early 2000s with people who say they were victims of clergy sexual abuse.`\
+https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements-new-york.html
+
 **Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
 `A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
 https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/midterms-democrats-trump-taxes-ta
 **Trump’s Triumphal Arch Set for Final Approval Despite Legal Challenges**\
 `President Trump’s 250-foot arch project is expected to win approval on Thursday from a federal planning board. Court action and Democrats’ upcoming control of Congress could halt the plans.`\
 https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-commission.html
-
-**Corrections: Nov. 5, 2026**\
-`Corrections that appeared in print on Thursday, Nov. 5, 2026.`\
-https://www.nytimes.com/2026/11/05/pageoneplus/corrections-nov-5-2026.html
 
