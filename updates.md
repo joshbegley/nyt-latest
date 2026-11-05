@@ -1,3 +1,7 @@
+**A Critic of Our Alaska Senate Story Weighs In**\
+`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
+https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
+
 **How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
 `Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
 https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
