@@ -1,5 +1,9 @@
 **Moderate Democrats Increase Their Numbers, and Their Clout**\
 `Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
+https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-midterms.html
+
+**Moderate Democrats Increase Their Numbers, and Their Clout**\
+`Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
 https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-increased-clout.html
 
 **‘I Have Seen the Enemy, and It Is Us’: Inside Team Trump’s Historic Collapse**\
