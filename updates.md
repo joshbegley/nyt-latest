@@ -1,3 +1,7 @@
+**Democratic Health Professionals Win Seats in Congress**\
+`Some Democratic doctors and nurses ran and won congressional seats by centering their campaigns on opposing Health Secretary Robert F. Kennedy Jr.`\
+https://www.nytimes.com/video/us/politics/100000011264106/midterm-elections-doctors-nurses.html
+
 **Muslim Voters Thrilled By El-Sayed’s Victory in Michigan**\
 `Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
 https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
