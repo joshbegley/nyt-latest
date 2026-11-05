@@ -1,3 +1,11 @@
+**Tech Billionaires Face Tricky Political Waters After Democratic Midterm Sweep**\
+`Many donated money to President Trump’s favored causes and became his allies. Now that political alignment may be a liability.`\
+https://www.nytimes.com/2026/11/05/technology/tech-billionaires-democrats-midterms.html
+
+**They Made History as ‘Firsts.’ That’s Not What They Ran On.**\
+`Several midterm winners broke barriers, but with campaigns that focused on delivering material change to the lives of Americans.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-identity-politics.html
+
 **Archdiocese of New York Finalizes $800 Million Sex Abuse Settlement**\
 `The agreement, with 1,300 people who said they were abused by clergy and lay leaders, might help America’s foremost Roman Catholic archdiocese avoid bankruptcy.`\
 https://www.nytimes.com/2026/11/05/nyregion/archdiocese-new-york-sex-abuse-settlement-catholic-church.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/magazine/on-tilt-gambling-loss.html
 **High-End Homes Keep Selling Despite the New Pied-a-Terre Tax**\
 `When New York lawmakers passed a tax on $5 million second homes, opponents worried wealthy buyers would flee. So far, that hasn’t happened.`\
 https://www.nytimes.com/2026/11/05/realestate/high-end-homes-pied-a-terre-tax.html
-
-**How Will New York’s Victorious Democrats Govern?**\
-`Gov. Kathy Hochul will again face pressure for a millionaires’ tax, and New Yorkers are wondering if the city will gain from having one of its own as speaker of the House.`\
-https://www.nytimes.com/2026/11/05/nyregion/how-will-new-yorks-victorious-democrats-govern.html
-
-**Do You Have a Side Hustle?**\
-`The Times reports that while young people today have fewer traditional jobs, they are still working hard to earn money. Would you want a side gig too?`\
-https://www.nytimes.com/2026/11/05/learning/do-you-have-a-side-hustle.html
 
