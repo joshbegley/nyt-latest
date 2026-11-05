@@ -1,3 +1,7 @@
+**F.B.I. Agent Hit Pedestrian and Failed to Call for Help, U.S. Says**\
+`The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
+https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
+
 **What’s Going On in This Graph? | Nov. 18, 2026**\
 `How much does it cost to drive 100 miles?`\
 https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-graph-nov-18-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/dining/chicken-legs-meet-hot-honey-meets-carr
 **Our World Has Become Ultraprocessed. We Can Change That.**\
 `The question is not whether we choose to plug in but rather how intentional we are about unplugging.`\
 https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.html
-
-**Why the Best Hugs Are So Memorable, According to a New Study**\
-`How you remember an embrace could correlate with your attachment style, a new study says.`\
-https://www.nytimes.com/2026/11/05/well/hugs-attachment-style-touch-survey.html
 

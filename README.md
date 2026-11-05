@@ -1,3 +1,7 @@
+**This Is What the Big Tent Looks Like**\
+`On “The Ezra Klein Show,” Ezra Klein argues that “the big tent is real” and breaks down Democratic showings in North Carolina, Georgia, Kansas and Mississippi.`\
+https://www.nytimes.com/video/opinion/100000011258482/this-is-what-the-big-tent-looks-like.html
+
 **F.B.I. Agent Hit Pedestrian and Failed to Call for Help, U.S. Says**\
 `The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
 https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.htm
 **A Historic Collapse**\
 `We look at more from the midterms.`\
 https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
-
-**Chicken Legs Meet Hot Honey Meets Carrots Meet Sheet Pan**\
-`An easy weeknight meal that transcends the sum of its parts.`\
-https://www.nytimes.com/2026/11/05/dining/chicken-legs-meet-hot-honey-meets-carrots-meet-sheet-pan.html
-
-**Our World Has Become Ultraprocessed. We Can Change That.**\
-`The question is not whether we choose to plug in but rather how intentional we are about unplugging.`\
-https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.html
 
