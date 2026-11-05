@@ -1,3 +1,7 @@
+**The Bell Tolls for Trumpism**\
+`Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
+https://www.nytimes.com/video/opinion/100000011258478/the-bell-tolls-for-trumpism.html
+
 **NYT Crossword Answers for Nov. 5, 2026**\
 `Need help interpreting David P. Williams’s puzzle?`\
 https://www.nytimes.com/2026/11/04/crosswords/daily-puzzle-2026-11-05.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/opinion/trump-democrats-midterms.html
 **We Banned Bots From Our Dating Apps. This Is Why.**\
 `A.I. agents can make things easier. That’s not always a good thing.`\
 https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
-
-**Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
-`The race for U.S. Senate is close in Mississippi, which does not allow for vote recounts in statewide elections.`\
-https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 5, 2026**\
+`Need help interpreting David P. Williams’s puzzle?`\
+https://www.nytimes.com/2026/11/04/crosswords/daily-puzzle-2026-11-05.html
+
+**‘The Lowdown’ Season 2 Episode 5 Recap: Have Gun, Will Gavel**\
+`Lee calls in a big favor and meets a new political player.`\
+https://www.nytimes.com/2026/11/04/arts/television/the-lowdown-season-2-episode-5-recap.html
+
 **Inside Team Trump’s Historic Collapse in the 2026 Midterm Elections**\
 `How an unpopular president and an unpopular war provided an opening for Democrats to make sweeping gains in the midterms.`\
 https://www.nytimes.com/2026/11/04/us/politics/trump-midterms-losses-republicans.html

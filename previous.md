@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 5, 2026**\
+`Need help interpreting David P. Williams’s puzzle?`\
+https://www.nytimes.com/2026/11/04/crosswords/daily-puzzle-2026-11-05.html
+
+**‘The Lowdown’ Season 2 Episode 5 Recap: Have Gun, Will Gavel**\
+`Lee calls in a big favor and meets a new political player.`\
+https://www.nytimes.com/2026/11/04/arts/television/the-lowdown-season-2-episode-5-recap.html
+
 **Moderate Democrats Increase Their Numbers, and Their Clout**\
 `Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
 https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-midterms.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/04/opinion/dating-apps-ai.html
 **Mississippi’s Senate Race Is Close. The State Has No Vote Recount Law.**\
 `The race for U.S. Senate is close in Mississippi, which does not allow for vote recounts in statewide elections.`\
 https://www.nytimes.com/2026/11/04/us/mississippi-senate-election-recount-law.html
-
-**How Talarico Plans to Tackle Gas Prices and the Iran War**\
-`In an Oct. 19 interview with “The Daily,” James Talarico, who has just won the U.S. Senate seat in Texas, said that the legislative branch “has to reassert” its authority regarding the war in Iran, and shared what he would do to end the conflict and lower gas prices.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011262704/how-talarico-plans-to-tackle-gas-prices-and-the-iran-war.html
-
-**Vegan Maple Ginger Pie**\
-`Like a ginger ale at 30,000 feet, this zippy pie might just be the thing to settle your stomach after a Thanksgiving feast.`\
-https://www.nytimes.com/video/dining/100000011223069/vegan-maple-ginger-pie.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
