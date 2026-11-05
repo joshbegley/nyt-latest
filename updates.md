@@ -1,3 +1,15 @@
+**Justice Dept. Steps Up Criminal Investigation of Supreme Court Abortion Leak**\
+`Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
+https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
+
+**How Democrats Won Across the South**\
+`They won Senate races in North Carolina, South Carolina and Georgia, with a Mississippi race still too close to call. Their wins lifted down-ballot candidates too.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-southern-democrats.html
+
+**3 Are Injured in Shooting at Des Moines Post Office**\
+`A woman who works at the post office was taken into custody outside the building after the building, the police said.`\
+https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
+
 **Vance and the Art of Finger-Pointing**\
 `Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
 https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
