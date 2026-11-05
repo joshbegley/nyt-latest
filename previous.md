@@ -1,3 +1,15 @@
+**Bird Flu Death in Washington State Renews Concern Over the Virus**\
+`The death follows reports of infections in cattle on dozens of American farms across the country over the past month and a worrying outbreak in mink.`\
+https://www.nytimes.com/2026/11/05/health/bird-flu-death-us.html
+
+**Google, Meta and TikTok Sue California Over Ban on Features for Kids**\
+`Separate lawsuits were filed by Google, Meta and TikTok, which have been battling a flood of claims that their services are addictive.`\
+https://www.nytimes.com/2026/11/05/technology/social-media-child-safety-california.html
+
+**The Many Meanings of James Talarico’s Winning Cowboy Boots**\
+`Obviously, the Texas election was about more than shoes. But the symbolism mattered.`\
+https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senate-race.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-
 **‘I Play Rocky’ Review: He’s a Champion**\
 `The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
 https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
-
-**How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
-`From Miami, Flávio Bolsonaro is making unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
-https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html
-
-**Sex Work Made Me See Men Differently**\
-`Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how working in a legal brothel in Nevada changed her understanding of men.`\
-https://www.nytimes.com/video/podcasts/100000011262384/sex-work-made-me-see-men-differently.html
-
-**How Sex Workers Think About Cheating**\
-`Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how her colleagues at a legal brothel in Nevada thought about clients who were married or otherwise partnered, and how her own thinking about infidelity has shifted over time.`\
-https://www.nytimes.com/video/podcasts/100000011262394/how-sex-workers-think-about-cheating.html
 

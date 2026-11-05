@@ -1,3 +1,15 @@
+**Bird Flu Death in Washington State Renews Concern Over the Virus**\
+`The death follows reports of infections in cattle on dozens of American farms across the country over the past month and a worrying outbreak in mink.`\
+https://www.nytimes.com/2026/11/05/health/bird-flu-death-us.html
+
+**Google, Meta and TikTok Sue California Over Ban on Features for Kids**\
+`Separate lawsuits were filed by Google, Meta and TikTok, which have been battling a flood of claims that their services are addictive.`\
+https://www.nytimes.com/2026/11/05/technology/social-media-child-safety-california.html
+
+**The Many Meanings of James Talarico’s Winning Cowboy Boots**\
+`Obviously, the Texas election was about more than shoes. But the symbolism mattered.`\
+https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senate-race.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
