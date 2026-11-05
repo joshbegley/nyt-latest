@@ -1,3 +1,19 @@
+**First, France Had Riots and Protests. Now It’s Bracing for a General Strike.**\
+`More than 220 demonstrations are expected to take place across the country on Thursday, escalating weeks of protests against the rising cost of living.`\
+https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html
+
+**The New Zealand Election That Could ‘Flip the Table’**\
+`Support for the major parties — led by two men called Chris — is cratering, thanks to dissatisfaction with the economy. Minor parties stand to benefit from a desire among voters for change.`\
+https://www.nytimes.com/2026/11/05/world/australia/new-zealand-election-polls.html
+
+**Voters Are Turning Out in Droves to Cut Autocrats Down to Size**\
+`In country after country stricken by democratic decay, overwhelming turnout in elections is making a difference.`\
+https://www.nytimes.com/2026/11/05/world/europe/voters-are-turning-out-in-droves-to-cut-autocrats-down-to-size.html
+
+**From the Front Page: Trump Wins a Second Term on Nov. 5, 2024**\
+`Donald J. Trump was elected the 47th president of the United States, becoming the first president since Grover Cleveland to win nonconsecutive terms.`\
+https://www.nytimes.com/2026/11/05/learning/from-the-front-page-trump-wins-a-second-term-on-nov-5-2024.html
+
 **50 Best Restaurants in the World Announced for 2026**\
 `A live-fire luminary in the Basque region takes the top spot, while only one U.S. restaurant is recognized.`\
 https://www.nytimes.com/2026/11/04/dining/world-50-best-restaurants.html
@@ -94,13 +110,13 @@ https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
 `The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
 https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
 
-**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
-`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
-https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
-
 **Bob Dylan Meets With Pope Leo**\
 `Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
 https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
+
+**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
 
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
@@ -173,22 +189,6 @@ https://www.nytimes.com/2026/11/04/world/us-midterms-trump-israel.html
 **Gina Hinojosa’s ‘Political Earthquake’ in Texas**\
 `Gina Hinojosa, a Democrat, won the governor’s race in Texas on Tuesday, defeating Gov. Greg Abbott. She spoke with Lulu Garcia-Navarro in October about how it would feel if she won.`\
 https://www.nytimes.com/video/podcasts/100000011262809/gina-hinojosas-political-earthquake-in-texas.html
-
-**Three Opinion Writers on the Democrats’ Landslide**\
-`And what the party should do with its new majority in the House and Senate.`\
-https://www.nytimes.com/video/opinion/100000011262109/three-opinion-writers-on-the-democrats-landslide.html
-
-**Schumer, Jeffries Celebrate Sweeping Midterms Victories**\
-`Senate Minority Leader Chuck Schumer and House Minority Leader Hakeem Jeffries held news conferences on Wednesday to celebrate the Democratic Party’s gains in the midterm elections.`\
-https://www.nytimes.com/video/us/elections/100000011262376/midterms-schumer-jeffries.html
-
-**The Democratic Wave Swept State Houses Across the Country**\
-`Democrats won control of state governments in Wisconsin, Michigan, Minnesota, Pennsylvania, Nevada, and won chambers in Texas, Georgia and North Carolina.`\
-https://www.nytimes.com/2026/11/04/us/politics/state-legislatures-democrats-midterm-election.html
-
-**Helicopter Crash Off Miami Kills One Person and Injures Two**\
-`The helicopter was filming boats in the water when it went down in Biscayne Bay near a state park roughly seven miles from Miami, the authorities said.`\
-https://www.nytimes.com/2026/11/04/us/miami-helicopter-crash-biscayne.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
