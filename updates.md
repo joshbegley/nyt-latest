@@ -1,3 +1,19 @@
+**A ‘Hard Time’ for Vance: Tucker Carlson Thought the Iran War Would Doom the G.O.P.**\
+`On an episode of “The Interview” in May, Tucker Carlson shared his thoughts about the political repercussions of the Iran war. After the midterm elections, JD Vance echoed the sentiment in a social media post on Wednesday, placing the blame for the G.O.P.’s election wipeout squarely on the war.`\
+https://www.nytimes.com/video/podcasts/100000011263626/a-hard-time-for-vance-tucker-carlson-thought-the-iran-war-would-doom-the-gop.html
+
+**Were These Ancient Siberian Nomads the First Stoners?**\
+`Scientists ran a drug test on hair found in a 2,800-year-old burial mound. It came back positive for pot, the earliest known evidence of psychoactive cannabis use.`\
+https://www.nytimes.com/2026/11/05/science/ancient-siberia-scythians-first-marijuanna-cannabis-use.html
+
+**Why a Merciless Supreme Court Rebuke on Election Eve Matters**\
+`The justices took just hours to reject Trump’s bid to meddle in the election.`\
+https://www.nytimes.com/2026/11/05/us/politics/the-docket-supreme-court-election-eve.html
+
+**3 Are Injured in Shooting at Des Moines Post Office**\
+`A woman who works at the post office was taken into custody after the shooting, the police said.`\
+https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
+
 **U.S. Finds Subdued Foreign Meddling Operations in Midterm Elections**\
 `Russia was linked to influence campaigns targeting Democrats that gained little traction, but the Kremlin may be more focused on France’s elections in the spring.`\
 https://www.nytimes.com/2026/11/05/us/politics/midterm-elections-foreign-meddling.html
