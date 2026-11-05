@@ -1,8 +1,16 @@
+**Russell Brand Is Found Guilty of Rape and Sexual Assault**\
+`The popular conspiratorial YouTuber and former movie star faced seven charges in total. The British police have also interviewed him about two further rape accusations.`\
+https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**How Colom Changed a Long Shot in Mississippi Into a Race Too Close to Call**\
+`Scott Colom, a Democrat, ran a viral ad and courted Republicans at a Trump rally before winning virtually the same number of votes as Senator Cindy Hyde-Smith, a Republican.`\
+https://www.nytimes.com/2026/11/05/us/politics/mississippi-senate-race-democrat-colom-hyde-smith.html
+
 **After Midterms, Trump Shows Off Ballroom**\
 `After his party suffered its worst election results in decades, President Trump emerged before the cameras for the first time to talk about his White House ballroom project.`\
 https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
 
-**The Met Has a New Gala Theme, and It Is as Uncontroversial as Possible**\
+**The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
 `After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
 https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/movies/zi-review-kogonada.html
 **‘Wild Horse Nine’ Review: A C.I.A. Holiday**\
 `In Martin McDonagh’s latest laugh- and blood-flecked romp, John Malkovich and Sam Rockwell play C.I.A. agents who do more than just sightseeing in Chile.`\
 https://www.nytimes.com/2026/11/05/movies/wild-horse-nine-review.html
-
-**‘Soul Patrol’ Review: A Veteran’s Past Continues to Haunt Him**\
-`J.M. Harper’s Vietnam War documentary captures the emotional dissonance of Black soldiers fighting for a country that continued to deny them their rights.`\
-https://www.nytimes.com/2026/11/05/movies/soul-patrol-review-a-veterans-past-continues-to-haunt-him.html
-
-**‘Ramayana: Rise of a Legend’ Review: Royal Intrigue**\
-`This respectful adaptation rolls out the converging stories of the prince Rama and the demon king Ravana with brawny blockbuster-style action.`\
-https://www.nytimes.com/2026/11/05/movies/ramayana-rise-of-a-legend-review.html
 
