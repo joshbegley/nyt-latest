@@ -1,3 +1,19 @@
+**Moderate Democrats Increase Their Numbers, and Their Clout**\
+`Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
+https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-increased-clout.html
+
+**‘I Have Seen the Enemy, and It Is Us’: Inside Team Trump’s Historic Collapse**\
+`How an unpopular president and an unpopular war provided an opening for Democrats to make sweeping gains in the midterms.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-midterms-losses-republicans.html
+
+**Immigration Tactics Motivated Voters, Near and Far From Southern Border**\
+`Trump’s aggressive ICE raids brought border battles to city streets, sparking fierce backlash over overreach.`\
+https://www.nytimes.com/2026/11/04/us/immigration-voters-midterms.html
+
+**‘It Is Never Enough’: Susan Collins Couldn’t Outrun Trump**\
+`The Maine Republican survived tough cycles in the past even as the political ground shifted beneath her. But the anti-Trump fever in her state doomed her this time.`\
+https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
+
 **Court Strikes Down Nassau County Trans Athlete Ban in Another Blow to Blakeman**\
 `The ban, enacted in 2024, followed attempts by Bruce Blakeman, the county executive, to remove transgender athletes from sports facilities in the Long Island county.`\
 https://www.nytimes.com/2026/11/04/nyregion/trans-athlete-ban-nassau-county-blakeman.html
