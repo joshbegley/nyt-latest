@@ -1,3 +1,7 @@
+**3 Spots for Pizza That Break the Mold**\
+`In honor of our updated list of the best pizza in New York City — some off-the-beaten-path choices.`\
+https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
+
 **The Dark Side of K-Pop**\
 `As the popularity of the genre has surged, a dispute between a band and its label has put a spotlight on restrictive artist contracts.`\
 https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
