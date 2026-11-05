@@ -1,8 +1,20 @@
+**Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
+`According to the best data we have, teen mental health is improving.`\
+https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
+
+**I’m a Republican. We Have Let Too Many Weirdos Into Our Party.**\
+`The G.O.P. cannot allow itself to be defined by its radicals.`\
+https://www.nytimes.com/2026/11/05/opinion/republicans-jd-vance-weirdo-right.html
+
+**Strand Bookstore to Pay U.S. $1.5 Million Over Pandemic-Relief Loan**\
+`The store agreed to settle a claim that it was not entitled to the loan because its owner is married to a U.S. senator.`\
+https://www.nytimes.com/2026/11/05/nyregion/strand-bookstore-pay-pandemic-loan-nyc.html
+
 **This Is What the Big Tent Looks Like**\
 `On “The Ezra Klein Show,” Ezra Klein argues that “the big tent is real” and breaks down Democratic showings in North Carolina, Georgia, Kansas and Mississippi.`\
 https://www.nytimes.com/video/opinion/100000011258482/this-is-what-the-big-tent-looks-like.html
 
-**F.B.I. Agent Hit Pedestrian and Failed to Call for Help, U.S. Says**\
+**FBI Agent Struck Pedestrian in Brooklyn and Drove Off, U.S. Says**\
 `The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
 https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/05/business/stocks-midterms-artificial-intellige
 **What to Know About Sexual Abuse Settlements Paid by Catholic Dioceses in the U.S.**\
 `A new agreement in New York is only the latest that Catholic dioceses have reached since the early 2000s with people who say they were victims of clergy sexual abuse.`\
 https://www.nytimes.com/2026/11/05/us/catholic-dioceses-sexual-abuse-settlements-new-york.html
-
-**Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
-`A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
-https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
-
-**Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
-`One study found a 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
-https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
-
-**A Historic Collapse**\
-`We look at more from the midterms.`\
-https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
 
