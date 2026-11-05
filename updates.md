@@ -1,3 +1,15 @@
+**Russell Brand Is Found Guilty of Rape and Sexual Assault**\
+`The popular conspiratorial YouTuber and former movie star faced seven charges in total. The British police have also interviewed him about two further rape accusations.`\
+https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
+
+**How Colom Changed a Long Shot in Mississippi Into a Race Too Close to Call**\
+`Scott Colom, a Democrat, ran a viral ad and courted Republicans at a Trump rally before winning virtually the same number of votes as Senator Cindy Hyde-Smith, a Republican.`\
+https://www.nytimes.com/2026/11/05/us/politics/mississippi-senate-race-democrat-colom-hyde-smith.html
+
+**The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
+`After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
+https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
+
 **After Midterms, Trump Shows Off Ballroom**\
 `After his party suffered its worst election results in decades, President Trump emerged before the cameras for the first time to talk about his White House ballroom project.`\
 https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
