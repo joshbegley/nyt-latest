@@ -1,3 +1,11 @@
+**Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
+`A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
+https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
+
+**Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
+`One study found a staggering 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
+https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
+
 **A Historic Collapse**\
 `We look at more from the midterms.`\
 https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
@@ -79,7 +87,7 @@ https://www.nytimes.com/2026/11/05/us/politics/mississippi-senate-race-democrat-
 https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
 
 **The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
-`After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
+`Two months after scrapping plans for an exhibition dedicated to the controversial designer, the museum’s Costume Institute is pivoting to the everyday.`\
 https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
 
 **British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-com
 **Corrections: Nov. 5, 2026**\
 `Corrections that appeared in print on Thursday, Nov. 5, 2026.`\
 https://www.nytimes.com/2026/11/05/pageoneplus/corrections-nov-5-2026.html
-
-**Midterm Election Losses Complicate Trump’s Options on Iran War**\
-`The midterm results laid bare the deep unpopularity of the war of choice that President Trump started and is now struggling to end.`\
-https://www.nytimes.com/2026/11/05/us/politics/trump-iran-war-midterm-elections.html
-
-**Nara, Dreaming of a Lost Girlhood, Finds New Freedom in Color**\
-`In interviews in New York and Washington, on the eve of two major shows, he discloses the effect of glaucoma on his work.`\
-https://www.nytimes.com/2026/11/05/arts/design/yoshitomo-nara-david-zwirner-hirshhorn-museum.html
 
