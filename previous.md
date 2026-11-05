@@ -1,3 +1,19 @@
+**How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
+`Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
+https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
+
+**Katherine Clark Could Be the House Majority Leader. Who Is She?**\
+`A Massachusetts liberal who has never sought the No. 1 leadership spot, Ms. Clark is known as an adept member manager.`\
+https://www.nytimes.com/2026/11/05/us/politics/katherine-clark-house-majority-leader.html
+
+**Tech Billionaires Face Tricky Political Waters After Democratic Midterm Sweep**\
+`Many donated money to President Trump’s favored causes and became his allies. Now that political alignment may be a liability.`\
+https://www.nytimes.com/2026/11/05/technology/tech-billionaires-democrats-midterms.html
+
+**They Made History as ‘Firsts.’ That’s Not What They Ran On.**\
+`Several midterm winners broke barriers, but with campaigns that focused on delivering material change to the lives of Americans.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-identity-politics.html
+
 **Archdiocese of New York Finalizes $800 Million Sex Abuse Settlement**\
 `The agreement, with 1,300 people who said they were abused by clergy and lay leaders, might help America’s foremost Roman Catholic archdiocese avoid bankruptcy.`\
 https://www.nytimes.com/2026/11/05/nyregion/archdiocese-new-york-sex-abuse-settlement-catholic-church.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/interactive/2026/11/05/books/moebius-comic-books-fantasy
 **36 Hours in Bangkok: Things to Do and See**\
 `Thailand’s electrifying capital has welcomed foreigners from all corners of the world, absorbing their influence but never losing its essence.`\
 https://www.nytimes.com/interactive/2026/11/05/travel/things-to-do-bangkok.html
-
-**You Don’t Need to Be a Gambler to Be on ’Tilt’**\
-`The term captures the self-defeating loop of losing and not being able to stop. It also describes doomscrolling, politics and our society’s default state.`\
-https://www.nytimes.com/2026/11/05/magazine/on-tilt-gambling-loss.html
-
-**High-End Homes Keep Selling Despite the New Pied-a-Terre Tax**\
-`When New York lawmakers passed a tax on $5 million second homes, opponents worried wealthy buyers would flee. So far, that hasn’t happened.`\
-https://www.nytimes.com/2026/11/05/realestate/high-end-homes-pied-a-terre-tax.html
-
-**How Will New York’s Victorious Democrats Govern?**\
-`Gov. Kathy Hochul will again face pressure for a millionaires’ tax, and New Yorkers are wondering if the city will gain from having one of its own as speaker of the House.`\
-https://www.nytimes.com/2026/11/05/nyregion/how-will-new-yorks-victorious-democrats-govern.html
-
-**Do You Have a Side Hustle?**\
-`The Times reports that while young people today have fewer traditional jobs, they are still working hard to earn money. Would you want a side gig too?`\
-https://www.nytimes.com/2026/11/05/learning/do-you-have-a-side-hustle.html
 

@@ -1,3 +1,7 @@
+**A Critic of Our Alaska Senate Story Weighs In**\
+`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
+https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
+
 **How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
 `Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
 https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/technology/personaltech/amazon-kindle-colorso
 **Moebius Helped Shape the Sci-Fi Worlds We Know Today**\
 `The work of the French artist Moebius made him a foundational influence on the fantasy worlds of the 20th century.`\
 https://www.nytimes.com/interactive/2026/11/05/books/moebius-comic-books-fantasy-influence.html
-
-**36 Hours in Bangkok: Things to Do and See**\
-`Thailand’s electrifying capital has welcomed foreigners from all corners of the world, absorbing their influence but never losing its essence.`\
-https://www.nytimes.com/interactive/2026/11/05/travel/things-to-do-bangkok.html
 

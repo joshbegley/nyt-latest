@@ -1,3 +1,19 @@
+**How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
+`Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
+https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
+
+**Katherine Clark Could Be the House Majority Leader. Who Is She?**\
+`A Massachusetts liberal who has never sought the No. 1 leadership spot, Ms. Clark is known as an adept member manager.`\
+https://www.nytimes.com/2026/11/05/us/politics/katherine-clark-house-majority-leader.html
+
+**Tech Billionaires Face Tricky Political Waters After Democratic Midterm Sweep**\
+`Many donated money to President Trump’s favored causes and became his allies. Now that political alignment may be a liability.`\
+https://www.nytimes.com/2026/11/05/technology/tech-billionaires-democrats-midterms.html
+
+**They Made History as ‘Firsts.’ That’s Not What They Ran On.**\
+`Several midterm winners broke barriers, but with campaigns that focused on delivering material change to the lives of Americans.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-identity-politics.html
+
 **Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
 `Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by 1,138 votes. It could be days or weeks until either contest is decided.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
