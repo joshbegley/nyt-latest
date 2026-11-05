@@ -1,3 +1,7 @@
+**Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
+`The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
+
 **3 Are Injured in Shooting at Des Moines Post Office**\
 `A woman who works at the post office was taken into custody outside the building, the police said.`\
 https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html

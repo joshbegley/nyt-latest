@@ -1,3 +1,7 @@
+**How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
+`A reissue of “The Black Parade” topped Olivia Rodrigo and Morgan Wallen for the No. 1 album in the country this week.`\
+https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-no-1-album.html
+
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
 `The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/world/canada/canada-grizzly-bear-attack-mothe
 **Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
 `Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
 https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html
-
-**Protesters Fill Streets Across France During Nationwide Strike**\
-`Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
-https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html
 
