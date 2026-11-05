@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
+`Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by 1,138 votes. It could be days or weeks until either contest is decided.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
 **Archdiocese of New York Finalizes $800 Million Sex Abuse Settlement**\
 `The agreement, with 1,300 people who said they were abused by clergy and lay leaders, might help America’s foremost Roman Catholic archdiocese avoid bankruptcy.`\
 https://www.nytimes.com/2026/11/05/nyregion/archdiocese-new-york-sex-abuse-settlement-catholic-church.html
