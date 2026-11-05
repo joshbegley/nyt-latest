@@ -178,8 +178,8 @@ https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-
 `A Finnish court convicted the captain and boatswain of a cargo ship of aggravated criminal damage in relation to an incident last year in the Gulf of Finland.`\
 https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
 
-**Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
-`Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by a little more than 1,100 votes. It could be days or weeks until either contest is decided.`\
+**Midterm Elections Live Updates: Democrats Expand House Majority as Lead in Mississippi Senate Race Grows**\
+`Democrats flipped three more House seats. In Mississippi, Scott Colom, the Democratic candidate for Senate, leads the Republican incumbent, Cindy Hyde-Smith, by a little more than 1,700 votes.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
 
 **Meet New York’s Happiest Silkworms**\

@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democrats Expand House Majority as Lead in Mississippi Senate Race Grows**\
+`Democrats flipped three more House seats. In Mississippi, Scott Colom, the Democratic candidate for Senate, leads the Republican incumbent, Cindy Hyde-Smith, by a little more than 1,700 votes.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
 **Sex Work Made Me See Men Differently**\
 `Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how working in a legal brothel in Nevada changed her understanding of men.`\
 https://www.nytimes.com/video/podcasts/100000011262384/sex-work-made-me-see-men-differently.html
