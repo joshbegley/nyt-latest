@@ -1,3 +1,7 @@
+**Everyone’s Talking About the ‘Blue Tsunami.’ In Japan, It’s Complicated.**\
+`The New York Post used a Hokusai work to depict Donald Trump being swept away by Democrats’ midterm election win. Some in Japan were bothered by the imagery.`\
+https://www.nytimes.com/2026/11/05/world/asia/japan-hokusai-great-wave-midterms.html
+
 **China Blocks SoftBank’s $5.4 Billion Robotics Takeover, Impeding Foreign Deals**\
 `Chinese authorities stopped the sale of ABB Robotics, owned by a Swiss conglomerate, to SoftBank of Japan amid wider scrutiny of global transactions that could affect Beijing’s technology ambitions.`\
 https://www.nytimes.com/2026/11/05/business/softbank-robotics-china-block.html
