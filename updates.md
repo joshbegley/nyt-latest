@@ -1,3 +1,7 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
+
 **Voters in 3 States Limit Trans Athletes**\
 `Voters in Arizona, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
 https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html

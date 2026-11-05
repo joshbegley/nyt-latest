@@ -1,3 +1,7 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
+
 **Voters in 3 States Limit Trans Athletes**\
 `Voters in Arizona, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
 https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011262384/sex-work-made-me-see-men-
 **How Sex Workers Think About Cheating**\
 `Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how her colleagues at a legal brothel in Nevada thought about clients who were married or otherwise partnered, and how her own thinking about infidelity has shifted over time.`\
 https://www.nytimes.com/video/podcasts/100000011262394/how-sex-workers-think-about-cheating.html
-
-**Shannon Taylor Unseats 10-Term Republican in Virginia House Race**\
-`Shannon Taylor’s defeat of Representative Rob Wittman adds to Democrats’ overwhelming gains across the country.`\
-https://www.nytimes.com/2026/11/05/us/virginia-house-1-wittman-taylor.html
 
