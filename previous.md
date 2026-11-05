@@ -1,4 +1,12 @@
-**Nithya Raman, Democratic Socialist, Wins Los Angeles Mayoral Race**\
+**What’s Going On in This Graph? | Nov. 18, 2026**\
+`How much does it cost to drive 100 miles?`\
+https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-graph-nov-18-2026.html
+
+**OpenAI Pledges to Give Locals More Say in Data Center Projects**\
+`The artificial intelligence company pledged to be more collaborative with the communities where it is building its data centers.`\
+https://www.nytimes.com/2026/11/05/technology/openai-data-centers-midterms.html
+
+**Nithya Raman Wins Los Angeles Mayoral Race, Defeating Karen Bass**\
 `The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
 https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
 
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
 
 **Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
-`Gov. Gavin Newsom, in one of his last acts, commuted the sentences of all prisoners with death sentences, calling capital punishment morally objectionable. That’s about a quarter of death sentences nationwide.`\
+`Gov. Gavin Newsom, who is expected to run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
 https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
 
 **How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
@@ -87,7 +95,7 @@ https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-
 https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
 
 **How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
-`From Miami, Flávio Bolsonaro is doubling down on unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
+`From Miami, Flávio Bolsonaro is making unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
 https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html
 
 **Sex Work Made Me See Men Differently**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.
 **Why the Best Hugs Are So Memorable, According to a New Study**\
 `How you remember an embrace could correlate with your attachment style, a new study says.`\
 https://www.nytimes.com/2026/11/05/well/hugs-attachment-style-touch-survey.html
-
-**A Critic of Our Alaska Senate Story Weighs In**\
-`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
-https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
-
-**How Melania Trump Became a Dark Horse Diplomat on Ukraine**\
-`Both Moscow and Kyiv say Mrs. Trump’s team was the driving force behind an evacuation of a besieged city. It was also in their interest to deliver her a humanitarian win.`\
-https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html
 

@@ -1,3 +1,23 @@
+**What’s Going On in This Graph? | Nov. 18, 2026**\
+`How much does it cost to drive 100 miles?`\
+https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-graph-nov-18-2026.html
+
+**OpenAI Pledges to Give Locals More Say in Data Center Projects**\
+`The artificial intelligence company pledged to be more collaborative with the communities where it is building its data centers.`\
+https://www.nytimes.com/2026/11/05/technology/openai-data-centers-midterms.html
+
+**Nithya Raman Wins Los Angeles Mayoral Race, Defeating Karen Bass**\
+`The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
+https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
+
+**Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
+`Gov. Gavin Newsom, who is expected to run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
+https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
+
+**How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says**\
+`From Miami, Flávio Bolsonaro is making unfounded claims of a stolen election and plotting to sway his nation’s politics from afar, even though his party is not challenging the results.`\
+https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html
+
 **Nithya Raman, Democratic Socialist, Wins Los Angeles Mayoral Race**\
 `The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
 https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
