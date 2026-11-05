@@ -1,3 +1,19 @@
+**At Least 3 Are Injured in Shooting at Des Moines Post Office**\
+`A suspect was taken into custody outside the building, the police said.`\
+https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
+
+**Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
+`After days of protests, a new wage board created by Bangladesh’s government agreed to raise garment workers’ pay by the end of the year.`\
+https://www.nytimes.com/video/world/asia/100000011264109/bangladesh-garment-workers-protest-minimum-wage.html
+
+**Iran is Reviewing ‘Concrete Proposals’ on Nuclear Program, Officials Say**\
+`Iran’s willingness to re-engage on the issue suggests that Qatar-led diplomatic efforts to avert full-blown war between the U.S. and Iran have had some success.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/peace-talks-iran-united-states-qatar-nuclear-program.html
+
+**American Is Convicted of Murder in Case That Gripped Italy**\
+`A TV program helped to identify the victims, a Russian woman and her young daughter, who were found dead in a Rome park.`\
+https://www.nytimes.com/2026/11/05/world/europe/italy-american-murder-case.html
+
 **Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
 `Scott Colom, the Democratic candidate in Mississippi, leads the Republican incumbent, Senator Cindy Hyde-Smith, by a little more than 1,100 votes. It could be days or weeks until either contest is decided.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump

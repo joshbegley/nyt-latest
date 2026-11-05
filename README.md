@@ -1,3 +1,7 @@
+**Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan**\
+`Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
+https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
+
 **At Least 3 Are Injured in Shooting at Des Moines Post Office**\
 `A suspect was taken into custody outside the building, the police said.`\
 https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/podcasts/the-headlines/democrats-midterm-elec
 **The Voters Who Flipped Congress**\
 `The Times’s chief political analyst breaks down the results of the midterm elections.`\
 https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flipped-congress.html
-
-**NYT Connections Answers for November 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
-https://www.nytimes.com/2026/11/05/crosswords/connections-companion-1244.html
 

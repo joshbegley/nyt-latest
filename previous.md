@@ -1,3 +1,19 @@
+**At Least 3 Are Injured in Shooting at Des Moines Post Office**\
+`A suspect was taken into custody outside the building, the police said.`\
+https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
+
+**Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
+`After days of protests, a new wage board created by Bangladesh’s government agreed to raise garment workers’ pay by the end of the year.`\
+https://www.nytimes.com/video/world/asia/100000011264109/bangladesh-garment-workers-protest-minimum-wage.html
+
+**Iran is Reviewing ‘Concrete Proposals’ on Nuclear Program, Officials Say**\
+`Iran’s willingness to re-engage on the issue suggests that Qatar-led diplomatic efforts to avert full-blown war between the U.S. and Iran have had some success.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/peace-talks-iran-united-states-qatar-nuclear-program.html
+
+**American Is Convicted of Murder in Case That Gripped Italy**\
+`A TV program helped to identify the victims, a Russian woman and her young daughter, who were found dead in a Rome park.`\
+https://www.nytimes.com/2026/11/05/world/europe/italy-american-murder-case.html
+
 **Milton L. Williams Has Died. His Legal Career Touched Major N.Y.C. Events.**\
 `He was executive director of the inquiry into the Attica prison uprising and made a provocative decision in the Central Park jogger case. He died at 93.`\
 https://www.nytimes.com/2026/11/05/obituaries/milton-l-williams-dead.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flippe
 **NYT Connections Answers for November 6, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
 https://www.nytimes.com/2026/11/05/crosswords/connections-companion-1244.html
-
-**NYT Strands Hints for November 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
-https://www.nytimes.com/2026/11/05/crosswords/strands-sidekick-978.html
-
-**Today’s Wordle Hints for November 6, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
-https://www.nytimes.com/2026/11/05/crosswords/wordle-review-1966.html
-
-**6 Killed in Sunset Park Blaze: NYC’s Deadliest Fire This Year**\
-`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park, Brooklyn.`\
-https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
-
-**MAGA Finally Gets What It Deserves**\
-`The Ozymandias election.`\
-https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html
 
