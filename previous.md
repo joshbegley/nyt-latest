@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/11/04/us/mississippi-alaska-senate-recount-provisio
 `Dr. Whipple studied the female erogenous zone and, with collaborators, wrote a best seller about women’s sexuality. She was 85.`\
 https://www.nytimes.com/2026/11/04/science/beverly-whipple-g-spot-dead.html
 
-**Trump Confronts a New Role: A Lame Duck Facing a Hostile Congress**\
+**Trump Wrestles With New Reality: A Lame Duck With Two Years Left to Fight**\
 `After a decade at the center of American politics, President Trump is politically wounded, with diminished power. Those who know him say the next two years will be unpredictable.`\
 https://www.nytimes.com/2026/11/04/us/politics/trump-new-role-lame-duck.html
 
