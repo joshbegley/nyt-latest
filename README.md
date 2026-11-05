@@ -1,3 +1,7 @@
+**Hispanic Voter Trends**\
+`Our election data reporter Caroline Soler outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
+https://www.nytimes.com/video/us/elections/100000011262277/hispanic-voter-trends.html
+
 **These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
 `The president’s approval was essential to winning Republican Senate primaries. It became lethal in competitive general-election races.`\
 https://www.nytimes.com/2026/11/04/us/trump-allies-defeated-midterms.html
@@ -66,7 +70,7 @@ https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-po
 `Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
 https://www.nytimes.com/2026/11/04/us/women-republicans-congress.html
 
-**His Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
+**Abdul El-Sayed’s Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
 `Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
 https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/nyregion/pied-a-terre-mamdani-appeal-win-home
 **Voters Rejected A.I. in the Midterms. Now Comes an Era of Scrutiny.**\
 `After two years of little A.I. oversight, voters on Tuesday rejected data center projects and swept into office Democratic candidates who promised to regulate the technology.`\
 https://www.nytimes.com/2026/11/04/technology/midterm-elections-ai-data-centers.html
-
-**On the Democrats’ Agenda: Investigations of Trump and His Family**\
-`When a new Congress is sworn in, it will have the power to hold hearings and issue subpoenas, prompting one representative to advise White House officials and others to “lawyer up.”`\
-https://www.nytimes.com/2026/11/04/us/trump-family-investigations-democrats.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
