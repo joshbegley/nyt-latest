@@ -1,3 +1,11 @@
+**‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
+`Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
+https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
+
+**DOJ Steps Up Leak Investigation on Supreme Court Decision Overturning Roe v. Wade**\
+`Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
+https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
+
 **Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
 `The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html

@@ -1,3 +1,7 @@
+**‘More Divided Than Ever’: For Jewish Voters, a Mix of Elation and Dread**\
+`Juggling celebration and concern, American Jews are negotiating their place in a dramatically shifting political landscape.`\
+https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
+
 **Kanye West’s Latest Fashion Show Is More Rehash Than Reset**\
 `The artist formerly known as Kanye West tried a reset with his latest collection. It was more of a rehash.`\
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.
 `In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
 https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
 
-**Justice Dept. Steps Up Investigation of Supreme Court Abortion Decision Leak**\
+**DOJ Steps Up Leak Investigation on Supreme Court Decision Overturning Roe v. Wade**\
 `Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
 https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/insider/trump-midterms-elections-results-tyle
 **Timeline: How Russell Brand Went From Comedy Star to Convicted Rapist**\
 `The comedian, actor and YouTuber has had ups and downs throughout a tumultuous career. A conviction on charges of rape and sexual assault was a new low.`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-career-timeline.html
-
-**The Big-Name Democrats Whose Bets Paid Off in the Midterms**\
-`Victory has a thousand fathers. And Democrats everywhere are clamoring for a piece of this midterm triumph.`\
-https://www.nytimes.com/2026/11/05/us/midterms-democratic-endorsements.html
 
