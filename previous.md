@@ -1,3 +1,27 @@
+**Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
+`A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
+https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
+
+**Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
+`One study found a staggering 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
+https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
+
+**A Historic Collapse**\
+`We look at more from the midterms.`\
+https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
+
+**Chicken Legs Meet Hot Honey Meets Carrots Meet Sheet Pan**\
+`An easy weeknight meal that transcends the sum of its parts.`\
+https://www.nytimes.com/2026/11/05/dining/chicken-legs-meet-hot-honey-meets-carrots-meet-sheet-pan.html
+
+**Our World Has Become Ultraprocessed. We Can Change That.**\
+`The question is not whether we choose to plug in but rather how intentional we are about unplugging.`\
+https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.html
+
+**Why the Best Hugs Are So Memorable, According to a New Study**\
+`How you remember an embrace could correlate with your attachment style, a new study says.`\
+https://www.nytimes.com/2026/11/05/well/hugs-attachment-style-touch-survey.html
+
 **A Critic of Our Alaska Senate Story Weighs In**\
 `In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
 https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
@@ -63,7 +87,7 @@ https://www.nytimes.com/2026/11/05/us/politics/mississippi-senate-race-democrat-
 https://www.nytimes.com/video/world/americas/100000011264197/trump-white-house-ballroom-midterm-elections.html
 
 **The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
-`After calling off its planned Galliano exhibition after a public backlash, the museum’s Costume Institute is pivoting to the everyday.`\
+`Two months after scrapping plans for an exhibition dedicated to the controversial designer, the museum’s Costume Institute is pivoting to the everyday.`\
 https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
 
 **British Citizen Infected With Ebola in Congo to Be Evacuated to UK, BBC Reports**\
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-com
 **Corrections: Nov. 5, 2026**\
 `Corrections that appeared in print on Thursday, Nov. 5, 2026.`\
 https://www.nytimes.com/2026/11/05/pageoneplus/corrections-nov-5-2026.html
-
-**Midterm Election Losses Complicate Trump’s Options on Iran War**\
-`The midterm results laid bare the deep unpopularity of the war of choice that President Trump started and is now struggling to end.`\
-https://www.nytimes.com/2026/11/05/us/politics/trump-iran-war-midterm-elections.html
-
-**Nara, Dreaming of a Lost Girlhood, Finds New Freedom in Color**\
-`In interviews in New York and Washington, on the eve of two major shows, he discloses the effect of glaucoma on his work.`\
-https://www.nytimes.com/2026/11/05/arts/design/yoshitomo-nara-david-zwirner-hirshhorn-museum.html
-
-**‘Florida Is the Last Main Anchor Standing’ for Republicans**\
-`The third most populous state withstood a national Democratic surge on Tuesday, even as Republicans amassed deep losses in Texas and across the electoral map.`\
-https://www.nytimes.com/2026/11/05/us/florida-republicans-midterms.html
-
-**To Sweep Texas, Democrats Built ‘a Machine’ With Every Piece in Place**\
-`Years of organizing met a moment of voter discontent, as James Talarico and Gina Hinojosa offered Texans a message of economic relief and political change.`\
-https://www.nytimes.com/2026/11/05/us/texas-democrats-statewide-sweep.html
-
-**Amazon Kindle Colorsoft Review: The Single-Task Gadget of Our Times**\
-`E-book reader sales are soaring as consumers seek technology offering respite from social media and artificial intelligence hype. It’s even better in color.`\
-https://www.nytimes.com/2026/11/05/technology/personaltech/amazon-kindle-colorsoft-review.html
-
-**Moebius Helped Shape the Sci-Fi Worlds We Know Today**\
-`The work of the French artist Moebius made him a foundational influence on the fantasy worlds of the 20th century.`\
-https://www.nytimes.com/interactive/2026/11/05/books/moebius-comic-books-fantasy-influence.html
 

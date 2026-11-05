@@ -1,3 +1,31 @@
+**Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport**\
+`A top adviser to President Javier Milei of Argentina met Flávio Bolsonaro, the defeated Brazilian presidential candidate, at an Argentine airport, three people involved in the operation said.`\
+https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html
+
+**Infant Bleeding Surged as Parents Rejected Vitamin K Shots, Studies Find**\
+`One study found a staggering 347 percent increase in cases as fewer babies received the shot, which helps blood clot.`\
+https://www.nytimes.com/2026/11/05/well/live/vitamin-k-shot-newborn-bleeding.html
+
+**A Historic Collapse**\
+`We look at more from the midterms.`\
+https://www.nytimes.com/2026/11/05/briefing/a-historic-collapse.html
+
+**Chicken Legs Meet Hot Honey Meets Carrots Meet Sheet Pan**\
+`An easy weeknight meal that transcends the sum of its parts.`\
+https://www.nytimes.com/2026/11/05/dining/chicken-legs-meet-hot-honey-meets-carrots-meet-sheet-pan.html
+
+**Our World Has Become Ultraprocessed. We Can Change That.**\
+`The question is not whether we choose to plug in but rather how intentional we are about unplugging.`\
+https://www.nytimes.com/2026/11/05/opinion/ultraprocessed-unplug-humans-culture.html
+
+**Why the Best Hugs Are So Memorable, According to a New Study**\
+`How you remember an embrace could correlate with your attachment style, a new study says.`\
+https://www.nytimes.com/2026/11/05/well/hugs-attachment-style-touch-survey.html
+
+**The Met Costume Institute Has a New Gala Theme, ‘extraOrdinary,’ After Calling Off Galliano Show**\
+`Two months after scrapping plans for an exhibition dedicated to the controversial designer, the museum’s Costume Institute is pivoting to the everyday.`\
+https://www.nytimes.com/2026/11/05/style/met-gala-theme-extraordinary.html
+
 **A Critic of Our Alaska Senate Story Weighs In**\
 `In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
 https://www.nytimes.com/video/insider/100000011259760/a-critic-of-our-alaska-senate-story-weighs-in.html
