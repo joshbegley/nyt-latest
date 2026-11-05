@@ -90,13 +90,13 @@ https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
 `The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
 https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
 
-**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
-`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
-https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
-
 **Bob Dylan Meets With Pope Leo**\
 `Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
 https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
+
+**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
 
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
