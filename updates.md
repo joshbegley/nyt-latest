@@ -1,3 +1,31 @@
+**Netanyahu Alleges Election Fraud in Connection With Arab Turnout**\
+`The Israeli leader and his allies are alleging that Arab voters last month stole the election. Election officials say that while foul play was being investigated, it could not have affected the result.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html
+
+**What Democrats Plan to Do Next, and What JD Vance Says Went Wrong**\
+`Plus, how K-pop controls its stars.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-headlines/democrats-midterm-elections-jd-vance-kpop.html
+
+**The Voters Who Flipped Congress**\
+`The Times’s chief political analyst breaks down the results of the midterm elections.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flipped-congress.html
+
+**NYT Connections Answers for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/connections-companion-1244.html
+
+**NYT Strands Hints for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/strands-sidekick-978.html
+
+**Today’s Wordle Hints for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/wordle-review-1966.html
+
+**6 Are Killed in Fire That Tore Through Brooklyn Low-Rise**\
+`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
+https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
+
 **MAGA Finally Gets What It Deserves**\
 `The Ozymandias election.`\
 https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html

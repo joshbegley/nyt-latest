@@ -1,3 +1,31 @@
+**Netanyahu Alleges Election Fraud in Connection With Arab Turnout**\
+`The Israeli leader and his allies are alleging that Arab voters last month stole the election. Election officials say that while foul play was being investigated, it could not have affected the result.`\
+https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html
+
+**What Democrats Plan to Do Next, and What JD Vance Says Went Wrong**\
+`Plus, how K-pop controls its stars.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-headlines/democrats-midterm-elections-jd-vance-kpop.html
+
+**The Voters Who Flipped Congress**\
+`The Times’s chief political analyst breaks down the results of the midterm elections.`\
+https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flipped-congress.html
+
+**NYT Connections Answers for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/connections-companion-1244.html
+
+**NYT Strands Hints for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/strands-sidekick-978.html
+
+**Today’s Wordle Hints for November 6, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/05/crosswords/wordle-review-1966.html
+
+**6 Are Killed in Fire That Tore Through Brooklyn Low-Rise**\
+`Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
+https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
+
 **MAGA Finally Gets What It Deserves**\
 `The Ozymandias election.`\
 https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/05/style/reinventing-your-life.html
 **An Artist Who Won’t Avert Her Gaze From Violence**\
 `Teresa Margolles grapples with the traces of murder and disappearance. A survey at MoMA PS1 connects her projects in Mexico since the 2000s, and the United States today.`\
 https://www.nytimes.com/2026/11/05/arts/design/teresa-margolles-exhibition.html
-
-**Can Creatine Supplements Make Your Brain Stronger?**\
-`Their muscle-building benefits are well-established. Their mind-building benefits are another story.`\
-https://www.nytimes.com/2026/11/05/well/mind/creatine-supplements-brain-benefits.html
-
-**Word of the Day: fracas**\
-`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/05/learning/word-of-the-day-fracas.html
-
-**At the Root of K-Pop’s Controversies, a Restrictive Business Model**\
-`Labels exert extraordinary control over performers because only a few acts turn a profit.`\
-https://www.nytimes.com/2026/11/05/world/asia/how-kpop-works-contracts.html
-
-**Book Review: ‘The King Under the Mountain,’ by D.J. Taylor**\
-`D.J. Taylor’s new book is part biography and part critical study of the writer behind “The Lord of the Rings.”`\
-https://www.nytimes.com/2026/11/05/books/review/dj-taylor-jrr-tolkien.html
-
-**NYC’s Secret Budget Hotel Hack: Religious Guesthouses**\
-`Staying near prime tourist attractions in Manhattan can cost hundreds, even thousands, of dollars a night. These five properties welcome budget travelers of any faith.`\
-https://www.nytimes.com/2026/11/05/travel/new-york-city-cheap-hotels.html
-
-**A Graphic Novelist Gets to Know a Dictator, From Afar**\
-`For Keum Suk Gendry-Kim, imagining the life of North Korea’s leader was a risk worth taking, despite the backlash.`\
-https://www.nytimes.com/2026/11/05/books/review/keum-suk-gendry-kim-north-korea-dictator.html
-
-**What Shaped Anthropic CEO Dario Amodei’s Thinking on A.I.**\
-`Some call him a doomer. Others see him as a responsible technologist. Here’s how the Anthropic chief executive’s thinking on artificial intelligence was shaped.`\
-https://www.nytimes.com/2026/11/05/technology/dario-amodei-anthropic-ai.html
 
