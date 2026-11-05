@@ -1,3 +1,11 @@
+**Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
+`Democratic candidates hold small leads in both races, but it could be days or weeks until either contest is decided.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
+**Meet New York’s Happiest Silkworms**\
+`The fashion designer Grace Gui raises silkworms in Queens to embellish the garments she makes.`\
+https://www.nytimes.com/video/t-magazine/100000011240996/meet-new-yorks-happiest-silkworms.html
+
 **The Texas-size Political Tremor Rattling Big Business**\
 `The Lone Star State’s business-friendly playbook could be rewritten by the Democrats’ election sweep there.`\
 https://www.nytimes.com/2026/11/05/business/dealbook/texas-blue-wave-business-fallout.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/movies/de-gaulle-resistance-review.html
 **‘Club Kid’ Review: When the Lights Come Up**\
 `In his confident and exuberant directorial debut, Jordan Firstman stars as a party promoter who has to grow up.`\
 https://www.nytimes.com/2026/11/05/movies/club-kid-review.html
-
-**‘The Cat in the Hat’ Review: What Need Be Added to It That Is New?**\
-`The peppy animated version is filled with bold colors, half-decent jokes and a couple of catchy tunes.`\
-https://www.nytimes.com/2026/11/05/movies/the-cat-in-the-hat-review.html
-
-**The Hispanic Voter Backlash in 2 Charts**\
-`They are the indispensable swing bloc, and their votes will have to be won every cycle.`\
-https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.html
 

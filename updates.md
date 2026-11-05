@@ -1,3 +1,11 @@
+**Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
+`Democratic candidates hold small leads in both races, but it could be days or weeks until either contest is decided.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
+**Meet New York’s Happiest Silkworms**\
+`The fashion designer Grace Gui raises silkworms in Queens to embellish the garments she makes.`\
+https://www.nytimes.com/video/t-magazine/100000011240996/meet-new-yorks-happiest-silkworms.html
+
 **Bank of England Raises Rates for First Time in Three Years**\
 `The central bank increased interest rates for the first time in more than three years and warned that inflation would climb to about 5 percent next year, far above its target.`\
 https://www.nytimes.com/2026/11/05/business/bank-of-england-interest-rates-inflation.html

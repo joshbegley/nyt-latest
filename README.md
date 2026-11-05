@@ -1,3 +1,7 @@
+**Finland Sends 2 Men to Prison for Damaging Undersea Cable in Baltic Sea**\
+`A Finnish court convicted the captain and boatswain of a cargo ship of aggravated criminal damage in relation to an incident last year in the Gulf of Finland.`\
+https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
+
 **Midterm Elections Live Updates: Democrats Eye Mississippi and Alaska in Hopes of Adding to Senate Majority**\
 `Democratic candidates hold small leads in both races, but it could be days or weeks until either contest is decided.`\
 https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/movies/godzilla-minus-zero-review-reprieve-of
 **‘De Gaulle: Résistance’ Review: Uniting a Country at War**\
 `This two-part film centers on Charles de Gaulle’s exile from France. As the Nazis close in, the Free French movement emerges.`\
 https://www.nytimes.com/2026/11/05/movies/de-gaulle-resistance-review.html
-
-**‘Club Kid’ Review: When the Lights Come Up**\
-`In his confident and exuberant directorial debut, Jordan Firstman stars as a party promoter who has to grow up.`\
-https://www.nytimes.com/2026/11/05/movies/club-kid-review.html
 
