@@ -1,3 +1,11 @@
+**Change Is Coming**\
+`The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
+https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
+
+**New Series of Bomb Threats Disrupts Flights in Europe**\
+`The planes that were targeted, including in Italy and France, landed safely, officials said. No explosives have been found.`\
+https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html
+
 **Everyone’s Talking About the ‘Blue Tsunami.’ In Japan, It’s Complicated.**\
 `The New York Post used a Hokusai work to depict Donald Trump being swept away by Democrats’ midterm election win. Some in Japan were bothered by the imagery.`\
 https://www.nytimes.com/2026/11/05/world/asia/japan-hokusai-great-wave-midterms.html
