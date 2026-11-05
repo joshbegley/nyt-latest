@@ -1,3 +1,7 @@
+**How British Law Informed Russell Brand Trial Coverage**\
+`British criminal trials like Russell Brand’s have rules around what can be reported.`\
+https://www.nytimes.com/2026/11/05/insider/russell-brand-trial-british-law.html
+
 **New York Times Company in Advanced Talks to Acquire Letterboxd**\
 `The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
 https://www.nytimes.com/2026/11/05/business/letterboxd-new-york-times-company.html

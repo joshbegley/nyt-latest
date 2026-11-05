@@ -1,10 +1,14 @@
+**A Critic of Our Alaska Senate Story Sounds Off**\
+`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
+https://www.nytimes.com/video/insider/100000011266420/a-critic-of-our-alaska-senate-story-sounds-off.html
+
 **How British Law Informed Russell Brand Trial Coverage**\
 `British criminal trials like Russell Brand’s have rules around what can be reported.`\
 https://www.nytimes.com/2026/11/05/insider/russell-brand-trial-british-law.html
 
 **New York Times Company in Advanced Talks to Acquire Letterboxd**\
 `The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
-https://www.nytimes.com/2026/11/05/business/letterboxd-new-york-times-company.html
+https://www.nytimes.com/2026/11/05/business/media/letterboxd-new-york-times-company.html
 
 **National Guard to Expand Patrols in Washington With Military Vehicles and Boats**\
 `The Pentagon said that the decision by Pete Hegseth to widen the patrols was made on Oct. 29, just before a landslide defeat for Republicans in the midterm elections.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-n
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
 `The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
-
-**A ‘Hard Time’ for Vance: Tucker Carlson Thought the Iran War Would Doom the G.O.P.**\
-`On an episode of “The Interview” in May, Tucker Carlson shared his thoughts about the political repercussions of the Iran war. After the midterm elections, JD Vance echoed the sentiment in a social media post on Wednesday, placing the blame for the G.O.P.’s election wipeout squarely on the war.`\
-https://www.nytimes.com/video/podcasts/100000011263626/a-hard-time-for-vance-tucker-carlson-thought-the-iran-war-would-doom-the-gop.html
 

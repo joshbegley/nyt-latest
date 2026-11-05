@@ -1,3 +1,7 @@
+**How British Law Informed Russell Brand Trial Coverage**\
+`British criminal trials like Russell Brand’s have rules around what can be reported.`\
+https://www.nytimes.com/2026/11/05/insider/russell-brand-trial-british-law.html
+
 **New York Times Company in Advanced Talks to Acquire Letterboxd**\
 `The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
 https://www.nytimes.com/2026/11/05/business/letterboxd-new-york-times-company.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil
 **A ‘Hard Time’ for Vance: Tucker Carlson Thought the Iran War Would Doom the G.O.P.**\
 `On an episode of “The Interview” in May, Tucker Carlson shared his thoughts about the political repercussions of the Iran war. After the midterm elections, JD Vance echoed the sentiment in a social media post on Wednesday, placing the blame for the G.O.P.’s election wipeout squarely on the war.`\
 https://www.nytimes.com/video/podcasts/100000011263626/a-hard-time-for-vance-tucker-carlson-thought-the-iran-war-would-doom-the-gop.html
-
-**Were These Ancient Siberian Nomads the First Stoners?**\
-`Scientists ran a drug test on hair found in a 2,800-year-old burial mound. It came back positive for pot, the earliest known evidence of psychoactive cannabis use.`\
-https://www.nytimes.com/2026/11/05/science/ancient-siberia-scythians-first-marijuanna-cannabis-use.html
 
