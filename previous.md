@@ -1,3 +1,19 @@
+**How Sex Workers Think About Cheating**\
+`Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how her colleagues at a legal brothel in Nevada thought about clients who were married or otherwise partnered, and how her own thinking about infidelity has shifted over time.`\
+https://www.nytimes.com/video/podcasts/100000011262394/how-sex-workers-think-about-cheating.html
+
+**Shannon Taylor Unseats 10-Term Republican in Virginia House Race**\
+`Shannon Taylor’s defeat of Representative Rob Wittman adds to Democrats’ overwhelming gains across the country.`\
+https://www.nytimes.com/2026/11/05/us/virginia-house-1-wittman-taylor.html
+
+**Virginia House Republican Who Had Seemed Vulnerable Fends Off Democrat**\
+`Representative John McGuire, a Republican, held off a challenge from former Representative Tom Perriello, a Democrat.`\
+https://www.nytimes.com/2026/11/05/us/virginia-house-5-mcguire-perriello.html
+
+**Sam Forstag, a Smoke Jumper, Flips a House Seat for Democrats in Montana**\
+`The union leader’s victory gives his party its first congressional seat in the state in more than 30 years.`\
+https://www.nytimes.com/2026/11/05/us/forstag-flint-montana-first-house-district.html
+
 **There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
 `After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
 https://www.nytimes.com/2026/11/05/style/there-was-one-thing-cancer-wouldnt-keep-him-from-doing.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
 **Change Is Coming**\
 `The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
 https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
-
-**What to Know About the Bomb Threats Disrupting Flights in Europe**\
-`More than a dozen planes that were targeted on Thursday landed safely, officials said, after similar threats earlier this week. The hoaxes have added to airspace anxiety in the region.`\
-https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-europe-flights-airlines.html
-
-**Everyone’s Talking About the ‘Blue Tsunami.’ In Japan, It’s Complicated.**\
-`The New York Post used a Hokusai work to depict Donald Trump being swept away by Democrats’ midterm election win. Some in Japan were bothered by the imagery.`\
-https://www.nytimes.com/2026/11/05/world/asia/japan-hokusai-great-wave-midterms.html
-
-**China Blocks SoftBank’s $5.4 Billion Robotics Takeover, Impeding Foreign Deals**\
-`Chinese authorities stopped the sale of ABB Robotics, owned by a Swiss conglomerate, to SoftBank of Japan amid wider scrutiny of global transactions that could affect Beijing’s technology ambitions.`\
-https://www.nytimes.com/2026/11/05/business/softbank-robotics-china-block.html
-
-**Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
 

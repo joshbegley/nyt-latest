@@ -1,3 +1,7 @@
+**Sex Work Made Me See Men Differently**\
+`Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how working in a legal brothel in Nevada changed her understanding of men.`\
+https://www.nytimes.com/video/podcasts/100000011262384/sex-work-made-me-see-men-differently.html
+
 **How Sex Workers Think About Cheating**\
 `Paloma Karr, a sex worker and writer, tells Anna Martin, the host of the “Modern Love” podcast, how her colleagues at a legal brothel in Nevada thought about clients who were married or otherwise partnered, and how her own thinking about infidelity has shifted over time.`\
 https://www.nytimes.com/video/podcasts/100000011262394/how-sex-workers-think-about-cheating.html
@@ -16,7 +20,7 @@ https://www.nytimes.com/2026/11/05/us/forstag-flint-montana-first-house-district
 
 **There Was One Thing Cancer Wouldn’t Keep Him From Doing**\
 `After learning that his Stage 4 melanoma had spread to the fluid surrounding his brain, Samuel Braslow was certain that he wanted to be Kalie-Ann Nassoura’s husband before it was too late.`\
-https://www.nytimes.com/2026/11/05/style/there-was-one-thing-cancer-wouldnt-keep-him-from-doing.html
+https://www.nytimes.com/2026/11/05/style/samuel-braslow-cancer-kalie-ann-nassoura-wedding.html
 
 **Parents Sue Google Over A.I. Safety Risks on School Chromebooks**\
 `A student made plans to end her life after chatting with Google’s artificial intelligence, a new lawsuit claims, amid mounting concerns about online harms to children.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/business/bank-of-england-interest-rates-infla
 **High Gas Prices Boost Sales of Hybrids for Toyota, Sending Its Stock Soaring**\
 `Toyota is cashing in on a U.S. hybrid boom as electric-vehicle demand slows, but shifting political tides in Washington could jeopardize its edge.`\
 https://www.nytimes.com/2026/11/05/business/toyota-profits-hybrids.html
-
-**Change Is Coming**\
-`The midterms were a historic collapse for the Republicans, who were unable to overcome an unpopular president and an unpopular war.`\
-https://www.nytimes.com/2026/11/05/briefing/change-is-coming.html
 
