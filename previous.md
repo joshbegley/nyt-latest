@@ -1,200 +1,200 @@
+**MAGA Finally Gets What It Deserves**\
+`The Ozymandias election.`\
+https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html
+
+**We Still Know How to Throw the Bums Out**\
+`What an amazing election night.`\
+https://www.nytimes.com/2026/11/05/opinion/trump-blue-wave-democrats.html
+
+**$400 Million Lost. SpaceX Stock Tanking. Elon Musk Had a Tough Election Night.**\
+`The vote was an epic rebuke of Silicon Valley.`\
+https://www.nytimes.com/2026/11/05/opinion/elon-musk-midterms-trump-results.html
+
+**In Victory, Democrats See Economic Mandate to Cut Costs and Curtail Trump**\
+`Some Democrats quickly signaled they could try to roll back the president’s tax and trade policies, ignoring his early veto threats.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-democrats-trump-taxes-tariffs.html
+
+**Triumphal Arch Set to Win Final Approval Despite Court Challenges**\
+`President Trump’s 250-foot arch project is expected to win approval on Thursday from a federal planning board. Court action and Democrats’ upcoming control of Congress could halt the plans.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-triumphal-arch-planning-commission.html
+
+**Corrections: Nov. 5, 2026**\
+`Corrections that appeared in print on Thursday, Nov. 5, 2026.`\
+https://www.nytimes.com/2026/11/05/pageoneplus/corrections-nov-5-2026.html
+
+**Midterm Election Losses Complicate Trump’s Options on Iran War**\
+`The midterm results laid bare the deep unpopularity of the war of choice that President Trump started and is now struggling to end.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-iran-war-midterm-elections.html
+
+**Nara, Dreaming of a Lost Girlhood, Finds New Freedom in Color**\
+`In interviews in New York and Washington, on the eve of two major shows, he discloses the effect of glaucoma on his work.`\
+https://www.nytimes.com/2026/11/05/arts/design/yoshitomo-nara-david-zwirner-hirshhorn-museum.html
+
+**‘Florida Is the Last Main Anchor Standing’ for Republicans**\
+`The third most populous state withstood a national Democratic surge on Tuesday, even as Republicans amassed deep losses in Texas and across the electoral map.`\
+https://www.nytimes.com/2026/11/05/us/florida-republicans-midterms.html
+
+**How Texas Democrats Turned Decades of Defeat Into a Statewide Sweep**\
+`Years of organizing met a moment of voter discontent, as James Talarico and Gina Hinojosa offered Texans a message of economic relief and political change.`\
+https://www.nytimes.com/2026/11/05/us/texas-democrats-statewide-sweep.html
+
+**Amazon Kindle Colorsoft Review: The Single-Task Gadget of Our Times**\
+`E-book reader sales are soaring as consumers seek technology offering respite from social media and artificial intelligence hype. It’s even better in color.`\
+https://www.nytimes.com/2026/11/05/technology/personaltech/amazon-kindle-colorsoft-review.html
+
+**Moebius Helped Shape the Sci-Fi Worlds We Know Today**\
+`The work of the French artist Moebius made him a foundational influence on the fantasy worlds of the 20th century.`\
+https://www.nytimes.com/interactive/2026/11/05/books/moebius-comic-books-fantasy-influence.html
+
+**36 Hours in Bangkok: Things to Do and See**\
+`Thailand’s electrifying capital has welcomed foreigners from all corners of the world, absorbing their influence but never losing its essence.`\
+https://www.nytimes.com/interactive/2026/11/05/travel/things-to-do-bangkok.html
+
+**You Don’t Need to Be a Gambler to Be on ’Tilt’**\
+`The term captures the self-defeating loop of losing and not being able to stop. It also describes doomscrolling, politics and our society’s default state.`\
+https://www.nytimes.com/2026/11/05/magazine/on-tilt-gambling-loss.html
+
+**High-End Homes Keep Selling Despite the New Pied-a-Terre Tax**\
+`When New York lawmakers passed a tax on $5 million second homes, opponents worried wealthy buyers would flee. So far, that hasn’t happened.`\
+https://www.nytimes.com/2026/11/05/realestate/high-end-homes-pied-a-terre-tax.html
+
+**How Will New York’s Victorious Democrats Govern?**\
+`Gov. Kathy Hochul will again face pressure for a millionaires’ tax, and New Yorkers are wondering if the city will gain from having one of its own as speaker of the House.`\
+https://www.nytimes.com/2026/11/05/nyregion/how-will-new-yorks-victorious-democrats-govern.html
+
+**Do You Have a Side Hustle?**\
+`The Times reports that while young people today have fewer traditional jobs, they are still working hard to earn money. Would you want a side gig too?`\
+https://www.nytimes.com/2026/11/05/learning/do-you-have-a-side-hustle.html
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in Oyster Bay, N.Y., and a three-bedroom in Redding, Conn.`\
+https://www.nytimes.com/2026/11/05/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are on the Upper West Side, in Chelsea and Pelham Bay.`\
+https://www.nytimes.com/2026/11/05/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
+
+**Sherri Shepherd, in ‘Aladdin,’ Is Granting Wishes as the First Female Genie**\
+`The actress has stepped into Genie’s famous blue velvet costume, bringing a new dynamic to the role.`\
+https://www.nytimes.com/2026/11/05/theater/sherri-shepherd-genie-aladdin-broadway.html
+
+**Is Your HOA Fee Rising? You’re Not Alone.**\
+`Over the last 50 years, homeowners associations have proliferated; over the last five, fees have soared.`\
+https://www.nytimes.com/2026/11/05/realestate/is-your-hoa-fee-rising-youre-not-alone.html
+
+**Tiny Chihuahuas Hold a Big Surprise: A Sliver of Coyote DNA**\
+`The breed is descended from indigenous canines, which may have been intentionally mixed with wild coyotes long before Europeans arrived in the Americas.`\
+https://www.nytimes.com/2026/11/05/science/chihuahuas-coyote-dna.html
+
+**‘Jimmy’ Review: Cornball? Absolutely. But Heck, It’s Got Heart.**\
+`Aaron Burns’s sticky-sweet biopic maps a connection between Jimmy Stewart’s military service and “It’s a Wonderful Life.”`\
+https://www.nytimes.com/2026/11/05/movies/jimmy-review.html
+
+**‘Zi’ Review: The Perpetual Past**\
+`Kogonada’s experimental feature tracks one endless night, suffused with the hazy melancholy of nostalgia.`\
+https://www.nytimes.com/2026/11/05/movies/zi-review-kogonada.html
+
+**‘Wild Horse Nine’ Review: A C.I.A. Holiday**\
+`In Martin McDonagh’s latest laugh- and blood-flecked romp, John Malkovich and Sam Rockwell play C.I.A. agents who do more than just sightseeing in Chile.`\
+https://www.nytimes.com/2026/11/05/movies/wild-horse-nine-review.html
+
+**‘Soul Patrol’ Review: A Veteran’s Past Continues to Haunt Him**\
+`J.M. Harper’s Vietnam War documentary captures the emotional dissonance of Black soldiers fighting for a country that continued to deny them their rights.`\
+https://www.nytimes.com/2026/11/05/movies/soul-patrol-review-a-veterans-past-continues-to-haunt-him.html
+
+**‘Ramayana: Rise of a Legend’ Review: Royal Intrigue**\
+`This respectful adaptation rolls out the converging stories of the prince Rama and the demon king Ravana with brawny blockbuster-style action.`\
+https://www.nytimes.com/2026/11/05/movies/ramayana-rise-of-a-legend-review.html
+
+**‘Mouse’ Review: The Awkward Etiquette of Unexpected Loss**\
+`The actor Sophie Okonedo embodies the quiet anguish of a bereaved mother of a high school girl in this tale of grief and connection in Arkansas.`\
+https://www.nytimes.com/2026/11/05/movies/mouse-review.html
+
+**‘Hen’ Review: A Bird’s-Eye View**\
+`In this peculiar story, the Hungarian filmmaker Gyorgi Palfi follows a chicken who escapes slaughter and ends up in a pen alongside a criminal enterprise.`\
+https://www.nytimes.com/2026/11/05/movies/hen-review-a-birds-eye-view.html
+
+**‘Godzilla Minus Zero’ Review: Reprieve of Destruction**\
+`The belligerent beastie returns to terrorize the survivors of his previous rampage and battle a new foe in this dazzling, darkly haunted sequel.`\
+https://www.nytimes.com/2026/11/05/movies/godzilla-minus-zero-review-reprieve-of-destruction.html
+
+**‘De Gaulle: Résistance’ Review: Uniting a Country at War**\
+`This two-part film centers on Charles de Gaulle’s exile from France. As the Nazis close in, the Free French movement emerges.`\
+https://www.nytimes.com/2026/11/05/movies/de-gaulle-resistance-review.html
+
+**‘Club Kid’ Review: When the Lights Come Up**\
+`In his confident and exuberant directorial debut, Jordan Firstman stars as a party promoter who has to grow up.`\
+https://www.nytimes.com/2026/11/05/movies/club-kid-review.html
+
+**‘The Cat in the Hat’ Review: What Need Be Added to It That Is New?**\
+`The peppy animated version is filled with bold colors, half-decent jokes and a couple of catchy tunes.`\
+https://www.nytimes.com/2026/11/05/movies/the-cat-in-the-hat-review.html
+
+**The Happiest Silkworms in Queens**\
+`In an increasingly globalized and digital world, some artists and chefs are keeping things hyperlocal by cultivating their own materials.`\
+https://www.nytimes.com/2026/11/05/t-magazine/cultivate-fashion-decor-artists.html
+
+**Latinos Didn’t Come Back to Democrats Out of Loyalty**\
+`They are the indispensable swing bloc, and their votes will have to be won every cycle.`\
+https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.html
+
+**With V.R., Passive Concert Audiences Become Active Participants**\
+`Imaginative virtual reality projects in London bring listeners up close to the pianist Yuja Wang and let them perform with the Philharmonia Orchestra.`\
+https://www.nytimes.com/2026/11/05/arts/music/virtual-reality-classical-music.html
+
+**Tailoring’s Glamorous Turn**\
+`This fall, try classic pieces made from luxe materials — and paired with standout accessories.`\
+https://www.nytimes.com/2026/11/05/t-magazine/mens-tailored-fashion-outerwear.html
+
+**In the Style of P.C. Vey: The Funniest Reader Cartoons We Received**\
+`More than 200 people answered our call for cartoons in the spirit of P.C. Vey. Here are some of the best ones.`\
+https://www.nytimes.com/2026/11/05/business/media/pc-vey-new-yorker-cartoons.html
+
+**Latino Voters Reshape Electoral Map Once Again**\
+`In Texas, California and beyond, Hispanic voters shifted their support to Democratic candidates after siding with Republicans in 2024.`\
+https://www.nytimes.com/2026/11/05/us/politics/latino-voters-democrats.html
+
+**Why Trump’s Planned Arch Is Controversial**\
+`Our reporter Emily Badger visits the site of President Trump’s proposed 250-foot-tall triumphal arch.`\
+https://www.nytimes.com/video/us/politics/100000011226304/trump-triumphal-arch-dc.html
+
+**Secret Deals Reveal K-Pop’s Firm Grip on a Top Girl Group**\
+`NewJeans shattered records. Behind the scenes were unusually restrictive contracts, signed when the girls were ages 14 to 17.`\
+https://www.nytimes.com/interactive/2026/11/05/world/asia/kpop-newjeans-contract.html
+
+**Alex de Betak Reinvents His Life**\
+`Alex de Betak spent decades as a force in the fashion world. Tragedy and a new dream made him walk away. Here’s what happened next.`\
+https://www.nytimes.com/2026/11/05/style/reinventing-your-life.html
+
+**An Artist Who Won’t Avert Her Gaze From Violence**\
+`Teresa Margolles grapples with the traces of murder and disappearance. A survey at MoMA PS1 connects her projects in Mexico since the 2000s, and the United States today.`\
+https://www.nytimes.com/2026/11/05/arts/design/teresa-margolles-exhibition.html
+
+**Can Creatine Supplements Make Your Brain Stronger?**\
+`Their muscle-building benefits are well-established. Their mind-building benefits are another story.`\
+https://www.nytimes.com/2026/11/05/well/mind/creatine-supplements-brain-benefits.html
+
+**Word of the Day: fracas**\
+`This word has appeared in 27 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/05/learning/word-of-the-day-fracas.html
+
+**At the Root of K-Pop’s Controversies, a Restrictive Business Model**\
+`Labels exert extraordinary control over performers because only a few acts turn a profit.`\
+https://www.nytimes.com/2026/11/05/world/asia/how-kpop-works-contracts.html
+
+**Book Review: ‘The King Under the Mountain,’ by D.J. Taylor**\
+`D.J. Taylor’s new book is part biography and part critical study of the writer behind “The Lord of the Rings.”`\
+https://www.nytimes.com/2026/11/05/books/review/dj-taylor-jrr-tolkien.html
+
+**NYC’s Secret Budget Hotel Hack: Religious Guesthouses**\
+`Staying near prime tourist attractions in Manhattan can cost hundreds, even thousands, of dollars a night. These five properties welcome budget travelers of any faith.`\
+https://www.nytimes.com/2026/11/05/travel/new-york-city-cheap-hotels.html
+
+**A Graphic Novelist Gets to Know a Dictator, From Afar**\
+`For Keum Suk Gendry-Kim, imagining the life of North Korea’s leader was a risk worth taking, despite the backlash.`\
+https://www.nytimes.com/2026/11/05/books/review/keum-suk-gendry-kim-north-korea-dictator.html
+
 **What Shaped Anthropic CEO Dario Amodei’s Thinking on A.I.**\
 `Some call him a doomer. Others see him as a responsible technologist. Here’s how the Anthropic chief executive’s thinking on artificial intelligence was shaped.`\
 https://www.nytimes.com/2026/11/05/technology/dario-amodei-anthropic-ai.html
-
-**Anna Lambe of ‘North of North’ Puts Her Best Foot Forward**\
-`Anna Lambe can still go out in relative anonymity. But with her Indigenous Netflix sitcom returning and three new movies this fall, that may change soon.`\
-https://www.nytimes.com/2026/11/05/arts/television/anna-lambe-north-of-north.html
-
-**New Science Fiction and Fantasy**\
-`“The Subtle Art of Folding Space,” “Sublimation” and “Foundling Fathers” consider identity in worlds beyond our own.`\
-https://www.nytimes.com/2026/11/05/books/review/isabel-kim-john-chu-meg-elison.html
-
-**Was $500,000 Enough for a House in the Catskills?**\
-`Vanessa Sergeon loved her Brooklyn apartment, but there wasn’t much nature nearby.`\
-https://www.nytimes.com/quiz/2026/11/05/realestate/catskills-house-hunt.html
-
-**Democratic Health Professionals Win Seats in Congress**\
-`Some Democratic doctors and nurses ran and won congressional seats by centering their campaigns on opposing Health Secretary Robert F. Kennedy Jr.`\
-https://www.nytimes.com/video/us/politics/100000011264106/midterm-elections-doctors-nurses.html
-
-**Muslim Voters Thrilled by El-Sayed’s Victory in Michigan**\
-`Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
-https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
-
-**Across the U.S., Democrats Are Rejoicing. In Brooklyn, They’re Fighting.**\
-`Sarah Koenig goes inside the civil war playing out among Brooklyn Democrats.`\
-https://www.nytimes.com/2026/11/05/podcasts/influence-new-york-college-senior-democrats.html
-
-**15-Minute Lesson Plan: A.I. Music**\
-`Can you tell music made by humans from music made by machines? Does learning about the human process change what you hear?`\
-https://www.nytimes.com/2026/11/05/learning/15-minute-lesson-plan-ai-music.html
-
-**Here’s Who Is Meeting Israel’s President to Recommend a Prime Minister**\
-`Israeli party leaders are in discussions with President Isaac Herzog over who should get the first chance to form a governing coalition.`\
-https://www.nytimes.com/2026/11/05/world/middleeast/israel-herzog-prime-minister.html
-
-**Washington Is in a New York State of Mind**\
-`The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
-https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
-
-**He Felt Stuck in New York. So He Started Walking to California.**\
-`A Bronx native who’d spent his whole life in the city left on foot in May.`\
-https://www.nytimes.com/2026/11/05/nyregion/he-felt-stuck-in-new-york-so-he-started-walking-to-california.html
-
-**NYT Spelling Bee Answers for November 5, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/05/crosswords/spelling-bee-forum.html
-
-**Late Night Gets Carried Away by the Blue Wave**\
-`“There’s going to be so many Republicans leaving the Capitol it will look like a reverse January 6,” Jimmy Fallon said after Democrats swept the midterm elections.`\
-https://www.nytimes.com/2026/11/05/arts/television/latenight-midterms-blue-wave.html
-
-**First, France Had Riots and Protests. Now It’s Bracing for a General Strike.**\
-`More than 220 demonstrations are expected to take place across the country on Thursday, escalating weeks of protests against the rising cost of living.`\
-https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html
-
-**The New Zealand Election That Could ‘Flip the Table’**\
-`Support for the major parties — led by two men called Chris — is cratering, thanks to dissatisfaction with the economy. Minor parties stand to benefit from a desire among voters for change.`\
-https://www.nytimes.com/2026/11/05/world/australia/new-zealand-election-polls.html
-
-**Voters Are Turning Out in Droves to Cut Autocrats Down to Size**\
-`In country after country stricken by democratic decay, overwhelming turnout in elections is making a difference.`\
-https://www.nytimes.com/2026/11/05/world/europe/voters-are-turning-out-in-droves-to-cut-autocrats-down-to-size.html
-
-**From the Front Page: Trump Wins a Second Term on Nov. 5, 2024**\
-`Donald J. Trump was elected the 47th president of the United States, becoming the first president since Grover Cleveland to win nonconsecutive terms.`\
-https://www.nytimes.com/2026/11/05/learning/from-the-front-page-trump-wins-a-second-term-on-nov-5-2024.html
-
-**50 Best Restaurants in the World Announced for 2026**\
-`A live-fire luminary in the Basque region takes the top spot, while only one U.S. restaurant is recognized.`\
-https://www.nytimes.com/2026/11/04/dining/world-50-best-restaurants.html
-
-**Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
-`Mr. Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
-https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
-
-**The Bell Tolls for Trumpism**\
-`Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
-https://www.nytimes.com/video/opinion/100000011258478/the-bell-tolls-for-trumpism.html
-
-**NYT Crossword Answers for Nov. 5, 2026**\
-`Need help interpreting David P. Williams’s puzzle?`\
-https://www.nytimes.com/2026/11/04/crosswords/daily-puzzle-2026-11-05.html
-
-**‘The Lowdown’ Season 2 Episode 5 Recap: Have Gun, Will Gavel**\
-`Lee calls in a big favor and meets a new political player.`\
-https://www.nytimes.com/2026/11/04/arts/television/the-lowdown-season-2-episode-5-recap.html
-
-**Moderate Democrats Increase Their Numbers, and Their Clout**\
-`Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
-https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-midterms.html
-
-**Inside Team Trump’s Historic Collapse in the 2026 Midterm Elections**\
-`How an unpopular president and an unpopular war provided an opening for Democrats to make sweeping gains in the midterms.`\
-https://www.nytimes.com/2026/11/04/us/politics/trump-midterms-losses-republicans.html
-
-**Immigration Tactics Motivated Voters, Near and Far From Southern Border**\
-`Trump’s aggressive ICE raids brought border battles to city streets, sparking fierce backlash over overreach.`\
-https://www.nytimes.com/2026/11/04/us/immigration-voters-midterms.html
-
-**Court Strikes Down Nassau County Trans Athlete Ban in Another Blow to Blakeman**\
-`The ban, enacted in 2024, followed attempts by Bruce Blakeman, the county executive, to remove transgender athletes from sports facilities in the Long Island county.`\
-https://www.nytimes.com/2026/11/04/nyregion/trans-athlete-ban-nassau-county-blakeman.html
-
-**Golden State Valkyries Reign Supreme in San Francisco, a City of Start-Ups**\
-`San Francisco hosted a victory parade on Wednesday for the new W.N.B.A. champions, a team that’s not even two years old but has made the Bay Area swoon.`\
-https://www.nytimes.com/2026/11/04/us/golden-state-valkyries-san-francisco-parade.html
-
-**The Bell Tolls for Trumpism**\
-`Ezra Klein and Aaron Retica react to the Democratic Party’s major midterm victory.`\
-https://www.nytimes.com/2026/11/04/opinion/ezra-klein-podcast-aaron-retica-midterm-2026.html
-
-**Hispanic Voter Trends**\
-`Our election data reporter, Caroline Soler, outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
-https://www.nytimes.com/video/us/elections/100000011262277/hispanic-voter-trends.html
-
-**These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
-`The president’s approval was essential to winning Republican Senate primaries. It became lethal in competitive general-election races.`\
-https://www.nytimes.com/2026/11/04/us/trump-allies-defeated-midterms.html
-
-**How Kansas Democrats Laid the Groundwork for Adam Hamilton’s Senate Upset**\
-`A two-term Democratic governor and a suburban revolt against President Trump laid the groundwork for Adam Hamilton’s victory.`\
-https://www.nytimes.com/2026/11/04/us/kansas-adam-hamilton-democrats.html
-
-**Justice Alito Will Not Retire From Supreme Court Immediately, Despite Election Outcome**\
-`The conservative justice has told friends he does not plan to step down before the end of the court’s term, even as Democrats are set to seize the Senate in January.`\
-https://www.nytimes.com/2026/11/04/us/politics/alito-trump-supreme-court-not-retiring.html
-
-**How Democrats Swept Texas in the 2026 Elections: See Which G.O.P. Counties Flipped From 2024**\
-`Every county in Texas shifted left, voting more Democratic than two years ago when President Trump was on the ballot.`\
-https://www.nytimes.com/interactive/2026/11/04/us/elections/texas-midterm-shift-democrats.html
-
-**Hochul Leads a Democratic Surge in New York: 5 Takeaways**\
-`Gov. Kathy Hochul erased doubts over her performance in the 2022 midterms, scoring a crushing 20-point win over Bruce Blakeman that set the tone for her party.`\
-https://www.nytimes.com/2026/11/04/nyregion/democrats-hochul-ny-takeaways.html
-
-**World Leaders React to Republicans’ Defeat in U.S. Midterm Elections**\
-`Global leaders shared their reactions a day after Democrats routed the Republican Party in the midterm elections and were on track to control both the House and the Senate.`\
-https://www.nytimes.com/video/world/americas/100000011261951/trump-midterms-elections-world-reaction.html
-
-**Alaska and Mississippi Senate Races: What We Know About Vote Counts and Result Timing**\
-`Democrats are clinging to small leads in both states, and it may take quite a while until the winners are known.`\
-https://www.nytimes.com/2026/11/04/us/mississippi-alaska-senate-recount-provisional-ballots.html
-
-**Beverly Whipple Has Died. She Introduced the G-Spot to the Mainstream.**\
-`Dr. Whipple studied the female erogenous zone and, with collaborators, wrote a best seller about women’s sexuality. She was 85.`\
-https://www.nytimes.com/2026/11/04/science/beverly-whipple-g-spot-dead.html
-
-**Trump Wrestles With New Reality: A Lame Duck With Two Years Left to Fight**\
-`After a decade at the center of American politics, President Trump is politically wounded, with diminished power. Those who know him say the next two years will be unpredictable.`\
-https://www.nytimes.com/2026/11/04/us/politics/trump-new-role-lame-duck.html
-
-**Simon Winchester, Author of ‘The Professor and the Madman,’ Has Died**\
-`He was a geologist who switched careers and became a prolific and adventurous journalist. He died at 82.`\
-https://www.nytimes.com/2026/11/04/obituaries/simon-winchester-dead.html
-
-**Japan’s Subtle Fragrances Are a Good Choice for a Gift List**\
-`Experts say the country’s subtle fragrances are good choices for a gift list.`\
-https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
-
-**White House Delays Hearing on Fed Governor**\
-`The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
-https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
-
-**Bob Dylan Meets With Pope Leo**\
-`Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
-https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
-
-**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
-`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
-https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
-
-**‘Trump Could Be the Gift That Keeps on Giving’**\
-`Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
-https://www.nytimes.com/video/opinion/100000011263481/trump-could-be-the-gift-that-keeps-on-giving.html
-
-**The Blame Game Begins**\
-`Also, Democrats will have a huge majority in the House. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/11/04/briefing/midterm-election-results-congress-power.html
-
-**G.O.P. Group Says Party Faces a ‘Crisis-Level’ Loss of Elected Women**\
-`Democrats’ sweep of Congress further whittled the already small ranks of Republican women.`\
-https://www.nytimes.com/2026/11/04/us/women-republicans-congress.html
-
-**Abdul El-Sayed’s Senate Win Is Big to Muslim Americans, but Not Because of Faith**\
-`Abdul El-Sayed’s election to the Senate is significant not because he shares their religion, Muslim Americans said, but because he prioritizes issues that many voters care about.`\
-https://www.nytimes.com/2026/11/04/us/muslim-americans-el-sayed.html
-
-**Republicans React After Sweeping Losses in the Midterms**\
-`Several Republican candidates and leaders responded to the party’s sweeping losses on Tuesday.`\
-https://www.nytimes.com/video/us/elections/100000011262890/republicans-midterms-elections-reaction.html
-
-**Trump Media’s Shares Fall to Record Low After Midterms**\
-`Trump Media & Technology Group’s stock plunged 24 percent a day after Democrats made huge gains in the midterm elections.`\
-https://www.nytimes.com/2026/11/04/business/trump-media-truth-social-midterm-elections.html
-
-**Whose Idea Was the Billy Evans Shower Scene in ‘You Can See Everything’?**\
-`Billy Evans, Elizabeth Holmes’s romantic partner, rebutted an account of the origins of the jaw-dropping scene by one of the documentary’s directors.`\
-https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.html
 
