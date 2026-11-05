@@ -1,3 +1,7 @@
+**China Blocks SoftBank’s $5.4 Billion Robotics Takeover, Impeding Foreign Deals**\
+`Chinese authorities stopped the sale of ABB Robotics, owned by a Swiss conglomerate, to SoftBank of Japan amid wider scrutiny of global transactions that could affect Beijing’s technology ambitions.`\
+https://www.nytimes.com/2026/11/05/business/softbank-robotics-china-block.html
+
 **Map: 5.1-Magnitude Earthquake Shakes Tanzania**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/11/05/world/africa/earthquake-tracker-tanzania.html
