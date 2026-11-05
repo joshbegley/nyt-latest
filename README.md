@@ -66,8 +66,8 @@ https://www.nytimes.com/2026/11/05/opinion/maga-trump-midterms.html
 `What an amazing election night.`\
 https://www.nytimes.com/2026/11/05/opinion/trump-blue-wave-democrats.html
 
-**$400 Million Lost. SpaceX Stock Tanking. Elon Musk Had a Tough Election Night.**\
-`The vote was an epic rebuke of Silicon Valley.`\
+**Elon Musk’s Very Bad Night**\
+`The midterms vote was an epic rebuke of Silicon Valley.`\
 https://www.nytimes.com/2026/11/05/opinion/elon-musk-midterms-trump-results.html
 
 **In Victory, Democrats See Economic Mandate to Cut Costs and Curtail Trump**\
@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/11/05/movies/club-kid-review.html
 `The peppy animated version is filled with bold colors, half-decent jokes and a couple of catchy tunes.`\
 https://www.nytimes.com/2026/11/05/movies/the-cat-in-the-hat-review.html
 
+**The Hispanic Voter Backlash in 2 Charts**\
+`They are the indispensable swing bloc, and their votes will have to be won every cycle.`\
+https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.html
+
 **The Happiest Silkworms in Queens**\
 `In an increasingly globalized and digital world, some artists and chefs are keeping things hyperlocal by cultivating their own materials.`\
 https://www.nytimes.com/2026/11/05/t-magazine/cultivate-fashion-decor-artists.html
-
-**Latinos Didn’t Come Back to Democrats Out of Loyalty**\
-`They are the indispensable swing bloc, and their votes will have to be won every cycle.`\
-https://www.nytimes.com/2026/11/05/opinion/hispanic-voters-midterms-democrats.html
 
