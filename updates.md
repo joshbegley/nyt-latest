@@ -1,3 +1,11 @@
+**How Trump Is Reacting to the Midterm Results**\
+`In the days after Republicans suffered massive midterm election defeats, President Trump appeared unmoved. The New York Times’s White House correspondent Maggie Haberman explains how Trump’s public demeanor compares with what he has shared behind closed doors about voters’ frustration with some of his policies.`\
+https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-to-the-midterm-results.html
+
+**To Sweep Texas, Democrats Built ‘a Machine’ With Every Piece in Place**\
+`Years of organizing met a moment of voter discontent, as James Talarico and Gina Hinojosa offered Texans a message of economic relief and political change.`\
+https://www.nytimes.com/2026/11/05/us/texas-democrats-statewide-sweep.html
+
 **Finland Sends 2 Men to Prison for Damaging Undersea Cable in Baltic Sea**\
 `A Finnish court convicted the captain and boatswain of a cargo ship of aggravated criminal damage in relation to an incident last year in the Gulf of Finland.`\
 https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
