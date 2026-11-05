@@ -1,3 +1,7 @@
+**Inside Team Trump’s Historic Collapse in the 2026 Midterm Elections**\
+`How an unpopular president and an unpopular war provided an opening for Democrats to make sweeping gains in the midterms.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-midterms-losses-republicans.html
+
 **Moderate Democrats Increase Their Numbers, and Their Clout**\
 `Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
 https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-midterms.html
