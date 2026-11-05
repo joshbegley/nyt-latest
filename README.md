@@ -1,5 +1,5 @@
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
-`Ms. Dhillon set aside the division’s historic mission of fighting discrimination against Black people, instead battling campus antisemitism and diversity initiatives.`\
+`The move came after conflicts with Justice Department leaders, including disagreements over legal strategy in the midterm elections, people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
 
 **A ‘Hard Time’ for Vance: Tucker Carlson Thought the Iran War Would Doom the G.O.P.**\

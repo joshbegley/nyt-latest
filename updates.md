@@ -1,3 +1,7 @@
+**3 Are Injured in Shooting at Des Moines Post Office**\
+`A woman who works at the post office was taken into custody outside the building, the police said.`\
+https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
+
 **Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
 `Ms. Dhillon set aside the division’s historic mission of fighting discrimination against Black people, instead battling campus antisemitism and diversity initiatives.`\
 https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
