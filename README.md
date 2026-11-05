@@ -1,3 +1,7 @@
+**Is This the End of Trumpism?**\
+`“There’s no Trumpism. There was only ever Trump.” Ezra Klein and his editor, Aaron Retica, discuss the end of the Trump era on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpism.html
+
 **Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan**\
 `Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
 https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-tr
 **What Democrats Plan to Do Next, and What JD Vance Says Went Wrong**\
 `Plus, how K-pop controls its stars.`\
 https://www.nytimes.com/2026/11/05/podcasts/the-headlines/democrats-midterm-elections-jd-vance-kpop.html
-
-**The Voters Who Flipped Congress**\
-`The Times’s chief political analyst breaks down the results of the midterm elections.`\
-https://www.nytimes.com/2026/11/05/podcasts/the-daily/midterms-voters-who-flipped-congress.html
 
