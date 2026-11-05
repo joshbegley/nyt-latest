@@ -1,3 +1,7 @@
+**Muslim Voters Thrilled By El-Sayed’s Victory in Michigan**\
+`Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
+https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
+
 **Across the U.S., Democrats Are Rejoicing. In Brooklyn, They’re Fighting.**\
 `Sarah Koenig goes inside the civil war playing out among Brooklyn Democrats.`\
 https://www.nytimes.com/2026/11/05/podcasts/influence-new-york-college-senior-democrats.html

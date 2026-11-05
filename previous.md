@@ -1,3 +1,7 @@
+**Muslim Voters Thrilled By El-Sayed’s Victory in Michigan**\
+`Many Muslim Americans said they voted for Abdul El-Sayed, the first Muslim elected to the Senate, because of his policies, not just his faith.`\
+https://www.nytimes.com/video/us/elections/100000011263925/muslim-voters-thrilled-by-el-sayeds-victory-in-michigan.html
+
 **Across the U.S., Democrats Are Rejoicing. In Brooklyn, They’re Fighting.**\
 `Sarah Koenig goes inside the civil war playing out among Brooklyn Democrats.`\
 https://www.nytimes.com/2026/11/05/podcasts/influence-new-york-college-senior-democrats.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/04/us/trump-midterms-ballroom.html
 **Trump Administration Moves to Oust Arbitrators as Doctor Payouts Soar**\
 `The two companies settled billing disputes between doctors and insurers, keeping patients out of the middle. One let doctors win 96 percent of the time.`\
 https://www.nytimes.com/2026/11/04/health/arbitrators-medical-bills.html
-
-**Retracing the Night Katie Suarez Was Attacked During Her Jog in Brooklyn**\
-`Katie Suarez was a regular runner on a desolate stretch of the Brooklyn waterfront. On Friday, her parents went looking for her after she stopped returning phone calls.`\
-https://www.nytimes.com/2026/11/04/nyregion/katie-suarez-stabbing-brooklyn-jogger-nyc.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\
