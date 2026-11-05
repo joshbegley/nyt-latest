@@ -1,3 +1,15 @@
+**In Alaska, Ranked-Choice Ballots Are Unlikely to Be Enough for Dan Sullivan**\
+`An analysis shows Mary Peltola is likely to keep her lead in the Senate race in part because of ballots she’d accumulate in ranked-choice tabulation from supporters of the other Dan Sullivan.`\
+https://www.nytimes.com/2026/11/05/us/alaska-ranked-choice-data-sullivan-peltola.html
+
+**Carney Asserts Canada’s Sovereignty and Vows to End Homelessness in Budget**\
+`The prime minister’s second budget repeatedly stresses diversifying Canada’s economy away from the United States.`\
+https://www.nytimes.com/2026/11/05/world/canada/carney-sovereignty-federal-budget-trade.html
+
+**Trump Tried to Undermine the Nation’s Elections. It Didn’t Work.**\
+`Millions of Americans cast their ballots on Tuesday in an election that showed the resiliency of democracy. The president said he would accept the results.`\
+https://www.nytimes.com/2026/11/05/us/election-deniers-midterms-trump.html
+
 **Read the document**\
 `A letter sent to the Public Service Commission from 24 environmental groups about data centers.`\
 https://www.nytimes.com/interactive/2026/11/05/nyregion/dpsdatacenters.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011262413/what-people-get-wrong-abo
 **Is This the End of Trumpism?**\
 `“There’s no Trumpism. There was only ever Trump.” Ezra Klein and his editor, Aaron Retica, discuss the end of the Trump era on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpism.html
-
-**Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan**\
-`Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
-https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
-
-**3 Are Injured in Shooting at Des Moines Post Office**\
-`A woman who works at the post office was taken into custody outside the building, the police said.`\
-https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
-
-**Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
-`After days of protests, a new wage board created by Bangladesh’s government agreed to raise garment workers’ pay by the end of the year.`\
-https://www.nytimes.com/video/world/asia/100000011264109/bangladesh-garment-workers-protest-minimum-wage.html
 
