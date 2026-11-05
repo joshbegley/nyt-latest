@@ -1,3 +1,11 @@
+**Justice Dept. Steps Up Criminal Investigation of Supreme Court Abortion Leak**\
+`Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
+https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
+
+**How Democrats Won Across the South**\
+`They won Senate races in North Carolina, South Carolina and Georgia, with a Mississippi race still too close to call. Their wins lifted down-ballot candidates too.`\
+https://www.nytimes.com/2026/11/05/us/politics/midterms-southern-democrats.html
+
 **Vance and the Art of Finger-Pointing**\
 `Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
 https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
@@ -54,8 +62,8 @@ https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpis
 `Lana Nusseibeh, one of the Gulf nation’s top diplomats, has led the effort to deny her country’s role in Sudan. Now it’s complicating her bid to become secretary general of the United Nations.`\
 https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
 
-**At Least 3 Are Injured in Shooting at Des Moines Post Office**\
-`A suspect was taken into custody outside the building, the police said.`\
+**3 Are Injured in Shooting at Des Moines Post Office**\
+`A woman who works at the post office was taken into custody outside the building after the building, the police said.`\
 https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
 
 **Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/05/world/europe/british-ebola-case-congo-uk.html
 **How Trump Is Reacting to the Midterm Results**\
 `In the days after Republicans suffered massive midterm election defeats, President Trump appeared unmoved. The New York Times’s White House correspondent Maggie Haberman explains how Trump’s public demeanor compares with what he has shared behind closed doors about voters’ frustration with some of his policies.`\
 https://www.nytimes.com/video/us/politics/100000011262332/how-trump-is-reacting-to-the-midterm-results.html
-
-**Finland Sends 2 Men to Prison for Damaging Undersea Cable in Baltic Sea**\
-`A Finnish court convicted the captain and boatswain of a cargo ship of aggravated criminal damage in relation to an incident last year in the Gulf of Finland.`\
-https://www.nytimes.com/2026/11/05/world/europe/finland-fitburg-russia-ship-baltic-cables-sabotage.html
-
-**Midterm Elections Live Updates: Democrats Expand House Majority as Lead in Mississippi Senate Race Grows**\
-`Democrats flipped three more House seats. In Mississippi, Scott Colom, the Democratic candidate for Senate, leads the Republican incumbent, Cindy Hyde-Smith, by a little more than 1,700 votes.`\
-https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
 
