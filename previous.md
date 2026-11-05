@@ -1,3 +1,11 @@
+**Trump Takes Fresh Aim at Alaska, Still Counting Its Senate Results**\
+`Mary Peltola, the Democrat, was leading Senator Dan Sullivan, the Republican, in incomplete returns. A New York Times analysis suggested she was on track to prevail.`\
+https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-what-to-know.html
+
+**The Painter Who’s Been Hiding in Plain Sight for Nearly 50 Years**\
+`Ahead of an exhibition in New York, Takako Yamaguchi discusses her process and what it was like to be discovered so long after she began.`\
+https://www.nytimes.com/2026/11/05/t-magazine/takako-yamaguchi-ortuzar.html
+
 **Bird Flu Death in Washington State Renews Concern Over the Virus**\
 `The death follows reports of infections in cattle on dozens of American farms across the country over the past month and a worrying outbreak in mink.`\
 https://www.nytimes.com/2026/11/05/health/bird-flu-death-us.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/us/politics/midterms-southern-democrats.html
 **Vance and the Art of Finger-Pointing**\
 `Readers respond to articles about Vice President JD Vance. Also: Votes not for sale; the Iran war; air pollution and cancer; benefits of exercise.`\
 https://www.nytimes.com/2026/11/05/opinion/vance-trump-iran-midterms.html
-
-**Salads Rife With Apple, Cheesy Galette Filled With Pear**\
-`It’s savory fruit season, folks.`\
-https://www.nytimes.com/2026/11/05/dining/salads-rife-with-apple-cheesy-galette-filled-with-pear.html
-
-**‘I Play Rocky’ Review: He’s a Champion**\
-`The movie follows Sly (a charming Anthony Ippolito) from hard-scrabbling anonymity in New York to the first flush of success as a screenwriter and actor.`\
-https://www.nytimes.com/2026/11/05/movies/i-play-rocky-review-sylvester-stallone.html
 

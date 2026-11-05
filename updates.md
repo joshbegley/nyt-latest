@@ -1,3 +1,11 @@
+**Trump Takes Fresh Aim at Alaska, Still Counting Its Senate Results**\
+`Mary Peltola, the Democrat, was leading Senator Dan Sullivan, the Republican, in incomplete returns. A New York Times analysis suggested she was on track to prevail.`\
+https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-what-to-know.html
+
+**The Painter Who’s Been Hiding in Plain Sight for Nearly 50 Years**\
+`Ahead of an exhibition in New York, Takako Yamaguchi discusses her process and what it was like to be discovered so long after she began.`\
+https://www.nytimes.com/2026/11/05/t-magazine/takako-yamaguchi-ortuzar.html
+
 **Bird Flu Death in Washington State Renews Concern Over the Virus**\
 `The death follows reports of infections in cattle on dozens of American farms across the country over the past month and a worrying outbreak in mink.`\
 https://www.nytimes.com/2026/11/05/health/bird-flu-death-us.html
