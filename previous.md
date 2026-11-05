@@ -1,3 +1,7 @@
+**These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
+`The president’s approval was essential to winning Republican Senate primaries. It became lethal in competitive general-election races.`\
+https://www.nytimes.com/2026/11/04/us/trump-allies-defeated-midterms.html
+
 **How Kansas Democrats Laid the Groundwork for Adam Hamilton’s Senate Upset**\
 `A two-term Democratic governor and a suburban revolt against President Trump laid the groundwork for Adam Hamilton’s victory.`\
 https://www.nytimes.com/2026/11/04/us/kansas-adam-hamilton-democrats.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/04/technology/midterm-elections-ai-data-centers.
 **On the Democrats’ Agenda: Investigations of Trump and His Family**\
 `When a new Congress is sworn in, it will have the power to hold hearings and issue subpoenas, prompting one representative to advise White House officials and others to “lawyer up.”`\
 https://www.nytimes.com/2026/11/04/us/trump-family-investigations-democrats.html
-
-**How Trump’s Energy Policies Helped Trigger Midterm Rout**\
-`The war in Iran, efforts to promote fossil fuels and attacks on renewable energy contributed to higher prices for gas and electricity that drove voter discontent.`\
-https://www.nytimes.com/2026/11/04/climate/trump-fossil-fuel-energy-policy-election.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

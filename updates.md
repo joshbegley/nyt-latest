@@ -1,3 +1,7 @@
+**These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
+`The president’s approval was essential to winning Republican Senate primaries. It became lethal in competitive general-election races.`\
+https://www.nytimes.com/2026/11/04/us/trump-allies-defeated-midterms.html
+
 **How Kansas Democrats Laid the Groundwork for Adam Hamilton’s Senate Upset**\
 `A two-term Democratic governor and a suburban revolt against President Trump laid the groundwork for Adam Hamilton’s victory.`\
 https://www.nytimes.com/2026/11/04/us/kansas-adam-hamilton-democrats.html
