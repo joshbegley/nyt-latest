@@ -1,3 +1,19 @@
+**Washington Is in a New York State of Mind**\
+`The Democratic surge on Election Day is expected to lead to New Yorkers occupying the top echelons of power in the U.S. government. The state could benefit.`\
+https://www.nytimes.com/2026/11/05/nyregion/jeffries-schumer-trump-new-yorkers.html
+
+**He Felt Stuck in New York. So He Started Walking to California.**\
+`A Bronx native who’d spent his whole life in the city left on foot in May.`\
+https://www.nytimes.com/2026/11/05/nyregion/he-felt-stuck-in-new-york-so-he-started-walking-to-california.html
+
+**NYT Spelling Bee Answers for November 5, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/05/crosswords/spelling-bee-forum.html
+
+**Late Night Gets Carried Away by the Blue Wave**\
+`“There’s going to be so many Republicans leaving the Capitol it will look like a reverse January 6,” Jimmy Fallon said after Democrats swept the midterm elections.`\
+https://www.nytimes.com/2026/11/05/arts/television/latenight-midterms-blue-wave.html
+
 **Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison**\
 `Mr. Wong, one of the most high-profile members of a movement that was quashed in 2020, was accused of conspiracy to collude with foreign forces, a national security offense.`\
 https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html
