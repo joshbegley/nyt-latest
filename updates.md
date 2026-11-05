@@ -1,3 +1,7 @@
+**Rubio Rejects Reports He Will Leave His Jobs to Run for President**\
+`President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
+https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
+
 **Trump Takes Fresh Aim at Alaska, Still Counting Its Senate Results**\
 `Mary Peltola, the Democrat, was leading Senator Dan Sullivan, the Republican, in incomplete returns. A New York Times analysis suggested she was on track to prevail.`\
 https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-what-to-know.html

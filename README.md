@@ -1,3 +1,11 @@
+**Harriet Hancock, a Force in South Carolina’s Gay Rights Movement, Has Died**\
+`She became an early and leading activist for gay and lesbian rights in a time and place where that was extremely rare. She was 89.`\
+https://www.nytimes.com/2026/11/05/us/harriet-hancock-dead.html
+
+**Art Gallery Shows to See in November**\
+`This week in Newly Reviewed, Andrew Russeth covers Gedi Sibony’s scavenger hunt, Mildred Thompson’s vivid planets, Fiona Tan’s voices and ghosts, and Ben Kinmont’s archives.`\
+https://www.nytimes.com/2026/11/05/arts/art-gallery-shows-to-see-in-november.html
+
 **Rubio Rejects Reports He Will Leave His Jobs to Run for President**\
 `President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
 https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.
 **Man Who Stole the Home of a Dying Woman Pleads Guilty**\
 `In the first deed theft conviction under a New York State law, Victor Quimis, of Queens, admitted to stealing the home of the woman using forged signatures.`\
 https://www.nytimes.com/2026/11/05/nyregion/deed-theft-guilty-victor-quimis-nyc.html
-
-**DOJ Steps Up Leak Investigation on Supreme Court Decision Overturning Roe v. Wade**\
-`Investigators, using subpoenas and other law enforcement powers, are accelerating an inquiry that takes the Trump administration into the inner workings of the court.`\
-https://www.nytimes.com/2026/11/05/us/politics/supreme-court-trump-abortion-leak-dobbs.html
-
-**How Democrats Won Across the South**\
-`They won Senate races in North Carolina, South Carolina and Georgia, with a Mississippi race still too close to call. Their wins lifted down-ballot candidates too.`\
-https://www.nytimes.com/2026/11/05/us/politics/midterms-southern-democrats.html
 
