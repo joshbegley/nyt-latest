@@ -1,3 +1,11 @@
+**For Democrats, Midterm Wins Bring New Challenge**\
+`The Democrats’ sweeping midterm victory put the party in control of Congress, but that did little to settle the debate over the best ideological path forward. Lisa Lerer, a national political correspondent, explains where moderates and progressives agree, including affordability and oversight, and where they remain divided.`\
+https://www.nytimes.com/video/us/politics/100000011261785/for-democrats-midterm-wins-bring-new-challenge.html
+
+**Paraguay’s President, Santiago Peña, Quits Amid Ueno Bank Scandal**\
+`The president of the South American nation, Santiago Peña, has apologized for failing to prevent its worst financial crisis in decades.`\
+https://www.nytimes.com/2026/11/05/world/americas/paraguay-santiago-pena-resigns.html
+
 **In Alaska, Ranked-Choice Ballots Are Unlikely to Be Enough for Dan Sullivan**\
 `An analysis shows Mary Peltola is likely to keep her lead in the Senate race in part because of ballots she’d accumulate in ranked-choice tabulation from supporters of the other Dan Sullivan.`\
 https://www.nytimes.com/2026/11/05/us/alaska-ranked-choice-data-sullivan-peltola.html
@@ -99,7 +107,7 @@ https://www.nytimes.com/2026/11/05/us/jewish-reaction-el-sayed-israel.html
 https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west.html
 
 **Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
-`Gov. Gavin Newsom, who is expected to run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
+`Gov. Gavin Newsom, who is considering a run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
 https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
 
 **How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/style/samuel-braslow-cancer-kalie-ann-nassour
 **Parents Sue Google Over A.I. Safety Risks on School Chromebooks**\
 `A student made plans to end her life after chatting with Google’s artificial intelligence, a new lawsuit claims, amid mounting concerns about online harms to children.`\
 https://www.nytimes.com/2026/11/05/technology/ai-safety-school-chromebooks-google-lawsuit.html
-
-**What People Get Wrong About Sex Work**\
-`Paloma Karr, a sex worker and writer, tells Anna Martin, host of the “Modern Love” podcast, what she believes are the biggest misconceptions about her job.`\
-https://www.nytimes.com/video/podcasts/100000011262413/what-people-get-wrong-about-sex-work.html
-
-**Is This the End of Trumpism?**\
-`“There’s no Trumpism. There was only ever Trump.” Ezra Klein and his editor, Aaron Retica, discuss the end of the Trump era on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpism.html
 
