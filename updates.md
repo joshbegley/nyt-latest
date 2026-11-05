@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | Nov. 9, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-picture-nov-9-2026.html
+
 **3 Spots for Pizza That Break the Mold**\
 `In honor of our updated list of the best pizza in New York City — some off-the-beaten-path choices.`\
 https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
