@@ -1,3 +1,7 @@
+**Hegseth Lashes Out at Critics Calling for His Firing**\
+`In a new video, the defense secretary vowed to “finish what we have started.” Some Republicans say the Iran war was a big factor in their party’s midterm losses.`\
+https://www.nytimes.com/2026/11/05/us/politics/hegseth-video-midterms-trump.html
+
 **Cait Conley Flips N.Y. Swing Seat for Democrats, Ousting Mike Lawler**\
 `A ballot-counting issue in the key suburban district delayed the official result, but even before the race was called, Mr. Lawler conceded to Ms. Conley.`\
 https://www.nytimes.com/2026/11/05/nyregion/new-york-house-17-lawler-conley.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/style/yeezy-season-01-fashion-show-kanye-west
 **Newsom Commutes the Sentences of California’s 548 Death Row Inmates**\
 `Gov. Gavin Newsom, who is considering a run for president, called capital punishment morally objectionable. Though California hasn’t executed anyone for 20 years, that represents about a quarter of death sentences nationwide.`\
 https://www.nytimes.com/2026/11/05/us/california-death-row-newsom-commutation.html
-
-**How Did My Chemical Romance Top the Chart With a 20-Year-Old Album?**\
-`A reissue of “The Black Parade” topped Olivia Rodrigo and Morgan Wallen for the No. 1 album in the country this week.`\
-https://www.nytimes.com/2026/11/05/arts/music/my-chemical-romance-black-parade-no-1-album.html
 

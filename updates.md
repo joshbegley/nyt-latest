@@ -1,3 +1,7 @@
+**Hegseth Lashes Out at Critics Calling for His Firing**\
+`In a new video, the defense secretary vowed to “finish what we have started.” Some Republicans say the Iran war was a big factor in their party’s midterm losses.`\
+https://www.nytimes.com/2026/11/05/us/politics/hegseth-video-midterms-trump.html
+
 **Cait Conley Flips N.Y. Swing Seat for Democrats, Ousting Mike Lawler**\
 `A ballot-counting issue in the key suburban district delayed the official result, but even before the race was called, Mr. Lawler conceded to Ms. Conley.`\
 https://www.nytimes.com/2026/11/05/nyregion/new-york-house-17-lawler-conley.html
