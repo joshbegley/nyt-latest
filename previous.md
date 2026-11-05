@@ -1,3 +1,7 @@
+**Harmeet Dhillon, Leader of Justice Department’s Civil Rights Unit, Resigns**\
+`Ms. Dhillon set aside the division’s historic mission of fighting discrimination against Black people, instead battling campus antisemitism and diversity initiatives.`\
+https://www.nytimes.com/2026/11/05/us/politics/harmeet-dhillon-resigns-doj-civil-rights-unit.html
+
 **A ‘Hard Time’ for Vance: Tucker Carlson Thought the Iran War Would Doom the G.O.P.**\
 `On an episode of “The Interview” in May, Tucker Carlson shared his thoughts about the political repercussions of the Iran war. After the midterm elections, JD Vance echoed the sentiment in a social media post on Wednesday, placing the blame for the G.O.P.’s election wipeout squarely on the war.`\
 https://www.nytimes.com/video/podcasts/100000011263626/a-hard-time-for-vance-tucker-carlson-thought-the-iran-war-would-doom-the-gop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest
 **Protesters Fill Streets Across France During Nationwide Strike**\
 `Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
 https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html
-
-**The Met Announces New Theme After Backlash**\
-`Vanessa Friedman, The New York Times’s chief fashion critic, discusses the new theme for the 2027 Met Gala. The previous one had been set to honor John Galliano, a designer with a history of antisemitic remarks who withdrew from a planned exhibition.`\
-https://www.nytimes.com/video/style/100000011262709/the-met-announces-new-theme-after-backlash.html
 

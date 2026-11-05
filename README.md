@@ -91,7 +91,7 @@ https://www.nytimes.com/video/opinion/100000011258483/is-this-the-end-of-trumpis
 https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html
 
 **3 Are Injured in Shooting at Des Moines Post Office**\
-`A woman who works at the post office was taken into custody after the shooting, the police said.`\
+`A woman who works at the post office was taken into custody outside the building, the police said.`\
 https://www.nytimes.com/2026/11/05/us/des-moines-post-office-shooting-iowa.html
 
 **Bangladesh to Raise Garment Workers’ Minimum Wage After Protests**\
