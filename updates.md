@@ -1,3 +1,7 @@
+**Protesters Fill Streets Across France During Nationwide Strike**\
+`Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
+https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html
+
 **The Met Announces New Theme After Backlash**\
 `Vanessa Friedman, The New York Times’s chief fashion critic, discusses the new theme for the 2027 Met Gala. The previous one had been set to honor John Galliano, a designer with a history of antisemitic remarks who withdrew from a planned exhibition.`\
 https://www.nytimes.com/video/style/100000011262709/the-met-announces-new-theme-after-backlash.html

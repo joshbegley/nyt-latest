@@ -1,3 +1,7 @@
+**Bangladesh Agrees to Raise Minimum Wage for Garment Workers After Protests**\
+`Hundreds of garment factories were shut down this week as workers in the country, the world’s second-largest exporter of clothing, demonstrated for higher pay.`\
+https://www.nytimes.com/2026/11/05/world/asia/bangladesh-garment-workers-protest-wage.html
+
 **Protesters Fill Streets Across France During Nationwide Strike**\
 `Hundreds of thousands of protesters took to the streets in France as a union-organized day of demonstrations affected services across the country.`\
 https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strikes-paris.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/video/world/europe/100000011264350/france-protests-strik
 https://www.nytimes.com/video/style/100000011262709/the-met-announces-new-theme-after-backlash.html
 
 **Russell Brand Is Found Guilty of Rape and Sexual Assault**\
-`The judge said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
+`The judge in London said the popular conspiratorial YouTuber and former movie star would be sentenced to “significant custodial time.”`\
 https://www.nytimes.com/2026/11/05/arts/russell-brand-rape-sexual-assault-trial-verdict.html
 
 **How Colom Changed a Long Shot in Mississippi Into a Race Too Close to Call**\
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/11/05/crosswords/strands-sidekick-978.html
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 6, 2026.`\
 https://www.nytimes.com/2026/11/05/crosswords/wordle-review-1966.html
 
-**6 Are Killed in Fire That Tore Through Sunset Park Low-Rise**\
+**6 Killed in Sunset Park Blaze: NYC’s Deadliest Fire This Year**\
 `Seven people were also injured in the blaze, which engulfed a two-story building in Sunset Park.`\
 https://www.nytimes.com/2026/11/05/nyregion/brooklyn-fire-sunset-park.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/realestate/is-your-hoa-fee-rising-youre-not-a
 **Tiny Chihuahuas Hold a Big Surprise: A Sliver of Coyote DNA**\
 `The breed is descended from indigenous canines, which may have been intentionally mixed with wild coyotes long before Europeans arrived in the Americas.`\
 https://www.nytimes.com/2026/11/05/science/chihuahuas-coyote-dna.html
-
-**‘Jimmy’ Review: Cornball? Absolutely. But Heck, It’s Got Heart.**\
-`Aaron Burns’s sticky-sweet biopic maps a connection between Jimmy Stewart’s military service and “It’s a Wonderful Life.”`\
-https://www.nytimes.com/2026/11/05/movies/jimmy-review.html
 
