@@ -1,3 +1,7 @@
+**Environmental Ballot Wins**\
+`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
+https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
+
 **Dozens Are Rescued in Georgia and Tennessee After Heavy Rain**\
 `More than 100 people were rescued by boat on both sides of the state line as the Toccoa River reached “catastrophic” flooding levels, officials said.`\
 https://www.nytimes.com/2026/11/05/weather/flooding-georgia-tennessee.html
@@ -65,10 +69,6 @@ https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza
 **Russell Brand Found Guilty of Rape and Sexual Assault**\
 `Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
 https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
-
-**Environmental Ballot Wins**\
-`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
-https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
 
 **What Teenagers Are Saying About Childhood Independence**\
 `Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
