@@ -1,3 +1,15 @@
+**Moderate Democrats Increase Their Numbers, and Their Clout**\
+`Victories by moderates in competitive or Republican-leaning states and districts paved the way for large new Democratic majorities likely to be shaped by their priorities.`\
+https://www.nytimes.com/2026/11/04/us/politics/moderate-democrats-increased-clout.html
+
+**‘I Have Seen the Enemy, and It Is Us’: Inside Team Trump’s Historic Collapse**\
+`How an unpopular president and an unpopular war provided an opening for Democrats to make sweeping gains in the midterms.`\
+https://www.nytimes.com/2026/11/04/us/politics/trump-midterms-losses-republicans.html
+
+**Immigration Tactics Motivated Voters, Near and Far From Southern Border**\
+`Trump’s aggressive ICE raids brought border battles to city streets, sparking fierce backlash over overreach.`\
+https://www.nytimes.com/2026/11/04/us/immigration-voters-midterms.html
+
 **Court Strikes Down Nassau County Trans Athlete Ban in Another Blow to Blakeman**\
 `The ban, enacted in 2024, followed attempts by Bruce Blakeman, the county executive, to remove transgender athletes from sports facilities in the Long Island county.`\
 https://www.nytimes.com/2026/11/04/nyregion/trans-athlete-ban-nassau-county-blakeman.html
@@ -102,7 +114,7 @@ https://www.nytimes.com/2026/11/04/movies/billy-evans-you-can-see-everything.htm
 `Americans are ready for a different kind of politics, and that showed up in the election results, the Opinion contributing writer E.J. Dionne Jr. argues. “People are tired of the division. They’re tired of wasting time. They’re tired of stupidity and ballrooms and wars,” he says.`\
 https://www.nytimes.com/video/opinion/100000011263294/tired-of-stupidity-and-ballrooms-and-wars.html
 
-**‘It Was Never Enough’: Susan Collins Couldn’t Outrun Trump**\
+**‘It Is Never Enough’: Susan Collins Couldn’t Outrun Trump**\
 `The Maine Republican survived tough cycles in the past even as the political ground shifted beneath her. But the anti-Trump fever in her state doomed her this time.`\
 https://www.nytimes.com/2026/11/04/us/politics/susan-collins-defeat-donald-trump.html
 
@@ -177,18 +189,6 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011262704/how-talarico-pl
 **Vegan Maple Ginger Pie**\
 `Like a ginger ale at 30,000 feet, this zippy pie might just be the thing to settle your stomach after a Thanksgiving feast.`\
 https://www.nytimes.com/video/dining/100000011223069/vegan-maple-ginger-pie.html
-
-**Cranberry Tiramisù**\
-`Though this tiramisù doesn’t come with espresso, its tangy cranberry juice-soaked ladyfingers and cranberry sauce drizzled between airy cream layers deliver an invigorating midday or post-dinner pick-me-up.`\
-https://www.nytimes.com/video/dining/100000011255203/cranberry-tiramisu.html
-
-**Coconut Fish and Tomato Bake**\
-`A coconut-milk dressing infused with garlic, ginger, turmeric and lime coats fish fillets in this sheet-pan dinner. Accompanying the fish are bright bursts of tomatoes which turn jammy under the broiler and relinquish some of their juices to the pan sauce.`\
-https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bake.html
-
-**Tini Younger’s Mac and Cheese**\
-`This is the stunningly cheesy recipe that made Tini Younger the most popular woman chef on TikTok after she posted it in 2023.`\
-https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

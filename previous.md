@@ -1,3 +1,7 @@
+**Court Strikes Down Nassau County Trans Athlete Ban in Another Blow to Blakeman**\
+`The ban, enacted in 2024, followed attempts by Bruce Blakeman, the county executive, to remove transgender athletes from sports facilities in the Long Island county.`\
+https://www.nytimes.com/2026/11/04/nyregion/trans-athlete-ban-nassau-county-blakeman.html
+
 **Golden State Valkyries Reign Supreme in San Francisco, a City of Start-Ups**\
 `San Francisco hosted a victory parade on Wednesday for the new W.N.B.A. champions, a team that’s not even two years old but has made the Bay Area swoon.`\
 https://www.nytimes.com/2026/11/04/us/golden-state-valkyries-san-francisco-parade.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/11/04/us/golden-state-valkyries-san-francisco-parad
 https://www.nytimes.com/2026/11/04/opinion/ezra-klein-podcast-aaron-retica-midterm-2026.html
 
 **Hispanic Voter Trends**\
-`Our election data reporter Caroline Soler outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
+`Our election data reporter, Caroline Soler, outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
 https://www.nytimes.com/video/us/elections/100000011262277/hispanic-voter-trends.html
 
 **These Republicans Bet Big on Trump. It Didn’t Pay Off.**\
@@ -58,13 +62,13 @@ https://www.nytimes.com/2026/11/04/fashion/gifts-japan-fragrances-matcha.html
 `The administration pushed back a hearing for Lisa D. Cook, the Federal Reserve governor that President Trump has tried to fire, after her lawyers raised scheduling issues.`\
 https://www.nytimes.com/2026/11/04/business/trump-lisa-cook-fed-governor.html
 
-**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
-`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
-https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
-
 **Bob Dylan Meets With Pope Leo**\
 `Pope Leo wore his usual white vestments. Bob Dylan visited the Vatican in a hooded sweatshirt and polka-dot tie. There was no singing.`\
 https://www.nytimes.com/2026/11/04/world/europe/bob-dylan-pope-leo.html
+
+**After 3 Months Lost at Sea, Five Survivors Are Rescued on Remote Island**\
+`A boat in Micronesia went missing in July. This weekend, five of its passengers landed, unclothed and emaciated, on an island in Kiribati — more than 3,000 miles away.`\
+https://www.nytimes.com/2026/11/04/world/asia/micronesia-boat-survivors-found.html
 
 **‘Trump Could Be the Gift That Keeps on Giving’**\
 `Herbert Hoover and the Great Depression united Democrats for election after election. The Opinion contributing writer E.J. Dionne Jr. argues Trump could become a Hoover-like figure in the years ahead. “When people look back on this,” he says, “they’re going to ask, ‘What were we doing as a country in this period?’”`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/dining/100000011255767/coconut-fish-and-tomato-bak
 **Tini Younger’s Mac and Cheese**\
 `This is the stunningly cheesy recipe that made Tini Younger the most popular woman chef on TikTok after she posted it in 2023.`\
 https://www.nytimes.com/video/dining/100000011255754/tini-youngers-mac-and-cheese.html
-
-**Colom Makes Confident Speech as Vote Count Continues in Mississippi**\
-`The Democratic candidate for Senate, Scott Colom, led his opponent, Senator Cindy Hyde-Smith, by a razor-thin margin as of Wednesday afternoon.`\
-https://www.nytimes.com/video/us/elections/100000011262369/mississippi-midterms-elections-senate-colom.html
 
 **Midterm Elections Live Updates: Democrats Project Power as G.O.P. Reels in a Reordered Washington**\
 `Representative Hakeem Jeffries, expected to be the next House speaker, said his party would focus on affordability after seizing control of Congress. President Trump focused on his renovation projects as Republicans grasped for answers.`\

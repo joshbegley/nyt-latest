@@ -1,3 +1,11 @@
+**Court Strikes Down Nassau County Trans Athlete Ban in Another Blow to Blakeman**\
+`The ban, enacted in 2024, followed attempts by Bruce Blakeman, the county executive, to remove transgender athletes from sports facilities in the Long Island county.`\
+https://www.nytimes.com/2026/11/04/nyregion/trans-athlete-ban-nassau-county-blakeman.html
+
+**Hispanic Voter Trends**\
+`Our election data reporter, Caroline Soler, outlines how the Hispanic vote played out in three key states, according to Times Voter Trend estimates.`\
+https://www.nytimes.com/video/us/elections/100000011262277/hispanic-voter-trends.html
+
 **Trump Wrestles With New Reality: A Lame Duck With Two Years Left to Fight**\
 `After a decade at the center of American politics, President Trump is politically wounded, with diminished power. Those who know him say the next two years will be unpredictable.`\
 https://www.nytimes.com/2026/11/04/us/politics/trump-new-role-lame-duck.html
