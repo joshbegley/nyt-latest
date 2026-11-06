@@ -1,3 +1,7 @@
+**Dominic Fike on Public Breakups, ‘Babydoll,’ Fatherhood & Sobriety**\
+`Watch the full conversation with Dominic Fike. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011260426/dominic-fike-on-public-breakups-babydoll-fatherhood-sobriety.html
+
 **2026 Midterms Data: How Democrats Won the Largest House Majority Since 2008**\
 `Democrats are on track to win the largest House majority since 2008, when they won 257 seats.`\
 https://www.nytimes.com/interactive/2026/11/05/us/elections/democrats-house-majority-midterms-data.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/opinion/republicans-jd-vance-weirdo-right.htm
 **Strand Bookstore to Pay U.S. $1.5 Million Over Pandemic-Relief Loan**\
 `The store agreed to settle a claim that it was not entitled to the loan because its owner is married to a U.S. senator.`\
 https://www.nytimes.com/2026/11/05/nyregion/strand-bookstore-pay-pandemic-loan-nyc.html
-
-**This Is What the Big Tent Looks Like**\
-`On “The Ezra Klein Show,” Ezra Klein argues that “the big tent is real” and breaks down Democratic showings in North Carolina, Georgia, Kansas and Mississippi.`\
-https://www.nytimes.com/video/opinion/100000011258482/this-is-what-the-big-tent-looks-like.html
 
