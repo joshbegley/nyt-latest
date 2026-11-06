@@ -1,3 +1,7 @@
+**What to Know About Stephen Miller, Trump’s New Chief of Staff**\
+`The architect of President Trump’s mass deportation campaign, Mr. Miller has been the public face of many of Mr. Trump’s immigration policies.`\
+https://www.nytimes.com/2026/11/06/us/politics/stephen-miller-white-house-chief-staff.html
+
 **Susie Wiles Is First High-Level Official to Leave Trump Administration After Midterms**\
 `Four cabinet officials left their positions in the Trump administration earlier this year`\
 https://www.nytimes.com/2026/11/06/us/susie-wiles-replaced-trump-chief-of-staff.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
 **Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
 `The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
 https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
-
-**Houston Police to Stop Alerting ICE During Traffic Stops**\
-`Mayor John Whitmire has instructed Houston police to stop notifying immigration agents when they encounter someone without legal status during routine street stops.`\
-https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ice-cooperation.html
 
