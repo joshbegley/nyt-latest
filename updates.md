@@ -1,3 +1,11 @@
+**The Major U.S. Cities That Have Elected Democratic Socialist Mayors**\
+`Nithya Raman’s win in Los Angeles adds to the list of major cities with democratic socialist leaders.`\
+https://www.nytimes.com/2026/11/05/us/elections/democratic-socialist-mayors.html
+
+**Watch Live: What the Midterm Elections Are Telling Us About 2028**\
+`Live from the Brooklyn Public Library, Jamelle Bouie, Michelle Cottle and David French discuss the midterm election results and look ahead to 2028.`\
+https://www.nytimes.com/2026/11/05/opinion/midterm-election-trump-bouie-cottle-french.html
+
 **‘Let’s Go, Bahhston’: Logan Airport Chooses Its New Voice**\
 `A pipe fitter from Massachusetts beat out thousands of other applicants to provide the voice that welcomes travelers to Boston Logan Airport.`\
 https://www.nytimes.com/2026/11/05/us/voice-of-logan-airport-boston-winner.html
