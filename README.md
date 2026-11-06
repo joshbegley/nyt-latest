@@ -1,3 +1,7 @@
+**Police Officer Killed in Shootout on Bus in Colorado**\
+`Three other officers and a civilian were injured after a man opened fire on officers who pursued him onto a bus outside Denver, the authorities said. The gunman was shot dead by the police.`\
+https://www.nytimes.com/2026/11/06/us/lakewood-police-shooting-colorado-bus-dead.html
+
 **Quote of the Day: After Winning Shield, Gotham Sets Sights on Another Title**\
 `Quotation of the Day for Friday, November 6, 2026.`\
 https://www.nytimes.com/2026/11/06/pageoneplus/quote-of-the-day-after-winning-shield-gotham-sets-sights-on-another-title.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
 **Voters in 4 States Limit Trans Athletes**\
 `Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
 https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
-
-**‘The Pitt’ Resembles ‘ER’ Enough for Lawsuit to Proceed, Judge Rules**\
-`The widow of Michael Crichton has claimed that the award-winning HBO show “The Pitt” is essentially a reboot of the medical drama her husband helped create.`\
-https://www.nytimes.com/2026/11/05/arts/television/the-pitt-lawsuit-er-michael-crichton.html
 
