@@ -1,3 +1,11 @@
+**2026 Midterms Data: How Democrats Won the Largest House Majority Since 2008**\
+`Democrats are on track to win the largest House majority since 2008, when they won 257 seats.`\
+https://www.nytimes.com/interactive/2026/11/05/us/elections/democrats-house-majority-midterms-data.html
+
+**Voters in 4 States Limit Trans Athletes**\
+`Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
+https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
+
 **Black Southerners Voted at Unusually High Levels — and They Voted for Democrats**\
 `Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
 https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
