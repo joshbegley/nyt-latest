@@ -1,4 +1,8 @@
 **Democratic Socialist Elected Next Mayor of Los Angeles**\
+`Nithya Raman, a democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
+https://www.nytimes.com/video/us/elections/100000011266748/nithya-raman-los-angeles-mayor.html
+
+**Democratic Socialist Elected Next Mayor of Los Angeles**\
 `Nithya Raman, a Democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
 https://www.nytimes.com/video/us/elections/100000011266748/democratic-socialist-elected-next-mayor-of-los-angeles.html
 

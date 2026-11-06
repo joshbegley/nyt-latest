@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Visual Dictionaries**\
+`What do the style choices people make tell us about who they are — or what they want us to believe?`\
+https://www.nytimes.com/2026/11/06/learning/15-minute-lesson-plan-visual-dictionaries.html
+
 **Democratic Socialist Elected Next Mayor of Los Angeles**\
 `Nithya Raman, a democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
 https://www.nytimes.com/video/us/elections/100000011266748/nithya-raman-los-angeles-mayor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/arts/art-gallery-shows-to-see-in-november.htm
 **Rubio Dismisses Reports He Will Leave His Jobs to Run for President**\
 `President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
 https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
-
-**Trump Takes Fresh Aim at Alaska, Still Counting Its Senate Results**\
-`Mary Peltola, the Democrat, was leading Senator Dan Sullivan, the Republican, in incomplete returns. A New York Times analysis suggested she was on track to prevail.`\
-https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-what-to-know.html
 
