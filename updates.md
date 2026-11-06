@@ -1,3 +1,11 @@
+**In Fight for the Methodist Church’s Future, President Bush Picks a Side**\
+`George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
+https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
+
+**Colom Leads Hyde-Smith in Mississippi Senate Race After Latest Vote Report**\
+`Scott Colom, the Democratic nominee, has kept his edge over the Republican incumbent, Cindy Hyde-Smith, as more provisional and mail ballots were reported throughout the state.`\
+https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-senate-race.html
+
 **Bomb Threats in Europe Expand to Broadcasters**\
 `A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
 https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html

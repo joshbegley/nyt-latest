@@ -1,3 +1,11 @@
+**In Fight for the Methodist Church’s Future, President Bush Picks a Side**\
+`George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
+https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
+
+**Colom Leads Hyde-Smith in Mississippi Senate Race After Latest Vote Report**\
+`Scott Colom, the Democratic nominee, has kept his edge over the Republican incumbent, Cindy Hyde-Smith, as more provisional and mail ballots were reported throughout the state.`\
+https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-senate-race.html
+
 **Bomb Threats in Europe Expand to Broadcasters**\
 `A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
 https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/06/movies/elizabeth-holmes-documentary-you-can-s
 **Photo Quiz: Guess the Year**\
 `We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
 https://www.nytimes.com/interactive/2026/11/06/arts/photo-quiz-game-175.html
-
-**12 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/11/06/movies/new-movies-this-week-critics.html
-
-**Texas Led the Conservative Overhaul of Education. What Now?**\
-`In Texas, teaching on race and gender was restricted, Christianity was encouraged and private school vouchers expanded. It may be hard for Democrats to reverse those policies.`\
-https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojosa.html
 

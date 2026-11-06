@@ -1,3 +1,23 @@
+**Police Chief Says He ‘Wouldn’t Be Surprised’ by Further Russell Brand Accusations**\
+`The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
+https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
+
+**The Rise of Young Voters**\
+`We look at how they powered Democratic candidates.`\
+https://www.nytimes.com/2026/11/06/briefing/the-rise-of-young-voters.html
+
+**What’s the Wallpaper on Camera Obscura’s “Let’s Get Out of This Country” Cover**\
+`Tracking down a floral wallpaper featured on the artwork for Camera Obscura’s “Let’s Get Out of This Country.”`\
+https://www.nytimes.com/2026/11/06/t-magazine/camera-obscura-wallpaper-artwork.html
+
+**Tender Chicken Meatballs, Swimming in Lemony Broth**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/06/dining/tender-chicken-meatballs-swimming-in-lemony-broth.html
+
+**Five Horror Movies to Stream Now**\
+`This month brings comedies about a demonic dryer and psychotic elites but also Japanese body horror that’s nothing to laugh at.`\
+https://www.nytimes.com/2026/11/06/movies/five-horror-movies-to-stream-now.html
+
 **In Fight for the Methodist Church’s Future, President Bush Picks a Side**\
 `George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
 https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/06/realestate/homes-for-sale-in-cuernavaca-mexic
 **A Democrat Will Govern Texas. Republicans Won’t Make It Easy.**\
 `After a sweeping Democratic victory, Governor-elect Gina Hinojosa will try to reshape a state molded by decades of conservative policymaking, with Republicans still in control of the State Senate.`\
 https://www.nytimes.com/2026/11/06/us/texas-governor-democrat-gina-hinojosa.html
-
-**In ‘Birds of War,’ Romance Unfolds Against a Backdrop of Strife**\
-`Two filmmakers tell the gripping story of how they fell in love long-distance as they covered protests and uprisings in Syria and Lebanon.`\
-https://www.nytimes.com/2026/11/06/movies/birds-of-war-syria-romance-documentary.html
-
-**The Real Risks of Heated Clothes and Hand Warmers**\
-`Here’s what to know before you buy.`\
-https://www.nytimes.com/2026/11/06/podcasts/the-real-risks-of-heated-clothes-and-hand-warmers.html
-
-**Man’s ‘Bucket List’ Voyage Ends With Rescue From Sailboat After Weeks Adrift**\
-`Against the advice of friends, Harry Blodgett and his one-eyed dog, Sasha, set sail for American Samoa in August.`\
-https://www.nytimes.com/2026/11/06/us/86-year-old-sailor-dog-rescue-california.html
-
-**In the Elizabeth Holmes Documentary ‘You Can See Everything,’ Faces Tell the Real Story**\
-`Close-ups of Elizabeth Holmes, Nathan Fielder and Billy Evans give the documentary its signature look as well as its humor, horror and mystery.`\
-https://www.nytimes.com/2026/11/06/movies/elizabeth-holmes-documentary-you-can-see-everything.html
-
-**Photo Quiz: Guess the Year**\
-`We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
-https://www.nytimes.com/interactive/2026/11/06/arts/photo-quiz-game-175.html
 
