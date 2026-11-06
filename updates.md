@@ -1,3 +1,23 @@
+**Police Chief Says He ‘Wouldn’t Be Surprised’ by Further Russell Brand Accusations**\
+`The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
+https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
+
+**The Rise of Young Voters**\
+`We look at how they powered Democratic candidates.`\
+https://www.nytimes.com/2026/11/06/briefing/the-rise-of-young-voters.html
+
+**What’s the Wallpaper on Camera Obscura’s “Let’s Get Out of This Country” Cover**\
+`Tracking down a floral wallpaper featured on the artwork for Camera Obscura’s “Let’s Get Out of This Country.”`\
+https://www.nytimes.com/2026/11/06/t-magazine/camera-obscura-wallpaper-artwork.html
+
+**Tender Chicken Meatballs, Swimming in Lemony Broth**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/06/dining/tender-chicken-meatballs-swimming-in-lemony-broth.html
+
+**Five Horror Movies to Stream Now**\
+`This month brings comedies about a demonic dryer and psychotic elites but also Japanese body horror that’s nothing to laugh at.`\
+https://www.nytimes.com/2026/11/06/movies/five-horror-movies-to-stream-now.html
+
 **In Fight for the Methodist Church’s Future, President Bush Picks a Side**\
 `George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
 https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
