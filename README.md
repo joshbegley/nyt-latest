@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
 
 **John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
-`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helping bring health insurance to millions of low-income children.`\
+`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
 https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
 
 **Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
@@ -58,8 +58,8 @@ https://www.nytimes.com/2026/11/06/crosswords/strands-sidekick-979.html
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-midterms-melania-trump-diplomatic-role-ukraine.html
 
-**Live Updates: Latest Look at a Stable Job Market**\
-`Hiring and unemployment figures for October will provide an update on a work force that has added jobs at a slow, steady pace for months.`\
+**Live Updates: Hiring Picks Up and Unemployment Falls**\
+`U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
 
 **Stable Labor Market to Keep Fed on Track to Raise Rates Gradually**\

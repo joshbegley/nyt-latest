@@ -1,3 +1,7 @@
+**Melania Trump Repositions the White Suit**\
+`The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
+https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
+
 **John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
 `The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helping bring health insurance to millions of low-income children.`\
 https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
