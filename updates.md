@@ -1,3 +1,7 @@
+**Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
+`In the lead-up to an election in which economic concerns dominate, there was no clear front-runner. Minor parties will most likely determine who governs.`\
+https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
+
 **Paraguay’s President Removed Over Financial Crisis**\
 `Millions lost access to their savings, and the nation’s president was impeached and removed from office Friday after a major bank with close ties to his administration went under.`\
 https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
