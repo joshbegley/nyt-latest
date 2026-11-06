@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-m
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
 
-**Stable Labor Market to Keep Fed on Track to Raise Rates Gradually**\
+**Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
 `The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
 https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
 

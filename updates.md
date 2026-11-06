@@ -1,3 +1,7 @@
+**Live Updates: U.S. Hiring Picks Up and Unemployment Falls**\
+`U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
+https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
+
 **John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
 `The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
 https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
