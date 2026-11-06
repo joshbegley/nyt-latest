@@ -1,3 +1,7 @@
+**1 Officer Is Killed and 3 Are Wounded in Shootout on Suburban Denver Bus**\
+`A civilian was also injured after a man opened fire on officers who pursued him onto a bus in Lakewood, Colo., the authorities said. The gunman was shot dead by the police.`\
+https://www.nytimes.com/2026/11/06/us/lakewood-police-shooting-colorado-bus-dead.html
+
 **Quote of the Day: After Winning Shield, Gotham Sets Sights on Another Title**\
 `Quotation of the Day for Friday, November 6, 2026.`\
 https://www.nytimes.com/2026/11/06/pageoneplus/quote-of-the-day-after-winning-shield-gotham-sets-sights-on-another-title.html
