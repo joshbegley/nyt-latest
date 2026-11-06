@@ -1,3 +1,143 @@
+**How Accurate Were Kalshi and Polymarket at Picking Midterm Winners?**\
+`The midterm elections were a referendum on the predictive power of election forecasts.`\
+https://www.nytimes.com/interactive/2026/11/06/business/polymarket-kalshi-prediction-markets-midterm-elections-accuracy.html
+
+**Someone From Your Past Wants to Reconnect. What Now?**\
+`Before you respond, ask yourself a few questions.`\
+https://www.nytimes.com/2026/11/06/well/reconnecting-ex-friend-advice.html
+
+**Why the Trump Era May Survive the Great Blue Wave**\
+`There’s a big difference between a midterm election and a presidential election.`\
+https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html
+
+**YouTuber Accused of Child Sexual Abuse Is Arrested After Discussing Behavior in Film**\
+`A man known for online rants about pro football spoke in a documentary about accusations that he had a sexual interest in minors, prompting law enforcement to bring charges.`\
+https://www.nytimes.com/2026/11/06/us/edp445-youtuber-arrested-sex-crimes.html
+
+**Swings in Farm Areas Helped Propel Democrats to Victory**\
+`Anger over tariffs and higher costs because of the war in Iran led many Republican farmers and ranchers to vote blue — or stay home.`\
+https://www.nytimes.com/2026/11/06/business/farmers-election-trump-democrats.html
+
+**Whitney Museum Announces Curators for 2028 Biennial**\
+`Meg Onli, a Biennial veteran, and Zack Winokur, the former artistic director of Little Island, will organize the 83rd edition of the much-scrutinized exhibition.`\
+https://www.nytimes.com/2026/11/06/arts/whitney-museum-announces-curators-for-2028-biennial.html
+
+**These Newly Elected Lawmakers Know Something Trump Doesn’t: Science**\
+`Among those elected to Congress on Tuesday are a mathematician, a microbiologist and a chemical engineer. They plan to take on a White House that has threatened funding cuts to research.`\
+https://www.nytimes.com/2026/11/06/science/scientists-election-congress.html
+
+**After These Midterms, JD Vance Is in a Bind**\
+`He will need to sell voters on a tarnished Trump brand.`\
+https://www.nytimes.com/2026/11/06/opinion/jd-vance-midterms.html
+
+**What a Democratic Congress Could Mean for Science**\
+`The Trump administration has sought to reshape the nation’s research infrastructure. Democratic lawmakers, newly empowered, are preparing to push back.`\
+https://www.nytimes.com/2026/11/06/science/science-democrats-congress-election.html
+
+**Fed Up With Politics and Struggle, Young Voters Rose Up**\
+`Young people powered Democratic candidates, joining global demands for generational change from a cohort weary of older people sitting on jobs and devouring resources.`\
+https://www.nytimes.com/2026/11/06/us/politics/young-voters-democratic-wave-midterms.html
+
+**Which $1.5 Million Home in Cuernavaca, Mexico Would You Choose?**\
+`A home with modern touches in Cuernavaca, a contemporary home in Chapultepec and a Mexican-colonial in Acapantzingo are available.`\
+https://www.nytimes.com/2026/11/06/realestate/homes-for-sale-in-cuernavaca-mexico.html
+
+**A Democrat Will Govern Texas. Republicans Won’t Make It Easy.**\
+`After a sweeping Democratic victory, Governor-elect Gina Hinojosa will try to reshape a state molded by decades of conservative policymaking, with Republicans still in control of the State Senate.`\
+https://www.nytimes.com/2026/11/06/us/texas-governor-democrat-gina-hinojosa.html
+
+**In ‘Birds of War,’ Romance Unfolds Against a Backdrop of Strife**\
+`Two filmmakers tell the gripping story of how they fell in love long-distance as they covered protests and uprisings in Syria and Lebanon.`\
+https://www.nytimes.com/2026/11/06/movies/birds-of-war-syria-romance-documentary.html
+
+**The Real Risks of Heated Clothes and Hand Warmers**\
+`Here’s what to know before you buy.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-real-risks-of-heated-clothes-and-hand-warmers.html
+
+**Man’s ‘Bucket List’ Voyage Ends With Rescue From Sailboat After Weeks Adrift**\
+`Against the advice of friends, Harry Blodgett and his one-eyed dog, Sasha, set sail for American Samoa in August.`\
+https://www.nytimes.com/2026/11/06/us/86-year-old-sailor-dog-rescue-california.html
+
+**In the Elizabeth Holmes Documentary ‘You Can See Everything,’ Faces Tell the Real Story**\
+`Close-ups of Elizabeth Holmes, Nathan Fielder and Billy Evans give the documentary its signature look as well as its humor, horror and mystery.`\
+https://www.nytimes.com/2026/11/06/movies/elizabeth-holmes-documentary-you-can-see-everything.html
+
+**Photo Quiz: Guess the Year**\
+`We’ve selected five pictures from the millions in our archives. See if you can figure out when they were taken.`\
+https://www.nytimes.com/interactive/2026/11/06/arts/photo-quiz-game-175.html
+
+**12 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/11/06/movies/new-movies-this-week-critics.html
+
+**Texas Led the Conservative Overhaul of Education. What Now?**\
+`In Texas, teaching on race and gender was restricted, Christianity was encouraged and private school vouchers expanded. It may be hard for Democrats to reverse those policies.`\
+https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojosa.html
+
+**What to Expect From Lame-Duck Trump**\
+`“When he feels cornered, when he feels attacked, he fights back,” the columnist Carlos Lozada says of Donald Trump, who is now entering the lame-duck phase of his presidency. Columnists from across Times Opinion share their predictions for what the final two years of Trump’s term might look like — and they’re not pretty.`\
+https://www.nytimes.com/video/opinion/100000011257733/what-to-expect-from-lame-duck-trump.html
+
+**Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
+`As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
+https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
+
+**What Democrats Can Do Now to Lower Costs**\
+`Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
+https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
+
+**59 Movies to See This Winter, From ‘Avengers: Doomsday’ to ‘Dune: Part Three’**\
+`The riches this season include “Dune: Part Three” along with surprises like a Paul Thomas Anderson concert film and a Nigerian adaptation of “Mrs. Dalloway.”`\
+https://www.nytimes.com/2026/11/06/movies/winter-movies-november-december-2026.html
+
+**The Walker Who Found Fame by Leaving New York**\
+`Chantz Rivera walked to California. He will fly back but is already thinking about his next megawalk.`\
+https://www.nytimes.com/2026/11/06/nyregion/the-walker-who-found-fame-by-leaving-new-york.html
+
+**Tech Stocks Got Hammered. Is the Economy Next?**\
+`Any hangover from an A.I. stock implosion will be worse than the dot-com bust.`\
+https://www.nytimes.com/2026/11/06/opinion/nasdaq-tech-stocks-ai-bubble-dot-com-bust.html
+
+**Trump’s Tariffs Have Failed. Bring Back Reaganomics.**\
+`The country needs a careful, restrained government — and always has.`\
+https://www.nytimes.com/2026/11/06/opinion/trump-tariffs-economy.html
+
+**How A.I. Just Blew Up a Key Tenet of Computer Science**\
+`A longstanding hypothesis held that some problems would always be hard for computers to solve quickly. But OpenAI disproved it — raising the possibility of radical new efficiencies.`\
+https://www.nytimes.com/2026/11/06/science/ai-exponential-time-hypothesis.html
+
+**A Guide to the Comedy Gold Mine That Is ‘SCTV’**\
+`The Canadian sketch show, now available on Netflix, featured a murderer’s row of comedians like John Candy, Catherine O’Hara, Eugene Levy and Andrea Martin.`\
+https://www.nytimes.com/2026/11/06/arts/television/sctv-episode-guide.html
+
+**10 Shows to Catch at the New York Comedy Festival**\
+`From headliners like Dave Chappelle and Marc Maron to up-and-comers like Olivia Carter, the event has plenty of options for fans.`\
+https://www.nytimes.com/2026/11/06/arts/television/new-york-comedy-festival-chappelle-maron-dropout.html
+
+**Dave Thomas Looks Back on ‘SCTV’**\
+`A new documentary explores the legacy of this sketch series, which is now available to stream. In an interview, a core cast member recalls its inception and his favorite sketches.`\
+https://www.nytimes.com/2026/11/06/arts/television/sctv-netflix-dave-thomas.html
+
+**Like Trump, Netanyahu Finds the Limits to Fear-Mongering**\
+`By leaning into nativist absolutism, Netanyahu almost doubled the Arab vote, creating a political — and foundational — crisis for Israel.`\
+https://www.nytimes.com/2026/11/06/magazine/trump-netanyahu-fear-elections.html
+
+**After ‘Babydoll’, Dominic Fike Embraces the Mess**\
+`In the wake of a viral hit, new sobriety and fatherhood, the rocker scrapped the album he had been working on to make a less-polished LP.`\
+https://www.nytimes.com/2026/11/06/arts/music/dominic-fike-popcast-interview.html
+
+**New York City Ballet’s ‘Nutcracker,’ Now in Virtual Reality**\
+`On a domed screen in Detroit, New York City Ballet’s production of “The Nutcracker” began a new, immersive chapter.`\
+https://www.nytimes.com/2026/11/06/arts/dance/nutcracker-virtual-reality-new-york-city-ballet.html
+
+**Hakeem Jeffries Can Play Nice. Is He Tough Enough to Lead?**\
+`He’s the country’s top Democrat now. He needs to act like it.`\
+https://www.nytimes.com/2026/11/06/opinion/hakeem-jeffries-congress-democrats-midterms.html
+
+**How to Protect Your Vacation Home From Nuisance Wildlife**\
+`Homeowners are likely to miss the signs of animals moving into their vacation homes. Here’s how to prevent it from happening.`\
+https://www.nytimes.com/2026/11/06/realestate/second-homes-nuisance-animals-deterrents.html
+
 **Wandering Budapest’s Haunted Streets**\
 `The Hungarian capital is a place of wrenching history and astonishing beauty, one perhaps best experienced at night.`\
 https://www.nytimes.com/2026/11/06/t-magazine/budapest-hungary-night-walking.html
@@ -57,144 +197,4 @@ https://www.nytimes.com/2026/11/06/learning/would-you-want-to-be-a-student-forev
 **Forever Homesick, the Composer John Luther Adams Settles in Australia**\
 `John Luther Adams, long attracted to extreme environments, left the United States for the arid expanse of Australia’s Red Center.`\
 https://www.nytimes.com/2026/11/06/arts/music/john-luther-adams-composer.html
-
-**Harlem Globetrotters Celebrate Centennial Season**\
-`The pioneering basketball team that broke racial barriers and embraced entertainment celebrated its 100th anniversary. Now it faces pressure to evolve to appeal to a new generation of audiences.`\
-https://www.nytimes.com/2026/11/06/arts/television/harlem-globetrotters-celebrate-100-years.html
-
-**With ‘The Debut’ Coming Soon, Stream These Movies About Scrappy Theater**\
-`With the community-theater comedy “The Debut” coming soon, five, six, seven, eight your way to these films about stage-struck amateurs.`\
-https://www.nytimes.com/2026/11/06/movies/the-debut-theater-movies-streaming.html
-
-**Day Drinking With the President**\
-`On a visit to Lyndon Johnson’s Texas ranch, a cub reporter learned why it pays to get out of Washington.`\
-https://www.nytimes.com/2026/11/06/us/politics/lbj-ranch-1965-robert-b-semple-jr.html
-
-**The New York Times News Quiz, November 6, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/11/06/briefing/weekly-news-quiz.html
-
-**Is There a Proper Way to Eat Corn on the Cob?**\
-`Back and forth like a typewriter? Or round and round like a lathe?`\
-https://www.nytimes.com/quiz/2026/11/06/magazine/corn-cob-hodgman-quiz.html
-
-**What Democrats Can Do Now to Lower Costs**\
-`Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
-https://www.nytimes.com/video/opinion/100000011255944/what-democrats-can-do-now-to-lower-costs.html
-
-**Europe Still Sees Trump As Powerful, Especially in Foreign Policy**\
-`The commanding victory of the Democrats has brought private relief to some Europeans but no official glee, with Ukraine, Iran and NATO all hanging in the balance.`\
-https://www.nytimes.com/2026/11/06/world/europe/europe-trump-midterms.html
-
-**15-Minute Lesson Plan: Visual Dictionaries**\
-`What do the style choices people make tell us about who they are — or what they want us to believe?`\
-https://www.nytimes.com/2026/11/06/learning/15-minute-lesson-plan-visual-dictionaries.html
-
-**Democratic Socialist Elected Next Mayor of Los Angeles**\
-`Nithya Raman, a democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
-https://www.nytimes.com/video/us/elections/100000011266748/nithya-raman-los-angeles-mayor.html
-
-**A Cornell Fraternity Was Supposed to Have an Adult on Hand. It Didn’t.**\
-`University rules required Chi Phi to have a live-in adviser on the premises the night a woman said she was raped at the fraternity house. The organization had not hired one.`\
-https://www.nytimes.com/2026/11/06/nyregion/cornell-fraternity-sex-assault-adviser.html
-
-**Her Business Flooded. So She Took to the Streets, With a Broom.**\
-`Valeen Bhat warns that fall foliage, though picturesque, can prove dangerous when it clogs storm drains. She is spreading the gospel of clearing leaves.`\
-https://www.nytimes.com/2026/11/06/nyregion/storm-drains-clogged-leaves.html
-
-**NYT Spelling Bee Answers for November 6, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/06/crosswords/spelling-bee-forum.html
-
-**Bomb Threats Disrupt Dozens of Flights in Europe**\
-`Bomb threats disrupted dozens of flights in Europe this week, prompting some countries to order fighter jets to respond to what turned out to be hoaxes.`\
-https://www.nytimes.com/video/world/europe/100000011267060/bomb-threats-europe-flights-airlines.html
-
-**Late Night Finds Trump Supporters Jumping Ship**\
-`“Wouldn’t it be ironic if the only person who stands by Trump is Melania?” Jimmy Fallon said after Republicans began distancing themselves from the president after the midterms.`\
-https://www.nytimes.com/2026/11/06/arts/television/late-night-midterms-trump.html
-
-**1 Officer Is Killed and 3 Are Wounded in Shootout on Suburban Denver Bus**\
-`A civilian was also injured after a man opened fire on officers who pursued him onto a bus in Lakewood, Colo., the authorities said. The gunman was shot dead by the police.`\
-https://www.nytimes.com/2026/11/06/us/lakewood-police-shooting-colorado-bus-dead.html
-
-**Quote of the Day: After Winning Shield, Gotham Sets Sights on Another Title**\
-`Quotation of the Day for Friday, November 6, 2026.`\
-https://www.nytimes.com/2026/11/06/pageoneplus/quote-of-the-day-after-winning-shield-gotham-sets-sights-on-another-title.html
-
-**12 Planes in 12 Days: Pope Begins Major Latin America Tour, Weeks After Surgery**\
-`Pope Leo XIV’s tour of Uruguay, Argentina and Peru is his first major trip since an operation on his lung last month.`\
-https://www.nytimes.com/2026/11/06/world/europe/12-planes-in-12-days-pope-begins-major-latin-america-tour-weeks-after-surgery.html
-
-**Booker Prize 2026: Vote in Our Readers’ Poll**\
-`Marlon James’s “The Disappearers” is a bettors’ favorite, but a dystopian sci-fi book and a funny campus novel are among the five other titles that could win. Vote for your favorite here.`\
-https://www.nytimes.com/2026/11/06/books/booker-prize-readers-vote.html
-
-**Pope Leo’s Trip to Latin America: What to Know**\
-`Less than a month after lung surgery, Pope Leo XIV is landing in Uruguay on Friday, the first stop of a 12-day voyage across South America.`\
-https://www.nytimes.com/2026/11/06/world/americas/pope-leo-uruguay-argentina-peru.html
-
-**In French City Hit by Terrorist Attack, Residents Blame Far-Right Rhetoric**\
-`In Trappes, a suburb of Paris with a large immigrant population, residents believe that a shooting rampage was fueled by years of anti-immigrant sentiment.`\
-https://www.nytimes.com/2026/11/06/world/europe/france-shooting-trappes.html
-
-**A Summit in China With Trump and Putin? That Might be Awkward for Xi.**\
-`A summit could bolster Xi Jinping’s stature. But talks about Ukraine’s future and limits on nuclear weapons pose uncomfortable choices for China.`\
-https://www.nytimes.com/2026/11/06/world/asia/china-trump-putin-xi-summit.html
-
-**Who’s Hiding Secrets About Dag Hammarskjöld’s Death?**\
-`The U.N. leader died in a plane crash in 1961. Many suspect foul play, but a lot of information still remains secret.`\
-https://www.nytimes.com/2026/11/06/world/europe/dag-hammarskjold-death-un-report.html
-
-**He Vanished on a Run Before We Could Marry**\
-`If I am not a widow, what am I?`\
-https://www.nytimes.com/2026/11/06/style/modern-love-he-vanished-on-a-run-before-we-could-marry.html
-
-**The Second First Date Did the Trick**\
-`After an early breakup, Cheyenne Petitte couldn’t stop thinking about Clayton Curran. He hadn’t stopped thinking about her either.`\
-https://www.nytimes.com/2026/11/06/style/cheyenne-petitte-clayton-curran-wedding.html
-
-**He Invited Work Colleagues to a Movie. Only She Showed Up.**\
-`Liv Heeney and Barney Soanes-Cundle met 14 years ago at a British clothing store. They bonded while folding shirts.`\
-https://www.nytimes.com/2026/11/06/style/liv-heeney-barney-soanes-cundle-wedding.html
-
-**He Quit the ‘Man of the Month Club’ After Meeting ‘Mr. October’**\
-`Thomas Ranzweiler and T.C. Lind met three years ago through a dating app. But their relationship almost never happened.`\
-https://www.nytimes.com/2026/11/06/style/tc-lind-thomas-ranzweiler-wedding.html
-
-**A Perfect Match On and Off the Court**\
-`Gonzales Austin and Louisa Chirico met during the Pan American Games in Toronto. He was once her tennis coach, now he’s her husband.`\
-https://www.nytimes.com/2026/11/06/style/louisa-chirico-gonzales-austin-wedding.html
-
-**From the Front Page: Lincoln Is Elected President on Nov. 6, 1860**\
-`Abraham Lincoln, a former Illinois congressman, was elected president of the United States, defeating three other candidates.`\
-https://www.nytimes.com/2026/11/06/learning/from-the-front-page-lincoln-is-elected-president-on-nov-6-1860.html
-
-**‘Rope’ and ‘The Verge’: The Joy of Sex and Death**\
-`Two theater pieces that drill down from the polite society of the intelligentsia to the most primal animal urges, with acknowledgments to Freud.`\
-https://www.nytimes.com/2026/11/05/theater/rope-the-verge-review-off-broadway-silverman.html
-
-**NYT Crossword Answers for Nov. 6, 2026**\
-`Aidan Deshong opens our solving weekend.`\
-https://www.nytimes.com/2026/11/05/crosswords/daily-puzzle-2026-11-06.html
-
-**Democratic Gains Could Advance an Alternative to the Electoral College**\
-`Lawmakers in states with new total Democratic control said they would try to join an effort to try to elect the next president effectively by popular vote. But momentum has stalled before.`\
-https://www.nytimes.com/2026/11/05/us/elections/national-popular-vote-compact-midterm-elections-2028.html
-
-**Severe Flooding Along Georgia-Tennessee Border Prompts Rescues**\
-`Dozens of people were evacuated by boat on Thursday in Tennessee and Georgia after heavy rains led to severe flooding.`\
-https://www.nytimes.com/video/weather/100000011265675/tennessee-georgia-flooding-rescues.html
-
-**In Tight Mississippi Senate Race, Votes Are Carefully Scrutinized**\
-`A phalanx of lawyers, observers and campaign officials are watching the counting of votes in the race for Senate, where a Democratic challenger has a slim lead.`\
-https://www.nytimes.com/2026/11/05/us/mississippi-senate-colom-hydesmith-votes.html
-
-**Dolly Parton’s Manager Drops Lawsuit Against Singer’s Nephew**\
-`The manager, Danny Nozell, had accused the nephew, Bryan Seaver, of waging a campaign to extract money from Ms. Parton’s estate. The nephew denied the accusations.`\
-https://www.nytimes.com/2026/11/05/arts/music/dolly-parton-nephew-manager-lawsuit-dropped.html
-
-**Dominic Fike on Public Breakups, ‘Babydoll,’ Fatherhood & Sobriety**\
-`Watch the full conversation with Dominic Fike. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011260426/dominic-fike-on-public-breakups-babydoll-fatherhood-sobriety.html
 
