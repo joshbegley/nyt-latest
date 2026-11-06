@@ -1,3 +1,83 @@
+**Wandering Budapest’s Haunted Streets**\
+`The Hungarian capital is a place of wrenching history and astonishing beauty, one perhaps best experienced at night.`\
+https://www.nytimes.com/2026/11/06/t-magazine/budapest-hungary-night-walking.html
+
+**A Rediscovered Classic by the Author of ‘Goodnight Moon’**\
+`“The Dark Wood of the Golden Birds,” a long out-of-print picture book published in 1950, illuminates the metaphysical side of Margaret Wise Brown.`\
+https://www.nytimes.com/2026/11/06/books/review/margaret-wise-brown-lost-classic-dark-wood-golden-birds.html
+
+**Tired of Slow TikToks? This Content Creator Gives You the Ending**\
+`Videos on social media often save key details for the end. One content creator, who goes by Heyitsyoon, skips the filler so viewers don’t have to wait.`\
+https://www.nytimes.com/2026/11/06/technology/tiktok-time-saved-videos-heyitsyoon.html
+
+**European Countries Push, Again, To Deport Migrants to Rwanda**\
+`Five European nations are closing in on a plan to send rejected migrants to Rwanda following a failed U.K. deal with the country.`\
+https://www.nytimes.com/2026/11/06/world/europe/european-countries-push-again-to-deport-migrants-to-rwanda.html
+
+**Is It Finally Time to Buy a Second Home in Atlantic City?**\
+`The New Jersey shore town, best known for its casinos and urban decay, is getting a makeover. For second homeowners, it might be the last great beach town deal.`\
+https://www.nytimes.com/2026/11/06/realestate/atlantic-city-second-homes-developers.html
+
+**Word of the Day: expectant**\
+`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/06/learning/word-of-the-day-expectant.html
+
+**Disaster-Prone Communities Face Cuts and Slowdowns in Federal Help**\
+`The Trump administration is scaling back or stalling investments that help vulnerable places harden themselves to rising flood and fire threats.`\
+https://www.nytimes.com/2026/11/06/climate/fema-grants-cuts-resilience.html
+
+**Alberta’s Librarians Brace for a New Era of ‘Book Bans’**\
+`A new provincial law requires public libraries to pull and restrict items with “graphic visual depictions of sexual acts.” Librarians are worried.`\
+https://www.nytimes.com/2026/11/06/world/canada/alberta-book-ban-public-libraries.html
+
+**People Are Using Weekend and Seasonal Homes Year-Round Long After the Pandemic**\
+`Long after the pandemic, people are still using weekend and seasonal homes year-round.`\
+https://www.nytimes.com/2026/11/06/realestate/secondary-homes-year-round.html
+
+**As Hormone Use Increases, Some Doctors Warn Slight Cancer Risk Is Being Overlooked**\
+`Doctors said that women should receive treatment for menopause symptoms, but need accurate information about the drugs.`\
+https://www.nytimes.com/2026/11/06/well/hormone-therapy-menopause-cancer.html
+
+**How the College Board Is Fighting A.I. Cheating on the SAT Tests**\
+`The group behind the college exams is planning new measures to keep up with high-tech breaches and “time zone” cheating.`\
+https://www.nytimes.com/2026/11/06/us/college-board-cheating-sat.html
+
+**What Does the Super El Niño Mean for Ski Season?**\
+`The climate event is predicted to alter snowfall patterns across the U.S. and Canada. Experts are starting to see how it might play out across ski country.`\
+https://www.nytimes.com/2026/11/06/travel/el-nino-skiing-united-states.html
+
+**Jordan Firstman, of ‘Club Kid,’ Knows How to Party**\
+`An Instagram troublemaker becomes a sentimental filmmaker with his debut feature, “Club Kid.”`\
+https://www.nytimes.com/2026/11/06/movies/jordan-firstman-knows-how-to-party-and-when-to-go-home.html
+
+**Would You Want to Be a Student Forever?**\
+`After you graduate high school, will you continue to pursue education, whether formal or informal, on the topics and skills that interest you?`\
+https://www.nytimes.com/2026/11/06/learning/would-you-want-to-be-a-student-forever.html
+
+**Forever Homesick, the Composer John Luther Adams Settles in Australia**\
+`John Luther Adams, long attracted to extreme environments, left the United States for the arid expanse of Australia’s Red Center.`\
+https://www.nytimes.com/2026/11/06/arts/music/john-luther-adams-composer.html
+
+**Harlem Globetrotters Celebrate Centennial Season**\
+`The pioneering basketball team that broke racial barriers and embraced entertainment celebrated its 100th anniversary. Now it faces pressure to evolve to appeal to a new generation of audiences.`\
+https://www.nytimes.com/2026/11/06/arts/television/harlem-globetrotters-celebrate-100-years.html
+
+**With ‘The Debut’ Coming Soon, Stream These Movies About Scrappy Theater**\
+`With the community-theater comedy “The Debut” coming soon, five, six, seven, eight your way to these films about stage-struck amateurs.`\
+https://www.nytimes.com/2026/11/06/movies/the-debut-theater-movies-streaming.html
+
+**Day Drinking With the President**\
+`On a visit to Lyndon Johnson’s Texas ranch, a cub reporter learned why it pays to get out of Washington.`\
+https://www.nytimes.com/2026/11/06/us/politics/lbj-ranch-1965-robert-b-semple-jr.html
+
+**The New York Times News Quiz, November 6, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/11/06/briefing/weekly-news-quiz.html
+
+**Is There a Proper Way to Eat Corn on the Cob?**\
+`Back and forth like a typewriter? Or round and round like a lathe?`\
+https://www.nytimes.com/quiz/2026/11/06/magazine/corn-cob-hodgman-quiz.html
+
 **What Democrats Can Do Now to Lower Costs**\
 `Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
 https://www.nytimes.com/video/opinion/100000011255944/what-democrats-can-do-now-to-lower-costs.html
@@ -117,84 +197,4 @@ https://www.nytimes.com/2026/11/05/arts/music/dolly-parton-nephew-manager-lawsui
 **Dominic Fike on Public Breakups, ‘Babydoll,’ Fatherhood & Sobriety**\
 `Watch the full conversation with Dominic Fike. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011260426/dominic-fike-on-public-breakups-babydoll-fatherhood-sobriety.html
-
-**2026 Midterms Data: How Democrats Won the Largest House Majority Since 2008**\
-`Democrats are on track to win the largest House majority since 2008, when they won 257 seats.`\
-https://www.nytimes.com/interactive/2026/11/05/us/elections/democrats-house-majority-midterms-data.html
-
-**Rubio Says Elections in Venezuela Would ‘Ideally’ Be Held Next Year**\
-`Secretary of State Marco Rubio laid out a series of steps the United States wants to see before Venezuela holds free elections.`\
-https://www.nytimes.com/2026/11/05/us/politics/rubio-elections-venezuela.html
-
-**Trump Moves to Make Oval Office a National Monument**\
-`The president’s announcement reinforced his post-midterm elections preoccupation on White House renovation projects.`\
-https://www.nytimes.com/2026/11/05/us/politics/trump-oval-office-national-monument.html
-
-**Officials Release 911 Call Made During Oregon School Shooting**\
-`Kaylub Giamanco made a frantic 911 call moments before he fatally shot a teenage shooter at an Oregon elementary school attended by his two daughters.`\
-https://www.nytimes.com/video/us/100000011265133/bend-oregon-school-shooting-911-call.html
-
-**Lucien Smith, Art-World Star, Died From Accidental Drug Overdose**\
-`Shortly before Mr. Smith died, he created a series of new “Rain Paintings” that are now on display in a show at the Tripoli Gallery in Wainscott, N.Y.`\
-https://www.nytimes.com/2026/11/05/arts/design/artist-lucien-smith-cause-of-death.html
-
-**These 5 Midterm Races Tell the Story of the Democrats’ Blue Wave**\
-`The districts are very different, but they all explain how the Democrats won so big.`\
-https://www.nytimes.com/2026/11/05/us/politics/democrats-blue-wave-elections-districts.html
-
-**The Major U.S. Cities That Have Elected Democratic Socialist Mayors**\
-`Nithya Raman’s win in Los Angeles adds to the list of major cities with democratic socialist leaders.`\
-https://www.nytimes.com/2026/11/05/us/elections/democratic-socialist-mayors.html
-
-**Watch Live: What the Midterm Elections Are Telling Us About 2028**\
-`Live from the Brooklyn Public Library, Jamelle Bouie, Michelle Cottle and David French discuss the midterm election results and look ahead to 2028.`\
-https://www.nytimes.com/2026/11/05/opinion/midterm-election-trump-bouie-cottle-french.html
-
-**‘Let’s Go, Bahhston’: Logan Airport Chooses Its New Voice**\
-`A pipe fitter from Massachusetts beat out thousands of other applicants to provide the voice that welcomes travelers to Boston Logan Airport.`\
-https://www.nytimes.com/2026/11/05/us/voice-of-logan-airport-boston-winner.html
-
-**Trump Says He Met With a Senior Russian Official on a Ukraine Peace Deal**\
-`President Trump said the deal “might involve all of Europe.” He indicated he had met with a Kremlin envoy whom Melania Trump hosted at the White House on Thursday.`\
-https://www.nytimes.com/2026/11/05/us/politics/trump-russian-official-ukraine-peace-deal.html
-
-**House G.O.P. Leaders Ask Nvidia’s Huang to Speak in Closed-Door Briefing**\
-`The New York Times reported last week that Mr. Huang had a close relationship with an executive that U.S. officials determined was funneling information to Chinese intelligence.`\
-https://www.nytimes.com/2026/11/05/technology/house-republicans-nvidia-jensen-huang-china.html
-
-**Hegseth Lashes Out at Critics Calling for His Firing**\
-`In a new video, the defense secretary vowed to “finish what we have started.” Some Republicans say the Iran war was a big factor in their party’s midterm losses.`\
-https://www.nytimes.com/2026/11/05/us/politics/hegseth-video-midterms-trump.html
-
-**Cait Conley Flips N.Y. Swing Seat for Democrats, Ousting Mike Lawler**\
-`A ballot-counting issue in the key suburban district delayed the official result, but even before the race was called, Mr. Lawler conceded to Ms. Conley.`\
-https://www.nytimes.com/2026/11/05/nyregion/new-york-house-17-lawler-conley.html
-
-**A Critic of Our Alaska Senate Story Sounds Off**\
-`In the latest edition of “Sound Off,” Patrick Healy, assistant managing editor at The New York Times, speaks with the author Amy Siskind about her reaction to our reporting on the Alaska Senate race.`\
-https://www.nytimes.com/video/insider/100000011266420/a-critic-of-our-alaska-senate-story-sounds-off.html
-
-**How British Law Informed Russell Brand Trial Coverage**\
-`British criminal trials like Russell Brand’s have rules around what can be reported.`\
-https://www.nytimes.com/2026/11/05/insider/russell-brand-trial-british-law.html
-
-**New York Times Company in Advanced Talks to Acquire Letterboxd**\
-`The roughly $330 million deal for the cinephile community site would be part of an effort to add new products and services to the company’s portfolio.`\
-https://www.nytimes.com/2026/11/05/business/media/letterboxd-new-york-times-company.html
-
-**National Guard to Expand Patrols in Washington With Military Vehicles and Boats**\
-`The Pentagon said that the decision by Pete Hegseth to widen the patrols was made on Oct. 29, just before a landslide defeat for Republicans in the midterm elections.`\
-https://www.nytimes.com/2026/11/05/us/politics/washington-dc-national-guard-troops-hegseth-trump.html
-
-**The Evening: The Blue Wave Swells**\
-`Plus, Gov. Gavin Newsom clears California’s death row. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/11/05/briefing/elections-newsom-amodei.html
-
-**Steve Kornacki and NBC Drew Crowds as Midterms Got a Ratings Bump**\
-`More than 31 million viewers followed along with the Democrats’ big night on television, a 23 percent jump from the 2022 midterm elections.`\
-https://www.nytimes.com/2026/11/05/business/media/tv-ratings-midterms-steve-kornacki.html
-
-**Harriet Hancock, a Force in South Carolina’s Gay Rights Movement, Has Died**\
-`She became an early and leading activist for gay and lesbian rights in a time and place where that was extremely rare. She was 89.`\
-https://www.nytimes.com/2026/11/05/us/harriet-hancock-dead.html
 
