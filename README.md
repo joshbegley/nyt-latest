@@ -1,3 +1,7 @@
+**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
+`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
+https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
+
 **F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
 `Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic.`\
 https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
-
-**The Changing Politics of Identity**\
-`This is one reason voters are swinging between parties.`\
-https://www.nytimes.com/2026/11/06/briefing/the-changing-politics-of-identity.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
