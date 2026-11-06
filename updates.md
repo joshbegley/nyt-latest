@@ -1,3 +1,7 @@
+**Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
+`Victory for Democrats could alter the course of peace negotiations and a war nearing its fifth year.`\
+https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html
+
 **Rachel Maddow on America’s Pendulum Swing**\
 `The MS NOW anchor takes stock of the midterms, the memes and the democratic project.`\
 https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swing.html

@@ -1,3 +1,7 @@
+**Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
+`Victory for Democrats could alter the course of peace negotiations and a war nearing its fifth year.`\
+https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html
+
 **Rachel Maddow on America’s Pendulum Swing**\
 `The MS NOW anchor takes stock of the midterms, the memes and the democratic project.`\
 https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/college-board-cheating-sat.html
 **What Does the Super El Niño Mean for Ski Season?**\
 `The climate event is predicted to alter snowfall patterns across the U.S. and Canada. Experts are starting to see how it might play out across ski country.`\
 https://www.nytimes.com/2026/11/06/travel/el-nino-skiing-united-states.html
-
-**Jordan Firstman, of ‘Club Kid,’ Knows How to Party**\
-`An Instagram troublemaker becomes a sentimental filmmaker with his debut feature, “Club Kid.”`\
-https://www.nytimes.com/2026/11/06/movies/jordan-firstman-knows-how-to-party-and-when-to-go-home.html
 
