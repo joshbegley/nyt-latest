@@ -1,3 +1,11 @@
+**See the Newly-Elected Democrats Who Flipped Seats, and Who They Unseated**\
+`See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
+
+**Zoo Atlanta Unveils Its New Pandas: Fu Shuang and Ping Ping**\
+`Two years after two other pandas were returned to China, giant pandas were back on display in Atlanta.`\
+https://www.nytimes.com/2026/11/06/us/atlanta-pandas.html
+
 **Giant Pandas Make Debut in Atlanta Zoo**\
 `Two giant pandas made their debut at an Atlanta zoo on Friday. The animals are part of an international effort to preserve giant pandas and symbolize diplomatic relations between the United States and China.`\
 https://www.nytimes.com/video/us/100000011268144/pandas-atlanta-zoo.html

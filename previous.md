@@ -1,3 +1,11 @@
+**See the Newly-Elected Democrats Who Flipped Seats, and Who They Unseated**\
+`See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
+https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
+
+**Zoo Atlanta Unveils Its New Pandas: Fu Shuang and Ping Ping**\
+`Two years after two other pandas were returned to China, giant pandas were back on display in Atlanta.`\
+https://www.nytimes.com/2026/11/06/us/atlanta-pandas.html
+
 **Giant Pandas Make Debut in Atlanta Zoo**\
 `Two giant pandas made their debut at an Atlanta zoo on Friday. The animals are part of an international effort to preserve giant pandas and symbolize diplomatic relations between the United States and China.`\
 https://www.nytimes.com/video/us/100000011268144/pandas-atlanta-zoo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html
 **Tanzania’s Opposition Leader Gets a Four-Year Sentence**\
 `Tundu Lissu was found guilty of incitement for statements he had made ahead of a presidential election in October 2025.`\
 https://www.nytimes.com/2026/11/06/world/africa/tanzanias-opposition-leader-gets-a-four-year-sentence.html
-
-**Flashback: Your Weekly History Quiz, Nov. 7, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/11/06/upshot/flashback.html
-
-**‘It Gets Worse’ Review: Leo Reich Comedy Channels ‘Girls’**\
-`Produced by A24 and Crave, Leo Reich’s new comedy is prickly and perceptive.`\
-https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
 
