@@ -1,4 +1,4 @@
-**See the Newly-Elected Democrats Who Flipped Seats, and Who They Unseated**\
+**See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
 `See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
 

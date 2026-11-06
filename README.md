@@ -1,3 +1,7 @@
+**Prosecutors Vow to Keep Pursuing Death Penalty in California**\
+`Unless the next governor, Xavier Becerra, keeps commuting sentences, California’s death row is likely to slowly repopulate in the coming years.`\
+https://www.nytimes.com/2026/11/06/us/california-prosecutors-death-penalty.html
+
 **See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
 `See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-count
 **Tesla Is Ending Production of Its Cybertruck and Refocusing on the Cybercab**\
 `Production of the electric trucks will stop in the middle of 2027 to make room for increased production of its autonomous ride-share vehicle, Elon Musk said.`\
 https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html
-
-**Tanzania’s Opposition Leader Gets a Four-Year Sentence**\
-`Tundu Lissu was found guilty of incitement for statements he had made ahead of a presidential election in October 2025.`\
-https://www.nytimes.com/2026/11/06/world/africa/tanzanias-opposition-leader-gets-a-four-year-sentence.html
 
