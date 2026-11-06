@@ -1,3 +1,7 @@
+**The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
+`Lauren Sottile’s signature cut is a style coveted by artsy women in New York City looking for a bit of edge.`\
+https://www.nytimes.com/2026/11/06/style/rama-duwaji-haircut-lauren-sottile-brooklyn.html
+
 **Corrections: Nov. 6, 2026**\
 `Corrections that appeared in print on Friday, Nov. 6, 2026.`\
 https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
 **Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
 `As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
 https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
-
-**59 Movies to See This Winter, From ‘Avengers: Doomsday’ to ‘Dune: Part Three’**\
-`The riches this season include “Dune: Part Three” along with surprises like a Paul Thomas Anderson concert film and a Nigerian adaptation of “Mrs. Dalloway.”`\
-https://www.nytimes.com/2026/11/06/movies/winter-movies-november-december-2026.html
 

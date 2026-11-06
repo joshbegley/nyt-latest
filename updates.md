@@ -1,3 +1,7 @@
+**The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
+`Lauren Sottile’s signature cut is a style coveted by artsy women in New York City looking for a bit of edge.`\
+https://www.nytimes.com/2026/11/06/style/rama-duwaji-haircut-lauren-sottile-brooklyn.html
+
 **Whitney Museum Announces Curators for 2028 Biennial**\
 `Meg Onli, a Biennial veteran, and Zack Winokur, the former artistic director of Little Island, will organize the 83rd edition of the much-scrutinized exhibition.`\
 https://www.nytimes.com/2026/11/06/arts/whitney-museum-curators-2028-biennial.html
