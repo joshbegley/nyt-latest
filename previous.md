@@ -1,3 +1,7 @@
+**What Led to the Blue Wave, and What Comes Next**\
+`Readers discuss the blue wave midterm elections, looking back and ahead. Also: Applying to New York City high schools.`\
+https://www.nytimes.com/2026/11/06/opinion/midterm-elections.html
+
 **The End of Yeezy**\
 `A runway show in Los Angeles made a case for the brand’s irrelevance.`\
 https://www.nytimes.com/2026/11/06/style/end-of-yeezy.html
@@ -142,8 +146,8 @@ https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-euro
 `A stock rally fueled in part by artificial intelligence is being tested after Democrats’ landslide election victories.`\
 https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
 
-**Midterm Elections Live Updates: Democrats Build on Decisive Wins as Latest Votes Trickle In**\
-`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
+**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,000 votes.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
 
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-m
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
-
-**Strong Hiring Reinforces a Sturdy Job Market**\
-`Unemployment fell in October, extending years of stability for a U.S. work force threated by inflation and artificial intelligence.`\
-https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
 

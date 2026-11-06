@@ -1,3 +1,11 @@
+**What Led to the Blue Wave, and What Comes Next**\
+`Readers discuss the blue wave midterm elections, looking back and ahead. Also: Applying to New York City high schools.`\
+https://www.nytimes.com/2026/11/06/opinion/midterm-elections.html
+
+**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,000 votes.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
+
 **The End of Yeezy**\
 `A runway show in Los Angeles made a case for the brand’s irrelevance.`\
 https://www.nytimes.com/2026/11/06/style/end-of-yeezy.html
