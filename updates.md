@@ -1,3 +1,7 @@
+**Democratic Gains Could Advance an Alternative to the Electoral College**\
+`Lawmakers in states with new total Democratic control said they would try to join an effort to try to elect the next president effectively by popular vote. But momentum has stalled before.`\
+https://www.nytimes.com/2026/11/05/us/elections/national-popular-vote-compact-midterm-elections-2028.html
+
 **In Tight Mississippi Senate Race, Votes Are Carefully Scrutinized**\
 `A phalanx of lawyers, observers and campaign officials are watching the counting of votes in the race for Senate, where a Democratic challenger has a slim lead.`\
 https://www.nytimes.com/2026/11/05/us/mississippi-senate-colom-hydesmith-votes.html
