@@ -1,3 +1,15 @@
+**How Elon Musk Frittered Away Nearly $500 Million on the Midterm Elections**\
+`Behind the scenes, the world’s richest person spent a record amount over two years to bend the country’s politics to his will. He couldn’t.`\
+https://www.nytimes.com/2026/11/06/us/politics/musk-trump-midterm-election-spending.html
+
+**Trump Elevates Stephen Miller to Chief of Staff in Post-Election Shake-Up**\
+`Mr. Miller will replace Susie Wiles, the highest-ranking administration official to exit in the wake of the midterms, in which Republicans lost ground across the country.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
+**Russell Brand Could Face More Accusations After Rape Conviction, Police Chief Says**\
+`The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
+https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
+
 **After a Generation, Southern Democrats Finally Have the Chance to Lead**\
 `Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
 https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html

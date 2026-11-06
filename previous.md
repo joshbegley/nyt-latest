@@ -1,3 +1,7 @@
+**How Elon Musk Frittered Away Nearly $500 Million on the Midterm Elections**\
+`Behind the scenes, the world’s richest person spent a record amount over two years to bend the country’s politics to his will. He couldn’t.`\
+https://www.nytimes.com/2026/11/06/us/politics/musk-trump-midterm-election-spending.html
+
 **After a Generation, Southern Democrats Finally Have the Chance to Lead**\
 `Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
 https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html
@@ -38,8 +42,8 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Here’s the latest.**\
-`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+**Trump Elevates Stephen Miller to Chief of Staff in Post-Election Shake-Up**\
+`Mr. Miller will replace Susie Wiles, the highest-ranking administration official to exit in the wake of the midterms, in which Republicans lost ground across the country.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
@@ -162,7 +166,7 @@ https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-rev
 `White collar industries that are most exposed to artificial intelligence continued to add jobs in October, although that growth has been weak.`\
 https://www.nytimes.com/2026/11/06/business/economy/ai-jobs-layoffs.html
 
-**Police Chief Says He ‘Wouldn’t Be Surprised’ by Further Russell Brand Accusations**\
+**Russell Brand Could Face More Accusations After Rape Conviction, Police Chief Says**\
 `The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
 https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/movies/five-horror-movies-to-stream-now.html
 **In Fight for a Methodist Church’s Future, President Bush Picks a Side**\
 `George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
 https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
-
-**Colom Leads Hyde-Smith in Mississippi Senate Race After Latest Vote Report**\
-`Scott Colom, the Democratic nominee, has kept his edge over the Republican incumbent, Cindy Hyde-Smith, as more provisional and mail ballots were reported throughout the state.`\
-https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-senate-race.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

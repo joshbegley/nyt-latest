@@ -1,3 +1,15 @@
+**California Still Has Nearly 5 Million Ballots to Count**\
+`The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
+https://www.nytimes.com/2026/11/06/us/elections/california-still-has-nearly-5-million-ballots-to-count.html
+
+**Cornell Faculty Passes Vote of No Confidence in Administration**\
+`The vote is largely symbolic but serves as a sharp rebuke of campus leadership’s handling of a rape allegation that put the university in the national spotlight.`\
+https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
+
+**The Local: How Minneapolis looks to home buyers**\
+`Also, what Bob Dylan gave to the Pope.`\
+https://www.nytimes.com/2026/11/06/briefing/minneapolis-home-buyers.html
+
 **How Elon Musk Frittered Away Nearly $500 Million on the Midterm Elections**\
 `Behind the scenes, the world’s richest person spent a record amount over two years to bend the country’s politics to his will. He couldn’t.`\
 https://www.nytimes.com/2026/11/06/us/politics/musk-trump-midterm-election-spending.html
@@ -67,7 +79,7 @@ https://www.nytimes.com/2026/11/06/your-money/stock-market-volatility-investment
 https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
 
 **F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
-`Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic.`\
+`Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic at the nation’s air traffic control centers.`\
 https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
 
 **Susie Wiles, Trump’s Chief of Staff, Is Accused of Blocking Health Policies to Attract Donations**\
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/06/briefing/the-rise-of-young-voters.html
 **What’s the Wallpaper on Camera Obscura’s “Let’s Get Out of This Country” Cover**\
 `Tracking down a floral wallpaper featured on the artwork for Camera Obscura’s “Let’s Get Out of This Country.”`\
 https://www.nytimes.com/2026/11/06/t-magazine/camera-obscura-wallpaper-artwork.html
-
-**Tender Chicken Meatballs, Swimming in Lemony Broth**\
-`And more popular recipes from the week.`\
-https://www.nytimes.com/2026/11/06/dining/tender-chicken-meatballs-swimming-in-lemony-broth.html
-
-**Five Horror Movies to Stream Now**\
-`This month brings comedies about a demonic dryer and psychotic elites but also Japanese body horror that’s nothing to laugh at.`\
-https://www.nytimes.com/2026/11/06/movies/five-horror-movies-to-stream-now.html
-
-**In Fight for a Methodist Church’s Future, President Bush Picks a Side**\
-`George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
-https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
