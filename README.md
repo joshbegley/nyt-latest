@@ -1,3 +1,7 @@
+**Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
+`Paul Nthenge Mackenzie forced followers to starve themselves to meet Jesus and told parents to make sure their children fasted in the sun and died first.`\
+https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
+
 **Melania Trump Repositions the White Suit**\
 `The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
 https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/opinion/trump-tariffs-economy.html
 **How A.I. Just Blew Up a Key Tenet of Computer Science**\
 `A longstanding hypothesis held that some problems would always be hard for computers to solve quickly. But OpenAI disproved it — raising the possibility of radical new efficiencies.`\
 https://www.nytimes.com/2026/11/06/science/ai-exponential-time-hypothesis.html
-
-**A Guide to the Comedy Gold Mine That Is ‘SCTV’**\
-`The Canadian sketch show, now available on Netflix, featured a murderer’s row of comedians like John Candy, Catherine O’Hara, Eugene Levy and Andrea Martin.`\
-https://www.nytimes.com/2026/11/06/arts/television/sctv-episode-guide.html
 
