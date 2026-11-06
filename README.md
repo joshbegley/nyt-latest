@@ -70,7 +70,7 @@ https://www.nytimes.com/interactive/2026/11/06/business/polymarket-kalshi-predic
 `Before you respond, ask yourself a few questions.`\
 https://www.nytimes.com/2026/11/06/well/reconnecting-ex-friend-advice.html
 
-**Why the Trump Era May Survive the Great Blue Wave**\
+**The Most Dangerous Way to Misread the Midterm Results**\
 `There’s a big difference between a midterm election and a presidential election.`\
 https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html
 
