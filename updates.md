@@ -1,3 +1,15 @@
+**Corrections: Nov. 6, 2026**\
+`Corrections that appeared in print on Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
+
+**She Commands the Sunken Titanic, From 1,000 Miles Away**\
+`A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
+https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
+
+**Jay Rockefeller Has Died. He Was a West Virginia Governor and Senator.**\
+`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
+https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
+
 **She Commands the Sunken Titanic, from 1,000 Miles Away**\
 `A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
 https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
