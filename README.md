@@ -1,3 +1,7 @@
+**Suffield Academy Shaken by I.R.S. Investigation Into Its Leader**\
+`Suffield Academy placed its longtime head of school, Charlie Cahn III, on leave last month after learning that he was the subject of a federal investigation.`\
+https://www.nytimes.com/2026/11/06/nyregion/suffield-academy-charlie-cahn-scandal.html
+
 **Inside the Wardrobe of Truman Capote’s Nicest Swan**\
 `A new museum exhibition gathers some of the elegant dresses, but also the sneakers and shorts, of the American socialite, equestrian and writer C.Z. Guest.`\
 https://www.nytimes.com/2026/11/06/t-magazine/truman-capotes-nicest-swan-cz-guest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-bac
 **Big Money’s Playbook Finally Failed**\
 `Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
 https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
-
-**Dominic Fike on the Art of Code Switching**\
-`On ‘Popcast,’ the musician and actor Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
-https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html
 
