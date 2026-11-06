@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Size of Democratic Majorities Hinges on Tight Races**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but dozens of races remain too close to call.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
+
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/magazine/trump-netanyahu-fear-elections.html
 **After ‘Babydoll’, Dominic Fike Embraces the Mess**\
 `In the wake of a viral hit, new sobriety and fatherhood, the rocker scrapped the album he had been working on to make a less-polished LP.`\
 https://www.nytimes.com/2026/11/06/arts/music/dominic-fike-popcast-interview.html
-
-**New York City Ballet’s ‘Nutcracker,’ Now in Virtual Reality**\
-`On a domed screen in Detroit, New York City Ballet’s production of “The Nutcracker” began a new, immersive chapter.`\
-https://www.nytimes.com/2026/11/06/arts/dance/nutcracker-virtual-reality-new-york-city-ballet.html
 
