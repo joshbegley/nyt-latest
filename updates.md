@@ -1,3 +1,15 @@
+**They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
+`Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
+https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
+
+**Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
+`A looming impeachment push could put President Trump’s polarizing defense secretary in a standoff with Democrats and Republicans.`\
+https://www.nytimes.com/2026/11/06/us/politics/hegseth-trump-iran-war.html
+
+**The Stock Market Can Be Volatile. Here’s How to Stay Calm.**\
+`Feeling a bit wobbly? Here are four things to consider that might provide some peace of mind.`\
+https://www.nytimes.com/2026/11/06/your-money/stock-market-volatility-investments.html
+
 **Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
 `The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
 https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html

@@ -1,3 +1,15 @@
+**They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
+`Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
+https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
+
+**Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
+`A looming impeachment push could put President Trump’s polarizing defense secretary in a standoff with Democrats and Republicans.`\
+https://www.nytimes.com/2026/11/06/us/politics/hegseth-trump-iran-war.html
+
+**The Stock Market Can Be Volatile. Here’s How to Stay Calm.**\
+`Feeling a bit wobbly? Here are four things to consider that might provide some peace of mind.`\
+https://www.nytimes.com/2026/11/06/your-money/stock-market-volatility-investments.html
+
 **Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
 `The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
 https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
 **Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
 `Bomb threats have disrupted dozens of flights in Europe over the past week. At airports in Rome, Madrid and Warsaw, travelers were more frustrated than fearful.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-europe-travel.html
-
-**After a $2.5 Trillion Wipeout, Tech Investors Brace for More Pain**\
-`A stock rally fueled in part by artificial intelligence is being tested after Democrats’ landslide election victories.`\
-https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
-
-**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
-`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,000 votes.`\
-https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
-
-**‘The Headlines’ News Quiz: Nov. 6, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
