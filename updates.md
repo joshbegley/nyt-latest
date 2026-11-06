@@ -1,3 +1,11 @@
+**Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
+`Paul Nthenge Mackenzie forced followers to starve themselves to meet Jesus and told parents to make sure their children fasted in the sun and died first.`\
+https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
+
+**Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
+`The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
+https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
+
 **Live Updates: U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
