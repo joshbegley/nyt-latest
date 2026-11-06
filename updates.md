@@ -1,3 +1,7 @@
+**Big Money’s Playbook Finally Failed**\
+`Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
+https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
+
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
 `Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
