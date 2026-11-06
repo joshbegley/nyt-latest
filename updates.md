@@ -1,3 +1,7 @@
+**John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
+`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
+https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
+
 **Corrections: Nov. 6, 2026**\
 `Corrections that appeared in print on Friday, Nov. 6, 2026.`\
 https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
