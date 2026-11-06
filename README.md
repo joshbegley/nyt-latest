@@ -1,3 +1,7 @@
+**Democratic Gains Could Advance an Alternative to the Electoral College**\
+`Lawmakers in states with new total Democratic control said they would try to join an effort to try to elect the next president effectively by popular vote. But momentum has stalled before.`\
+https://www.nytimes.com/2026/11/05/us/elections/national-popular-vote-compact-midterm-elections-2028.html
+
 **Severe Flooding Along Georgia-Tennessee Border Prompts Rescues**\
 `Dozens of people were evacuated by boat on Thursday in Tennessee and Georgia after heavy rains led to severe flooding.`\
 https://www.nytimes.com/video/weather/100000011265675/tennessee-georgia-flooding-rescues.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
 **Black Southerners Voted at Unusually High Levels — and They Voted for Democrats**\
 `Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
 https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
-
-**Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
-`According to the best data we have, teen mental health is improving.`\
-https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
 
