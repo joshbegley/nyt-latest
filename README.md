@@ -1,3 +1,15 @@
+**Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\
+`A judge has twice tossed the president’s defamation complaint, which centered on an article about a birthday greeting to the sex offender Jeffrey Epstein.`\
+https://www.nytimes.com/2026/11/06/business/media/trump-wall-street-journal.html
+
+**Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
+`In the lead-up to an election in which economic concerns dominate, there was no clear front-runner. Minor parties will most likely determine who governs.`\
+https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-polls.html
+
+**A Big Pot of Tomato Soup**\
+`With canned lentils for protein and staying power, and brown butter and heavy cream for richness.`\
+https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
+
 **California Still Has Nearly 5 Million Ballots to Count**\
 `The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
 https://www.nytimes.com/2026/11/06/us/elections/california-still-has-nearly-5-million-ballots-to-count.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-rev
 **A.I. Was Supposed to Come for Our Jobs. So Far, Evidence Is Mixed.**\
 `White collar industries that are most exposed to artificial intelligence continued to add jobs in October, although that growth has been weak.`\
 https://www.nytimes.com/2026/11/06/business/economy/ai-jobs-layoffs.html
-
-**Russell Brand Could Face More Accusations After Rape Conviction, Police Chief Says**\
-`The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
-https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
-
-**The Rise of Young Voters**\
-`We look at how they powered Democratic candidates.`\
-https://www.nytimes.com/2026/11/06/briefing/the-rise-of-young-voters.html
-
-**What’s the Wallpaper on Camera Obscura’s “Let’s Get Out of This Country” Cover**\
-`Tracking down a floral wallpaper featured on the artwork for Camera Obscura’s “Let’s Get Out of This Country.”`\
-https://www.nytimes.com/2026/11/06/t-magazine/camera-obscura-wallpaper-artwork.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
