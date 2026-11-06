@@ -1,3 +1,7 @@
+**Big Money’s Playbook Finally Failed**\
+`Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
+https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
+
 **Dominic Fike on the Art of Code Switching**\
 `Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
 https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/podcasts/the-daily/chuck-schumer-senate-democ
 **Today’s Wordle Hints for November 7, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
 https://www.nytimes.com/2026/11/06/crosswords/wordle-review-1967.html
-
-**Why the Tech Right Lost Big This Week**\
-`Following Tuesday’s election, we sit down with Erin Griffith and Ezra Klein to break down the impact on tech — from anti-AI and data-center pushback to Silicon Valley’s shifting politics. Plus, Max and Theodore Schleifer rank the midterm tech megadonors from first to worst.`\
-https://www.nytimes.com/video/podcasts/100000011244768/why-the-tech-right-lost-big-this-week.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

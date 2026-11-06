@@ -1,3 +1,7 @@
+**Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
+`Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
+https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
+
 **Dominic Fike on the Art of Code Switching**\
 `Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
 https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html

@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
-`Paul Nthenge Mackenzie forced followers to starve themselves to meet Jesus and told parents to make sure their children fasted in the sun and died first.`\
+`Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
 
 **Melania Trump Repositions the White Suit**\
