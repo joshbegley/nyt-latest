@@ -1,3 +1,7 @@
+**California Still Has Nearly 5 Million Ballots to Count**\
+`The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
+https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
+
 **Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\
 `A judge has twice tossed the president’s defamation complaint, which centered on an article about a birthday greeting to the sex offender Jeffrey Epstein.`\
 https://www.nytimes.com/2026/11/06/business/media/trump-wall-street-journal.html

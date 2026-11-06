@@ -12,7 +12,7 @@ https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
 
 **California Still Has Nearly 5 Million Ballots to Count**\
 `The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
-https://www.nytimes.com/2026/11/06/us/elections/california-still-has-nearly-5-million-ballots-to-count.html
+https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
 
 **Cornell Faculty Passes Vote of No Confidence in Administration**\
 `The vote is largely symbolic but serves as a sharp rebuke of campus leadership’s handling of a rape allegation that put the university in the national spotlight.`\
