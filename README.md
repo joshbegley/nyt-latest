@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/11/06/crosswords/strands-sidekick-979.html
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-midterms-melania-trump-diplomatic-role-ukraine.html
 
-**Live Updates: Hiring Picks Up and Unemployment Falls**\
+**Live Updates: U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
 
