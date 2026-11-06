@@ -1,3 +1,7 @@
+**This Is How Democrats Can Make Life More Affordable**\
+`Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
+https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
+
 **Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
 `Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after bomb threats, the latest of a series of security incidents.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
