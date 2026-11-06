@@ -1,3 +1,7 @@
+**Sinclair Clark Made Museum Masterpieces. Why Was His Name Left Out?**\
+`As a taxidermy tanner, he prepared the thick, heavy skins of majestic creatures for display in museums across the world. But for a long time, he went unnamed.`\
+https://www.nytimes.com/2026/11/06/obituaries/sinclair-clark-overlooked.html
+
 **Kenyan Court Sentences Cult Leader to 200 Years in Prison for Mass Murder**\
 `A Kenyan court sentenced the cult leader Paul Nthenge Mackenzie to 200 years in prison for murdering 190 children and one adult. He and his aides had forced followers to starve themselves to death.`\
 https://www.nytimes.com/video/world/africa/100000011267952/kenya-cult-leader-paul-mackenzie-sentence.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
 https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
 
 **Cornell Faculty Passes Vote of No Confidence in Administration**\
-`The largely symbolic vote serves as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
+`A largely symbolic no-confidence vote served as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
 https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
 
 **The Local: How Minneapolis looks to home buyers**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/opinion/claudia-rankine-nyt-175.html
 **The Greatest Flex for a Celebrity? A Photo With the Pope.**\
 `The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
 https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
-
-**Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
-`A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
-https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
