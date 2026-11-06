@@ -1,3 +1,7 @@
+**John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
+`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helping bring health insurance to millions of low-income children.`\
+https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
+
 **Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
 `Bomb threats have disrupted dozens of flights in Europe over the past week. At airports in Rome, Madrid and Warsaw, travelers were more frustrated than fearful.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-europe-travel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/television/sctv-episode-guide.html
 **10 Shows to Catch at the New York Comedy Festival**\
 `From headliners like Dave Chappelle and Marc Maron to up-and-comers like Olivia Carter, the event has plenty of options for fans.`\
 https://www.nytimes.com/2026/11/06/arts/television/new-york-comedy-festival-chappelle-maron-dropout.html
-
-**Dave Thomas Looks Back on ‘SCTV’**\
-`A new documentary explores the legacy of this sketch series, which is now available to stream. In an interview, a core cast member recalls its inception and his favorite sketches.`\
-https://www.nytimes.com/2026/11/06/arts/television/sctv-netflix-dave-thomas.html
 
