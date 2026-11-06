@@ -1,3 +1,7 @@
+**Ohio State Will Not Remove Wexner Name From Buildings Over Epstein Ties**\
+`Hundreds complained about Les Wexner’s ties to the convicted sex offender. But O.S.U. officials said he was not charged with wrongdoing and his name would remain.`\
+https://www.nytimes.com/2026/11/06/us/ohio-state-wexner-buildings-epstein.html
+
 **Some Publishers Drop Russell Brand After Rape Conviction**\
 `Some book publishers pulled Brand’s titles after his conviction on a rape charge on Thursday. But streaming services like YouTube seem less sure how to deal with old content featuring the former star.`\
 https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-
 **U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
 `Jason Reding Quiñones joins what is expected to be a succession of departures at the Justice Department after the midterm elections, including that of the leader of the national security division.`\
 https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
-
-**Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
-`Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after false bomb threats, the latest of a series of security incidents.`\
-https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
