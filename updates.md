@@ -1,3 +1,7 @@
+**U.S. Global Health Strategy Jeopardizes Prevention of Pandemics, Experts Warn**\
+`The Trump administration has been negotiating agreements with dozens of individual countries. Public health experts say a global agreement would be far more effective.`\
+https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-countries.html
+
 **Tesla Is Ending Production of Its Cybertruck and Refocusing on the Cybercab**\
 `Production of the electric trucks will stop in the middle of 2027 to make room for increased production of its autonomous ride-share vehicle, Elon Musk said.`\
 https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html

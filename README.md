@@ -1,3 +1,7 @@
+**The End of Yeezy**\
+`A runway show in Los Angeles made a case for the brand’s irrelevance.`\
+https://www.nytimes.com/2026/11/06/style/end-of-yeezy.html
+
 **U.S. Global Health Strategy Jeopardizes Prevention of Pandemics, Experts Warn**\
 `The Trump administration has been negotiating agreements with dozens of individual countries. Public health experts say a global agreement would be far more effective.`\
 https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-countries.html
@@ -114,8 +118,8 @@ https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-m
 `Financial tech firms promote home equity contracts as a source of money without monthly payments. But skeptics see “a loan masquerading as obligation-free cash.”`\
 https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
 
-**Mamdani Wants to Take On Amazon. The City Council Speaker Isn’t So Sure.**\
-`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The Council speaker, Julie Menin, and business leaders have concerns.`\
+**New York Is Set to Take On Amazon Over Drivers, if Its Leaders Can Agree**\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The City Council speaker, Julie Menin, and business leaders have concerns.`\
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-econo
 **Strong Hiring Reinforces a Sturdy Job Market**\
 `Unemployment fell in October, extending years of stability for a U.S. work force threated by inflation and artificial intelligence.`\
 https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
-
-**Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
-`The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
-https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
 

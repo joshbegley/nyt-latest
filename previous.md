@@ -1,3 +1,7 @@
+**U.S. Global Health Strategy Jeopardizes Prevention of Pandemics, Experts Warn**\
+`The Trump administration has been negotiating agreements with dozens of individual countries. Public health experts say a global agreement would be far more effective.`\
+https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-countries.html
+
 **Tesla Is Ending Production of Its Cybertruck and Refocusing on the Cybercab**\
 `Production of the electric trucks will stop in the middle of 2027 to make room for increased production of its autonomous ride-share vehicle, Elon Musk said.`\
 https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.ht
 **Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
 `The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
 https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
-
-**Florida Shattered Rain Records This Week. Was That Just a Preview?**\
-`Parts of the state recorded two feet of rain in a day. Will this El Niño winter deliver even more?`\
-https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
 
