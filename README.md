@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-
 https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
 
 **Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
-`Markets in Asia and Europe tumbled, with Japan’s market falling into a bear market.`\
+`Global stocks were rattled after a deep U.S. sell-off on Thursday, but signs of a rally emerged in futures markets at the end of a turbulent week for investors.`\
 https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
 
 **Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
