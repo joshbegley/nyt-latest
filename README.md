@@ -146,8 +146,8 @@ https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-euro
 `A stock rally fueled in part by artificial intelligence is being tested after Democrats’ landslide election victories.`\
 https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
 
-**Midterm Elections Live Updates: Democrats Build on Decisive Wins as Latest Votes Trickle In**\
-`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
+**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,000 votes.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
 
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
