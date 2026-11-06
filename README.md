@@ -1,3 +1,7 @@
+**Kenyan Court Sentences Cult Leader to 200 Years in Prison for Mass Murder**\
+`A Kenyan court sentenced the cult leader Paul Nthenge Mackenzie to 200 years in prison for murdering 190 children and one adult. He and his aides had forced followers to starve themselves to death.`\
+https://www.nytimes.com/video/world/africa/100000011267952/kenya-cult-leader-paul-mackenzie-sentence.html
+
 **Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
 `More than twice as many people in New York City died in fires this year compared with the same period in 2025.`\
 https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
 https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
 
 **Cornell Faculty Passes Vote of No Confidence in Administration**\
-`The vote is largely symbolic but serves as a sharp rebuke of campus leadership’s handling of a rape allegation that put the university in the national spotlight.`\
+`The largely symbolic vote serves as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
 https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
 
 **The Local: How Minneapolis looks to home buyers**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
 **Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
 `A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
 https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
-
-**Lauren Ambrose, in ‘Unbelievers,’ and Jasmine Cephas Jones, in ‘2:22,’ Are Superb**\
-`Lauren Ambrose plays the mother of a missing teen in “The Unbelievers,” and Jasmine Cephas Jones plays a mother hearing spooky sounds in “2:22.”`\
-https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-review-ambrose.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

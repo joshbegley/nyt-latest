@@ -1,3 +1,7 @@
+**Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
+`More than twice as many people in New York City died in fires this year compared with the same period in 2025.`\
+https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
+
 **California Still Has Nearly 5 Million Ballots to Count**\
 `The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
 https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html

@@ -1,3 +1,7 @@
+**Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
+`More than twice as many people in New York City died in fires this year compared with the same period in 2025.`\
+https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
+
 **Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\
 `A judge has twice tossed the president’s defamation complaint, which centered on an article about a birthday greeting to the sex offender Jeffrey Epstein.`\
 https://www.nytimes.com/2026/11/06/business/media/trump-wall-street-journal.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
 **Lauren Ambrose, in ‘Unbelievers,’ and Jasmine Cephas Jones, in ‘2:22,’ Are Superb**\
 `Lauren Ambrose plays the mother of a missing teen in “The Unbelievers,” and Jasmine Cephas Jones plays a mother hearing spooky sounds in “2:22.”`\
 https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-review-ambrose.html
-
-**A.I. Was Supposed to Come for Our Jobs. So Far, Evidence Is Mixed.**\
-`White collar industries that are most exposed to artificial intelligence continued to add jobs in October, although that growth has been weak.`\
-https://www.nytimes.com/2026/11/06/business/economy/ai-jobs-layoffs.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
