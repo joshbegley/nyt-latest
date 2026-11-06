@@ -1,3 +1,11 @@
+**Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
+`Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after bomb threats, the latest of a series of security incidents.`\
+https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
+
+**Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
+`Global markets were rattled after a deep U.S. sell-off on Thursday, but a rally emerged at the end of a turbulent week for investors.`\
+https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
+
 **The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
 `Lauren Sottile’s signature cut is a style coveted by artsy women in New York City looking for a bit of edge.`\
 https://www.nytimes.com/2026/11/06/style/rama-duwaji-haircut-lauren-sottile-brooklyn.html
