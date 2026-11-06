@@ -1,3 +1,31 @@
+**Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\
+`A judge has twice tossed the president’s defamation complaint, which centered on an article about a birthday greeting to the sex offender Jeffrey Epstein.`\
+https://www.nytimes.com/2026/11/06/business/media/trump-wall-street-journal.html
+
+**Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
+`In the lead-up to an election in which economic concerns dominate, there was no clear front-runner. Minor parties will most likely determine who governs.`\
+https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-polls.html
+
+**A Big Pot of Tomato Soup**\
+`With canned lentils for protein and staying power, and brown butter and heavy cream for richness.`\
+https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
+
+**California Still Has Nearly 5 Million Ballots to Count**\
+`The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
+https://www.nytimes.com/2026/11/06/us/elections/california-still-has-nearly-5-million-ballots-to-count.html
+
+**Cornell Faculty Passes Vote of No Confidence in Administration**\
+`The vote is largely symbolic but serves as a sharp rebuke of campus leadership’s handling of a rape allegation that put the university in the national spotlight.`\
+https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
+
+**The Local: How Minneapolis looks to home buyers**\
+`Also, what Bob Dylan gave to the Pope.`\
+https://www.nytimes.com/2026/11/06/briefing/minneapolis-home-buyers.html
+
+**F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
+`Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic at the nation’s air traffic control centers.`\
+https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
+
 **How Elon Musk Frittered Away Nearly $500 Million on the Midterm Elections**\
 `Behind the scenes, the world’s richest person spent a record amount over two years to bend the country’s politics to his will. He couldn’t.`\
 https://www.nytimes.com/2026/11/06/us/politics/musk-trump-midterm-election-spending.html
