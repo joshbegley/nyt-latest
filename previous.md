@@ -1,3 +1,11 @@
+**Democrats Took Over Texas. What Now?**\
+`Democrats’ wins in the Lone Star state exceeded their wildest dreams.`\
+https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now.html
+
+**Macklemore Says U.S. Arenas Won’t Book His ‘Free Palestine’ Tour**\
+`The singer was kicked off Ed Sheeran’s tour in September over his vocal support for Palestinians.`\
+https://www.nytimes.com/2026/11/06/arts/music/macklemore-says-us-arenas-wont-book-his-free-palestine-tour.html
+
 **Paraguay’s President Removed Over Financial Crisis**\
 `Millions lost access to their savings, and the nation’s president was impeached and removed from office Friday after a major bank with close ties to his administration went under.`\
 https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-o
 **After Israel’s Election, Who Will Get the First Chance to Form a Government?**\
 `President Isaac Herzog is set to task a candidate with trying to form a government, following two days of talks with party leaders and officials after an inconclusive election.`\
 https://www.nytimes.com/2026/11/06/world/middleeast/israel-election-government-herzog.html
-
-**Pope Departs for Busy Latin America Trip Weeks After Lung Cancer Surgery**\
-`Pope Leo XIV on Friday embarked on a 12-day tour of Latin America, his first major trip since undergoing surgery after being diagnosed with lung cancer.`\
-https://www.nytimes.com/video/world/americas/100000011267365/pope-leo-uruguay-argentina-peru-tour-cancer.html
-
-**What Led to the Blue Wave, and What Comes Next**\
-`Readers discuss the blue wave midterm elections, looking back and ahead. Also: Applying to New York City high schools.`\
-https://www.nytimes.com/2026/11/06/opinion/midterm-elections.html
 

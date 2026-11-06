@@ -1,3 +1,11 @@
+**Democrats Took Over Texas. What Now?**\
+`Democrats’ wins in the Lone Star state exceeded their wildest dreams.`\
+https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now.html
+
+**Macklemore Says U.S. Arenas Won’t Book His ‘Free Palestine’ Tour**\
+`The singer was kicked off Ed Sheeran’s tour in September over his vocal support for Palestinians.`\
+https://www.nytimes.com/2026/11/06/arts/music/macklemore-says-us-arenas-wont-book-his-free-palestine-tour.html
+
 **Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
 `In the lead-up to an election in which economic concerns dominate, there was no clear front-runner. Minor parties will most likely determine who governs.`\
 https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
