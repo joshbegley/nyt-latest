@@ -1,3 +1,15 @@
+**A Cornell Fraternity Was Supposed to Have an Adult on Hand. It Didn’t.**\
+`University rules required Chi Phi to have a live-in adviser on the premises the night a woman said she was raped at the fraternity house. The organization had not hired one.`\
+https://www.nytimes.com/2026/11/06/nyregion/cornell-fraternity-sex-assault-adviser.html
+
+**Her Business Flooded. So She Took to the Streets, With a Broom.**\
+`Valeen Bhat warns that fall foliage, though picturesque, can prove dangerous when it clogs storm drains. She is spreading the gospel of clearing leaves.`\
+https://www.nytimes.com/2026/11/06/nyregion/storm-drains-clogged-leaves.html
+
+**NYT Spelling Bee Answers for November 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/06/crosswords/spelling-bee-forum.html
+
 **Bomb Threats Disrupt Dozens of Flights in Europe**\
 `Bomb threats disrupted dozens of flights in Europe this week, prompting some countries to order fighter jets to respond to what turned out to be hoaxes.`\
 https://www.nytimes.com/video/world/europe/100000011267060/bomb-threats-europe-flights-airlines.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/alaska-senate-peltola-sullivan-wh
 **The Painter Who’s Been Hiding in Plain Sight for Nearly 50 Years**\
 `Ahead of an exhibition in New York, Takako Yamaguchi discusses her process and what it was like to be discovered so long after she began.`\
 https://www.nytimes.com/2026/11/05/t-magazine/takako-yamaguchi-ortuzar.html
-
-**Bird Flu Death in Washington State Renews Concern Over the Virus**\
-`The death follows reports of infections in cattle on dozens of American farms across the country over the past month and a worrying outbreak in mink.`\
-https://www.nytimes.com/2026/11/05/health/bird-flu-death-us.html
-
-**Google, Meta and TikTok Sue California Over Ban on Features for Kids**\
-`Separate lawsuits were filed by Google, Meta and TikTok, which have been battling a flood of claims that their services are addictive.`\
-https://www.nytimes.com/2026/11/05/technology/social-media-child-safety-california.html
-
-**The Many Meanings of James Talarico’s Winning Cowboy Boots**\
-`Obviously, the Texas election was about more than shoes. But the symbolism mattered.`\
-https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senate-race.html
 

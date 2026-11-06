@@ -1,3 +1,15 @@
+**A Cornell Fraternity Was Supposed to Have an Adult on Hand. It Didn’t.**\
+`University rules required Chi Phi to have a live-in adviser on the premises the night a woman said she was raped at the fraternity house. The organization had not hired one.`\
+https://www.nytimes.com/2026/11/06/nyregion/cornell-fraternity-sex-assault-adviser.html
+
+**Her Business Flooded. So She Took to the Streets, With a Broom.**\
+`Valeen Bhat warns that fall foliage, though picturesque, can prove dangerous when it clogs storm drains. She is spreading the gospel of clearing leaves.`\
+https://www.nytimes.com/2026/11/06/nyregion/storm-drains-clogged-leaves.html
+
+**NYT Spelling Bee Answers for November 6, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/06/crosswords/spelling-bee-forum.html
+
 **Bomb Threats Disrupt Dozens of Flights in Europe**\
 `Bomb threats disrupted dozens of flights in Europe this week, prompting some countries to order fighter jets to respond to what turned out to be hoaxes.`\
 https://www.nytimes.com/video/world/europe/100000011267060/bomb-threats-europe-flights-airlines.html
