@@ -1,3 +1,7 @@
+**Dominic Fike on Public Breakups, ‘Babydoll,’ Fatherhood & Sobriety**\
+`Watch the full conversation with Dominic Fike. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011260426/dominic-fike-on-public-breakups-babydoll-fatherhood-sobriety.html
+
 **2026 Midterms Data: How Democrats Won the Largest House Majority Since 2008**\
 `Democrats are on track to win the largest House majority since 2008, when they won 257 seats.`\
 https://www.nytimes.com/interactive/2026/11/05/us/elections/democrats-house-majority-midterms-data.html
