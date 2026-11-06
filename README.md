@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojo
 `“When he feels cornered, when he feels attacked, he fights back,” the columnist Carlos Lozada says of Donald Trump, who is now entering the lame-duck phase of his presidency. Columnists from across Times Opinion share their predictions for what the final two years of Trump’s term might look like — and they’re not pretty.`\
 https://www.nytimes.com/video/opinion/100000011257733/what-to-expect-from-lame-duck-trump.html
 
-**Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
-`As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
-https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
-
 **What Democrats Can Do Now to Lower Costs**\
 `Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
 https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
+
+**Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
+`As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
+https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
 
 **59 Movies to See This Winter, From ‘Avengers: Doomsday’ to ‘Dune: Part Three’**\
 `The riches this season include “Dune: Part Three” along with surprises like a Paul Thomas Anderson concert film and a Nigerian adaptation of “Mrs. Dalloway.”`\
