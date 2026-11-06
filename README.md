@@ -1,3 +1,11 @@
+**Time’s Up, Hegseth**\
+`Many in Washington believe Pete Hegseth’s future leading the Defense Department can be counted in days.`\
+https://www.nytimes.com/2026/11/06/opinion/pete-hegseth-rant-impeachment.html
+
+**Christopher Murphy Will Not Return to Senate Next Week After Stroke**\
+`Senator Christopher S. Murphy, Democrat of Connecticut, said in a statement that he would spend several weeks recovering at a rehabilitation center.`\
+https://www.nytimes.com/2026/11/06/us/politics/chris-murphy-senate-stroke.html
+
 **Lonnie Thompson Has Died. He Dodged Avalanches to Preserve Climate History.**\
 `His observations helped establish shriveling mountain glaciers as an unmistakable consequence of human-caused warming. He was 78.`\
 https://www.nytimes.com/2026/11/06/science/lonnie-thompson-dead.html
@@ -15,7 +23,7 @@ https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amaz
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
 
 **Live Updates: Stephen Miller to Replace Susie Wiles as Trump’s Chief of Staff**\
-`President Trump announced the shake-up on social media. Mr. Miller, a domestic policy adviser, has driven the administration’s immigration crackdown.`\
+`Mr. Miller, a domestic policy adviser, has driven the administration’s immigration crackdown. The staff shake-up follows sweeping losses for Republicans in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 
 **Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
 **She Commands the Sunken Titanic, From 1,000 Miles Away**\
 `A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
 https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
-
-**What Homeowners Should Know About Home Equity Contracts**\
-`Financial tech firms promote home equity contracts as a source of money without monthly payments. But skeptics see “a loan masquerading as obligation-free cash.”`\
-https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
-
-**New York Is Set to Take On Amazon Over Drivers, if Its Leaders Can Agree**\
-`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The City Council speaker, Julie Menin, and business leaders have concerns.`\
-https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
