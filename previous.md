@@ -1,3 +1,7 @@
+**Some Publishers Drop Russell Brand After Rape Conviction**\
+`Some book publishers pulled Brand’s titles after his conviction on a rape charge on Thursday. But streaming services like YouTube seem less sure how to deal with old content featuring the former star.`\
+https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
+
 **Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
 `The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
 https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
@@ -22,7 +26,7 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Trump Elevates Stephen Miller to Chief of Staff in White House shakeup**\
+**Trump Elevates Stephen Miller to Chief of Staff in White House Shake-Up**\
 `Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.htm
 **Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
 `Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after false bomb threats, the latest of a series of security incidents.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
-
-**The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
-`Lauren Sottile’s signature cut is a style coveted by artsy women in New York City looking for a bit of edge.`\
-https://www.nytimes.com/2026/11/06/style/rama-duwaji-haircut-lauren-sottile-brooklyn.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

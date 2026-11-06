@@ -1,3 +1,11 @@
+**Some Publishers Drop Russell Brand After Rape Conviction**\
+`Some book publishers pulled Brand’s titles after his conviction on a rape charge on Thursday. But streaming services like YouTube seem less sure how to deal with old content featuring the former star.`\
+https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
+
+**Trump Elevates Stephen Miller to Chief of Staff in White House Shake-Up**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
 `The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
 https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
