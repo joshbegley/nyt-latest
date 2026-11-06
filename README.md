@@ -1,3 +1,7 @@
+**What Democrats Can Do Now to Lower Costs**\
+`Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
+https://www.nytimes.com/video/opinion/100000011255944/what-democrats-can-do-now-to-lower-costs.html
+
 **Europe Still Sees Trump As Powerful, Especially in Foreign Policy**\
 `The commanding victory of the Democrats has brought private relief to some Europeans but no official glee, with Ukraine, Iran and NATO all hanging in the balance.`\
 https://www.nytimes.com/2026/11/06/world/europe/europe-trump-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/business/media/tv-ratings-midterms-steve-korn
 **Harriet Hancock, a Force in South Carolina’s Gay Rights Movement, Has Died**\
 `She became an early and leading activist for gay and lesbian rights in a time and place where that was extremely rare. She was 89.`\
 https://www.nytimes.com/2026/11/05/us/harriet-hancock-dead.html
-
-**Art Gallery Shows to See in November**\
-`This week in Newly Reviewed, Andrew Russeth covers Gedi Sibony’s scavenger hunt, Mildred Thompson’s vivid planets, Fiona Tan’s voices and ghosts, and Ben Kinmont’s archives.`\
-https://www.nytimes.com/2026/11/05/arts/art-gallery-shows-to-see-in-november.html
 
