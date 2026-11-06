@@ -1,3 +1,35 @@
+**Why the Tech Right Lost Big This Week**\
+`“This felt like a decidedly anti-tech election.”`\
+https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
+
+**Why the Eagles Collapsed**\
+`Plus, has Lamar Jackson played his last game with the Ravens?`\
+https://www.nytimes.com/2026/11/06/podcasts/why-the-eagles-collapsed.html
+
+**Chuck Schumer on Governing With (or Without) Trump**\
+`“The Daily” goes to Capitol Hill to talk with Senator Chuck Schumer.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-daily/chuck-schumer-senate-democrats.html
+
+**Today’s Wordle Hints for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/wordle-review-1967.html
+
+**Why the Tech Right Lost Big This Week**\
+`Following Tuesday’s election, we sit down with Erin Griffith and Ezra Klein to break down the impact on tech — from anti-AI and data-center pushback to Silicon Valley’s shifting politics. Plus, Max and Theodore Schleifer rank the midterm tech megadonors from first to worst.`\
+https://www.nytimes.com/video/podcasts/100000011244768/why-the-tech-right-lost-big-this-week.html
+
+**NYT Connections Answers for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/connections-companion-1245.html
+
+**NYT Strands Hints for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/strands-sidekick-979.html
+
+**A Data Center Backlash in the Midterms, and Melania Trump’s Surprising Diplomatic Role**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-midterms-melania-trump-diplomatic-role-ukraine.html
+
 **Live Updates: Latest Look at a Stable Job Market**\
 `Hiring and unemployment figures for October will provide an update on a work force that has added jobs at a slow, steady pace for months.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy

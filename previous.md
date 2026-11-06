@@ -1,3 +1,35 @@
+**Why the Tech Right Lost Big This Week**\
+`“This felt like a decidedly anti-tech election.”`\
+https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
+
+**Why the Eagles Collapsed**\
+`Plus, has Lamar Jackson played his last game with the Ravens?`\
+https://www.nytimes.com/2026/11/06/podcasts/why-the-eagles-collapsed.html
+
+**Chuck Schumer on Governing With (or Without) Trump**\
+`“The Daily” goes to Capitol Hill to talk with Senator Chuck Schumer.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-daily/chuck-schumer-senate-democrats.html
+
+**Today’s Wordle Hints for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/wordle-review-1967.html
+
+**Why the Tech Right Lost Big This Week**\
+`Following Tuesday’s election, we sit down with Erin Griffith and Ezra Klein to break down the impact on tech — from anti-AI and data-center pushback to Silicon Valley’s shifting politics. Plus, Max and Theodore Schleifer rank the midterm tech megadonors from first to worst.`\
+https://www.nytimes.com/video/podcasts/100000011244768/why-the-tech-right-lost-big-this-week.html
+
+**NYT Connections Answers for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/connections-companion-1245.html
+
+**NYT Strands Hints for November 7, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/06/crosswords/strands-sidekick-979.html
+
+**A Data Center Backlash in the Midterms, and Melania Trump’s Surprising Diplomatic Role**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-midterms-melania-trump-diplomatic-role-ukraine.html
+
 **Live Updates: Latest Look at a Stable Job Market**\
 `Hiring and unemployment figures for October will provide an update on a work force that has added jobs at a slow, steady pace for months.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/11/06/opinion/hakeem-jeffries-congress-democrats-mi
 **How to Protect Your Vacation Home From Nuisance Wildlife**\
 `Homeowners are likely to miss the signs of animals moving into their vacation homes. Here’s how to prevent it from happening.`\
 https://www.nytimes.com/2026/11/06/realestate/second-homes-nuisance-animals-deterrents.html
-
-**Wandering Budapest’s Haunted Streets**\
-`The Hungarian capital is a place of wrenching history and astonishing beauty, one perhaps best experienced at night.`\
-https://www.nytimes.com/2026/11/06/t-magazine/budapest-hungary-night-walking.html
-
-**A Rediscovered Classic by the Author of ‘Goodnight Moon’**\
-`“The Dark Wood of the Golden Birds,” a long out-of-print picture book published in 1950, illuminates the metaphysical side of Margaret Wise Brown.`\
-https://www.nytimes.com/2026/11/06/books/review/margaret-wise-brown-lost-classic-dark-wood-golden-birds.html
-
-**Tired of Slow TikToks? This Content Creator Gives You the Ending**\
-`Videos on social media often save key details for the end. One content creator, who goes by Heyitsyoon, skips the filler so viewers don’t have to wait.`\
-https://www.nytimes.com/2026/11/06/technology/tiktok-time-saved-videos-heyitsyoon.html
-
-**European Countries Push, Again, To Deport Migrants to Rwanda**\
-`Five European nations are closing in on a plan to send rejected migrants to Rwanda following a failed U.K. deal with the country.`\
-https://www.nytimes.com/2026/11/06/world/europe/europe-migrants-rwanda.html
-
-**Is It Finally Time to Buy a Second Home in Atlantic City?**\
-`The New Jersey shore town, best known for its casinos and urban decay, is getting a makeover. For second homeowners, it might be the last great beach town deal.`\
-https://www.nytimes.com/2026/11/06/realestate/atlantic-city-second-homes-developers.html
-
-**Word of the Day: expectant**\
-`This word has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/06/learning/word-of-the-day-expectant.html
-
-**Disaster-Prone Communities Face Cuts and Slowdowns in Federal Help**\
-`The Trump administration is scaling back or stalling investments that help vulnerable places harden themselves to rising flood and fire threats.`\
-https://www.nytimes.com/2026/11/06/climate/fema-grants-cuts-resilience.html
-
-**Alberta’s Librarians Brace for a New Era of ‘Book Bans’**\
-`A new provincial law requires public libraries to pull and restrict items with “graphic visual depictions of sexual acts.” Librarians are worried.`\
-https://www.nytimes.com/2026/11/06/world/canada/alberta-book-ban-public-libraries.html
 
