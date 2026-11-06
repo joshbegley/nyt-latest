@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-euro
 https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
 
 **Midterm Elections Live Updates: Democrats Build on Decisive Wins as Late Votes Trickle In**\
-`Democrats have won at least 253 seats in the House and 54 in the Senate, but dozens of races remain too close to call.`\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
 
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
@@ -188,7 +188,7 @@ https://www.nytimes.com/2026/11/06/business/farmers-election-trump-democrats.htm
 
 **Whitney Museum Announces Curators for 2028 Biennial**\
 `Meg Onli, a Biennial veteran, and Zack Winokur, the former artistic director of Little Island, will organize the 83rd edition of the much-scrutinized exhibition.`\
-https://www.nytimes.com/2026/11/06/arts/whitney-museum-curators-2028-biennial.html
+https://www.nytimes.com/2026/11/06/arts/design/whitney-museum-curators-2028-biennial.html
 
 **These Newly Elected Lawmakers Know Something Trump Doesn’t: Science**\
 `Among those elected to Congress on Tuesday are a mathematician, a microbiologist and a chemical engineer. They plan to take on a White House that has threatened funding cuts to research.`\

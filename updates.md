@@ -1,3 +1,11 @@
+**Midterm Elections Live Updates: Democrats Build on Decisive Wins as Late Votes Trickle In**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
+
+**Whitney Museum Announces Curators for 2028 Biennial**\
+`Meg Onli, a Biennial veteran, and Zack Winokur, the former artistic director of Little Island, will organize the 83rd edition of the much-scrutinized exhibition.`\
+https://www.nytimes.com/2026/11/06/arts/design/whitney-museum-curators-2028-biennial.html
+
 **The Greatest Flex for a Celebrity? A Photo With the Pope.**\
 `The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
 https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
