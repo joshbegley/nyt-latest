@@ -1,3 +1,11 @@
+**Tanzania’s Opposition Leader Gets a Four-Year Sentence**\
+`Tundu Lissu was found guilty of incitement for statements he had made ahead of a presidential election in October 2025.`\
+https://www.nytimes.com/2026/11/06/world/africa/tanzanias-opposition-leader-gets-a-four-year-sentence.html
+
+**Flashback: Your Weekly History Quiz, Nov. 7, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/06/upshot/flashback.html
+
 **‘It Gets Worse’ Review: Leo Reich Comedy Channels ‘Girls’**\
 `Produced by A24 and Crave, Leo Reich’s new comedy is prickly and perceptive.`\
 https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
@@ -98,8 +106,8 @@ https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-m
 `Financial tech firms promote home equity contracts as a source of money without monthly payments. But skeptics see “a loan masquerading as obligation-free cash.”`\
 https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
 
-**Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
-`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The business-friendly Council speaker, Julie Menin, has concerns.`\
+**Mamdani Wants to Take On Amazon. The City Council Speaker Isn’t So Sure.**\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The Council speaker, Julie Menin, and business leaders have concerns.`\
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
@@ -166,12 +174,12 @@ https://www.nytimes.com/2026/11/06/crosswords/strands-sidekick-979.html
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-midterms-melania-trump-diplomatic-role-ukraine.html
 
-**Live Updates: U.S. Hiring Picks Up and Unemployment Falls**\
+**U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
 
-**Here’s the latest.**\
-`(No description)`\
+**Strong Hiring Reinforces a Sturdy Job Market**\
+`Unemployment fell in October, extending years of stability for a U.S. work force threated by inflation and artificial intelligence.`\
 https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
 
 **Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
 **Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
 `Global markets were rattled after a deep U.S. sell-off on Thursday, but a rally emerged at the end of a turbulent week for investors.`\
 https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
-
-**Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
-`Victory for Democrats could alter the course of peace negotiations and a war nearing its fifth year.`\
-https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html
-
-**Rachel Maddow on America’s Pendulum Swing**\
-`The MS NOW anchor takes stock of the midterms, the memes and the democratic project.`\
-https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swing.html
 
