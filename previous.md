@@ -1,3 +1,7 @@
+**Severe Flooding Along Georgia-Tennessee Border Prompts Rescues**\
+`Dozens of people were evacuated by boat on Thursday in Tennessee and Georgia after heavy rains led to severe flooding.`\
+https://www.nytimes.com/video/weather/100000011265675/tennessee-georgia-flooding-rescues.html
+
 **In Mississippi, Careful Scrutiny of Votes in an Unexpectedly Tight Race**\
 `A phalanx of lawyers, observers and campaign officials are watching the counting of votes in the race for Senate, where a Democratic challenger has a slim lead.`\
 https://www.nytimes.com/2026/11/05/us/mississippi-senate-colom-hydesmith-votes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-win
 **Teen Mental Health Isn’t in Crisis. It Is Actually Improving.**\
 `According to the best data we have, teen mental health is improving.`\
 https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
-
-**I’m a Republican. We Have Let Too Many Weirdos Into Our Party.**\
-`The G.O.P. cannot allow itself to be defined by its radicals.`\
-https://www.nytimes.com/2026/11/05/opinion/republicans-jd-vance-weirdo-right.html
 
