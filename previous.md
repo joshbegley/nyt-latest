@@ -1,3 +1,7 @@
+**How Dominic Fike Fell Back in Love With Music**\
+`Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
+https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
+
 **Big Money’s Playbook Finally Failed**\
 `Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
 https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/podcasts/why-the-eagles-collapsed.html
 **Chuck Schumer on Governing With (or Without) Trump**\
 `“The Daily” goes to Capitol Hill to talk with Senator Chuck Schumer.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-daily/chuck-schumer-senate-democrats.html
-
-**Today’s Wordle Hints for November 7, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 7, 2026.`\
-https://www.nytimes.com/2026/11/06/crosswords/wordle-review-1967.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

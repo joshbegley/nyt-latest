@@ -1,3 +1,7 @@
+**How Dominic Fike Fell Back in Love With Music**\
+`Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
+https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
+
 **Big Money’s Playbook Finally Failed**\
 `Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
 https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
