@@ -1,3 +1,7 @@
+**The Changing Politics of Identity**\
+`This is one reason voters are swinging between parties.`\
+https://www.nytimes.com/2026/11/06/briefing/the-changing-politics-of-identity.html
+
 **Why the Tech Right Lost Big This Week**\
 `“This felt like a decidedly anti-tech election.”`\
 https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/dance/nutcracker-virtual-reality-new-yor
 **He’s the Most Powerful Democrat in Washington. Is He Up to the Job?**\
 `He’s the country’s top Democrat now. He needs to act like it.`\
 https://www.nytimes.com/2026/11/06/opinion/hakeem-jeffries-congress-democrats-midterms.html
-
-**How to Protect Your Vacation Home From Nuisance Wildlife**\
-`Homeowners are likely to miss the signs of animals moving into their vacation homes. Here’s how to prevent it from happening.`\
-https://www.nytimes.com/2026/11/06/realestate/second-homes-nuisance-animals-deterrents.html
 
