@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Visual Dictionaries**\
+`What do the style choices people make tell us about who they are — or what they want us to believe?`\
+https://www.nytimes.com/2026/11/06/learning/15-minute-lesson-plan-visual-dictionaries.html
+
 **Democratic Socialist Elected Next Mayor of Los Angeles**\
 `Nithya Raman, a democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
 https://www.nytimes.com/video/us/elections/100000011266748/nithya-raman-los-angeles-mayor.html
