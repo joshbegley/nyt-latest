@@ -1,3 +1,7 @@
+**After a Generation, Southern Democrats Finally Have the Chance to Lead**\
+`Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
+https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html
+
 **Rob Sand Was a Prada Runway Model. Now He’s Going to Be Iowa Governor.**\
 `Rob Sand, an Iowa state auditor who was elected governor on Tuesday, spent part of his youth walking runways before a career in politics.`\
 https://www.nytimes.com/2026/11/06/style/rob-sand-iowa-governor-prada-model.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Trump Elevates Stephen Miller to Chief of Staff in White House Shake-Up**\
+**Here’s the latest.**\
 `Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church
 **Colom Leads Hyde-Smith in Mississippi Senate Race After Latest Vote Report**\
 `Scott Colom, the Democratic nominee, has kept his edge over the Republican incumbent, Cindy Hyde-Smith, as more provisional and mail ballots were reported throughout the state.`\
 https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-senate-race.html
-
-**Bomb Threats in Europe Expand to Broadcasters**\
-`A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
-https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
