@@ -1,3 +1,7 @@
+**Melania Trump Repositions the White Suit**\
+`The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
+https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
+
 **John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
 `The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helping bring health insurance to millions of low-income children.`\
 https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/science/ai-exponential-time-hypothesis.html
 **A Guide to the Comedy Gold Mine That Is ‘SCTV’**\
 `The Canadian sketch show, now available on Netflix, featured a murderer’s row of comedians like John Candy, Catherine O’Hara, Eugene Levy and Andrea Martin.`\
 https://www.nytimes.com/2026/11/06/arts/television/sctv-episode-guide.html
-
-**10 Shows to Catch at the New York Comedy Festival**\
-`From headliners like Dave Chappelle and Marc Maron to up-and-comers like Olivia Carter, the event has plenty of options for fans.`\
-https://www.nytimes.com/2026/11/06/arts/television/new-york-comedy-festival-chappelle-maron-dropout.html
 
