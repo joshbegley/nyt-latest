@@ -1,3 +1,7 @@
+**Rob Sand Was a Prada Runway Model. Now He’s Going to Be Iowa Governor.**\
+`Rob Sand, an Iowa state auditor who was elected governor on Tuesday, spent part of his youth walking runways before a career in politics.`\
+https://www.nytimes.com/2026/11/06/style/rob-sand-iowa-governor-prada-model.html
+
 **How Dominic Fike Fell Back in Love With Music**\
 `On ‘Popcast,” the musician and actor Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
 https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
