@@ -1,3 +1,11 @@
+**Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
+`The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
+https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
+
+**Trump Elevates Stephen Miller to Chief of Staff in White House shakeup**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **Time’s Up, Hegseth**\
 `Many in Washington believe Pete Hegseth’s future leading the Defense Department can be counted in days.`\
 https://www.nytimes.com/2026/11/06/opinion/pete-hegseth-rant-impeachment.html
