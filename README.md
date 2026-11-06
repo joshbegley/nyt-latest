@@ -1,3 +1,7 @@
+**Europe Still Sees Trump As Powerful, Especially in Foreign Policy**\
+`The commanding victory of the Democrats has brought private relief to some Europeans but no official glee, with Ukraine, Iran and NATO all hanging in the balance.`\
+https://www.nytimes.com/2026/11/06/world/europe/europe-trump-midterms.html
+
 **15-Minute Lesson Plan: Visual Dictionaries**\
 `What do the style choices people make tell us about who they are — or what they want us to believe?`\
 https://www.nytimes.com/2026/11/06/learning/15-minute-lesson-plan-visual-dictionaries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/us/harriet-hancock-dead.html
 **Art Gallery Shows to See in November**\
 `This week in Newly Reviewed, Andrew Russeth covers Gedi Sibony’s scavenger hunt, Mildred Thompson’s vivid planets, Fiona Tan’s voices and ghosts, and Ben Kinmont’s archives.`\
 https://www.nytimes.com/2026/11/05/arts/art-gallery-shows-to-see-in-november.html
-
-**Rubio Dismisses Reports He Will Leave His Jobs to Run for President**\
-`President Trump’s secretary of state and national security adviser said he intended to stick with the administration to the end.`\
-https://www.nytimes.com/2026/11/05/us/politics/marco-rubio-2028.html
 
