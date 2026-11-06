@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/11/06/climate/fema-grants-cuts-resilience.html
 `A new provincial law requires public libraries to pull and restrict items with “graphic visual depictions of sexual acts.” Librarians are worried.`\
 https://www.nytimes.com/2026/11/06/world/canada/alberta-book-ban-public-libraries.html
 
-**People Are Using Weekend and Seasonal Homes Year-Round Long After the Pandemic**\
-`Long after the pandemic, people are still using weekend and seasonal homes year-round.`\
-https://www.nytimes.com/2026/11/06/realestate/secondary-homes-year-round.html
-

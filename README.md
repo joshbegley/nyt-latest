@@ -1,3 +1,7 @@
+**Live Updates: Latest Look at a Stable Job Market**\
+`Hiring and unemployment figures for October will provide an update on a work force that has added jobs at a slow, steady pace for months.`\
+https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
+
 **Stable Labor Market to Keep Fed on Track to Raise Rates Gradually**\
 `The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
 https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
