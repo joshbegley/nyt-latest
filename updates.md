@@ -1,3 +1,11 @@
+**‘Rope’ and ‘The Verge’: The Joy of Sex and Death**\
+`Two theater pieces that drill down from the polite society of the intelligentsia to the most primal animal urges, with acknowledgments to Freud.`\
+https://www.nytimes.com/2026/11/05/theater/rope-the-verge-review-off-broadway-silverman.html
+
+**NYT Crossword Answers for Nov. 6, 2026**\
+`Aidan Deshong opens our solving weekend.`\
+https://www.nytimes.com/2026/11/05/crosswords/daily-puzzle-2026-11-06.html
+
 **Democratic Gains Could Advance an Alternative to the Electoral College**\
 `Lawmakers in states with new total Democratic control said they would try to join an effort to try to elect the next president effectively by popular vote. But momentum has stalled before.`\
 https://www.nytimes.com/2026/11/05/us/elections/national-popular-vote-compact-midterm-elections-2028.html
