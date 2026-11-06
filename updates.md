@@ -1,3 +1,11 @@
+**The End of Yeezy**\
+`A runway show in Los Angeles made a case for the brand’s irrelevance.`\
+https://www.nytimes.com/2026/11/06/style/end-of-yeezy.html
+
+**New York Is Set to Take On Amazon Over Drivers, if Its Leaders Can Agree**\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The City Council speaker, Julie Menin, and business leaders have concerns.`\
+https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
+
 **U.S. Global Health Strategy Jeopardizes Prevention of Pandemics, Experts Warn**\
 `The Trump administration has been negotiating agreements with dozens of individual countries. Public health experts say a global agreement would be far more effective.`\
 https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-countries.html
