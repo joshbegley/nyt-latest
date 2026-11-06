@@ -1,3 +1,15 @@
+**Is K-pop Experiencing Its Own Revival?**\
+`In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
+https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html
+
+**Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
+`The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
+https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
+
+**Trump Taps Stephen Miller as New White House Chief of Staff**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
 `Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
-
-**Melania Trump Repositions the White Suit**\
-`The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
-https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
-
-**John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
-`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
-https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
-
-**Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
-`Bomb threats have disrupted dozens of flights in Europe over the past week. At airports in Rome, Madrid and Warsaw, travelers were more frustrated than fearful.`\
-https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-europe-travel.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

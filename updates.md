@@ -1,3 +1,15 @@
+**Is K-pop Experiencing Its Own Revival?**\
+`In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
+https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html
+
+**Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
+`The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
+https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
+
+**Trump Taps Stephen Miller as New White House Chief of Staff**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
