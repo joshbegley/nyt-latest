@@ -1,3 +1,11 @@
+**How Dominic Fike Fell Back in Love With Music**\
+`On ‘Popcast,” the musician and actor Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
+https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
+
+**Dominic Fike on the Art of Code Switching**\
+`On ‘Popcast,’ the musician and actor Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
+https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html
+
 **Ohio State Will Not Remove Wexner Name From Buildings Over Epstein Ties**\
 `Hundreds complained about Les Wexner’s ties to the convicted sex offender. But O.S.U. officials said he was not charged with wrongdoing and his name would remain.`\
 https://www.nytimes.com/2026/11/06/us/ohio-state-wexner-buildings-epstein.html

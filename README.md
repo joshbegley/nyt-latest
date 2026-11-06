@@ -1,3 +1,7 @@
+**Rob Sand Was a Prada Runway Model. Now He’s Going to Be Iowa Governor.**\
+`Rob Sand, an Iowa state auditor who was elected governor on Tuesday, spent part of his youth walking runways before a career in politics.`\
+https://www.nytimes.com/2026/11/06/style/rob-sand-iowa-governor-prada-model.html
+
 **Ohio State Will Not Remove Wexner Name From Buildings Over Epstein Ties**\
 `Hundreds complained about Les Wexner’s ties to the convicted sex offender. But O.S.U. officials said he was not charged with wrongdoing and his name would remain.`\
 https://www.nytimes.com/2026/11/06/us/ohio-state-wexner-buildings-epstein.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-sen
 **Bomb Threats in Europe Expand to Broadcasters**\
 `A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
 https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
-
-**U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
-`Jason Reding Quiñones joins what is expected to be a succession of departures at the Justice Department after the midterm elections, including that of the leader of the national security division.`\
-https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

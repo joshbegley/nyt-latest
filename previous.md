@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-roga
 https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republicans-blakeman-stefanik.html
 
 **How Dominic Fike Fell Back in Love With Music**\
-`Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
+`On ‘Popcast,” the musician and actor Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
 https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
 
 **Big Money’s Playbook Finally Failed**\
@@ -75,7 +75,7 @@ https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-bac
 https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
 
 **Dominic Fike on the Art of Code Switching**\
-`Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
+`On ‘Popcast,’ the musician and actor Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
 https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html
 
 **After Israel’s Election, Who Will Get the First Chance to Form a Government?**\
