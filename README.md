@@ -1,3 +1,7 @@
+**Late Night Finds Trump Supporters Jumping Ship**\
+`“Wouldn’t it be ironic if the only person who stands by Trump is Melania?” Jimmy Fallon said after Republicans began distancing themselves from the president after the midterms.`\
+https://www.nytimes.com/2026/11/06/arts/television/late-night-midterms-trump.html
+
 **1 Officer Is Killed and 3 Are Wounded in Shootout on Suburban Denver Bus**\
 `A civilian was also injured after a man opened fire on officers who pursued him onto a bus in Lakewood, Colo., the authorities said. The gunman was shot dead by the police.`\
 https://www.nytimes.com/2026/11/06/us/lakewood-police-shooting-colorado-bus-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senat
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
-
-**Voters in 4 States Limit Trans Athletes**\
-`Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
-https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
 
