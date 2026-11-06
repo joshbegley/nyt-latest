@@ -1,3 +1,55 @@
+**Quote of the Day: After Winning Shield, Gotham Sets Sights on Another Title**\
+`Quotation of the Day for Friday, November 6, 2026.`\
+https://www.nytimes.com/2026/11/06/pageoneplus/quote-of-the-day-after-winning-shield-gotham-sets-sights-on-another-title.html
+
+**12 Planes in 12 Days: Pope Begins Major Latin America Tour, Weeks After Surgery**\
+`Pope Leo XIV’s tour of Uruguay, Argentina and Peru is his first major trip since an operation on his lung last month.`\
+https://www.nytimes.com/2026/11/06/world/europe/12-planes-in-12-days-pope-begins-major-latin-america-tour-weeks-after-surgery.html
+
+**Booker Prize 2026: Vote in Our Readers’ Poll**\
+`Marlon James’s “The Disappearers” is a bettors’ favorite, but a dystopian sci-fi book and a funny campus novel are among the five other titles that could win. Vote for your favorite here.`\
+https://www.nytimes.com/2026/11/06/books/booker-prize-readers-vote.html
+
+**Pope Leo’s Trip to Latin America: What to Know**\
+`Less than a month after lung surgery, Pope Leo XIV is landing in Uruguay on Friday, the first stop of a 12-day voyage across South America.`\
+https://www.nytimes.com/2026/11/06/world/americas/pope-leo-uruguay-argentina-peru.html
+
+**In French City Hit by Terrorist Attack, Residents Blame Far-Right Rhetoric**\
+`In Trappes, a suburb of Paris with a large immigrant population, residents believe that a shooting rampage was fueled by years of anti-immigrant sentiment.`\
+https://www.nytimes.com/2026/11/06/world/europe/france-shooting-trappes.html
+
+**A Summit in China With Trump and Putin? That Might be Awkward for Xi.**\
+`A summit could bolster Xi Jinping’s stature. But talks about Ukraine’s future and limits on nuclear weapons pose uncomfortable choices for China.`\
+https://www.nytimes.com/2026/11/06/world/asia/china-trump-putin-xi-summit.html
+
+**Who’s Hiding Secrets About Dag Hammarskjöld’s Death?**\
+`The U.N. leader died in a plane crash in 1961. Many suspect foul play, but a lot of information still remains secret.`\
+https://www.nytimes.com/2026/11/06/world/europe/dag-hammarskjold-death-un-report.html
+
+**He Vanished on a Run Before We Could Marry**\
+`If I am not a widow, what am I?`\
+https://www.nytimes.com/2026/11/06/style/modern-love-he-vanished-on-a-run-before-we-could-marry.html
+
+**The Second First Date Did the Trick**\
+`After an early breakup, Cheyenne Petitte couldn’t stop thinking about Clayton Curran. He hadn’t stopped thinking about her either.`\
+https://www.nytimes.com/2026/11/06/style/cheyenne-petitte-clayton-curran-wedding.html
+
+**He Invited Work Colleagues to a Movie. Only She Showed Up.**\
+`Liv Heeney and Barney Soanes-Cundle met 14 years ago at a British clothing store. They bonded while folding shirts.`\
+https://www.nytimes.com/2026/11/06/style/liv-heeney-barney-soanes-cundle-wedding.html
+
+**He Quit the ‘Man of the Month Club’ After Meeting ‘Mr. October’**\
+`Thomas Ranzweiler and T.C. Lind met three years ago through a dating app. But their relationship almost never happened.`\
+https://www.nytimes.com/2026/11/06/style/tc-lind-thomas-ranzweiler-wedding.html
+
+**A Perfect Match On and Off the Court**\
+`Gonzales Austin and Louisa Chirico met during the Pan American Games in Toronto. He was once her tennis coach, now he’s her husband.`\
+https://www.nytimes.com/2026/11/06/style/louisa-chirico-gonzales-austin-wedding.html
+
+**From the Front Page: Lincoln Is Elected President on Nov. 6, 1860**\
+`Abraham Lincoln, a former Illinois congressman, was elected president of the United States, defeating three other candidates.`\
+https://www.nytimes.com/2026/11/06/learning/from-the-front-page-lincoln-is-elected-president-on-nov-6-1860.html
+
 **‘Rope’ and ‘The Verge’: The Joy of Sex and Death**\
 `Two theater pieces that drill down from the polite society of the intelligentsia to the most primal animal urges, with acknowledgments to Freud.`\
 https://www.nytimes.com/2026/11/05/theater/rope-the-verge-review-off-broadway-silverman.html

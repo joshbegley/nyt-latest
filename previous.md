@@ -1,3 +1,55 @@
+**Quote of the Day: After Winning Shield, Gotham Sets Sights on Another Title**\
+`Quotation of the Day for Friday, November 6, 2026.`\
+https://www.nytimes.com/2026/11/06/pageoneplus/quote-of-the-day-after-winning-shield-gotham-sets-sights-on-another-title.html
+
+**12 Planes in 12 Days: Pope Begins Major Latin America Tour, Weeks After Surgery**\
+`Pope Leo XIV’s tour of Uruguay, Argentina and Peru is his first major trip since an operation on his lung last month.`\
+https://www.nytimes.com/2026/11/06/world/europe/12-planes-in-12-days-pope-begins-major-latin-america-tour-weeks-after-surgery.html
+
+**Booker Prize 2026: Vote in Our Readers’ Poll**\
+`Marlon James’s “The Disappearers” is a bettors’ favorite, but a dystopian sci-fi book and a funny campus novel are among the five other titles that could win. Vote for your favorite here.`\
+https://www.nytimes.com/2026/11/06/books/booker-prize-readers-vote.html
+
+**Pope Leo’s Trip to Latin America: What to Know**\
+`Less than a month after lung surgery, Pope Leo XIV is landing in Uruguay on Friday, the first stop of a 12-day voyage across South America.`\
+https://www.nytimes.com/2026/11/06/world/americas/pope-leo-uruguay-argentina-peru.html
+
+**In French City Hit by Terrorist Attack, Residents Blame Far-Right Rhetoric**\
+`In Trappes, a suburb of Paris with a large immigrant population, residents believe that a shooting rampage was fueled by years of anti-immigrant sentiment.`\
+https://www.nytimes.com/2026/11/06/world/europe/france-shooting-trappes.html
+
+**A Summit in China With Trump and Putin? That Might be Awkward for Xi.**\
+`A summit could bolster Xi Jinping’s stature. But talks about Ukraine’s future and limits on nuclear weapons pose uncomfortable choices for China.`\
+https://www.nytimes.com/2026/11/06/world/asia/china-trump-putin-xi-summit.html
+
+**Who’s Hiding Secrets About Dag Hammarskjöld’s Death?**\
+`The U.N. leader died in a plane crash in 1961. Many suspect foul play, but a lot of information still remains secret.`\
+https://www.nytimes.com/2026/11/06/world/europe/dag-hammarskjold-death-un-report.html
+
+**He Vanished on a Run Before We Could Marry**\
+`If I am not a widow, what am I?`\
+https://www.nytimes.com/2026/11/06/style/modern-love-he-vanished-on-a-run-before-we-could-marry.html
+
+**The Second First Date Did the Trick**\
+`After an early breakup, Cheyenne Petitte couldn’t stop thinking about Clayton Curran. He hadn’t stopped thinking about her either.`\
+https://www.nytimes.com/2026/11/06/style/cheyenne-petitte-clayton-curran-wedding.html
+
+**He Invited Work Colleagues to a Movie. Only She Showed Up.**\
+`Liv Heeney and Barney Soanes-Cundle met 14 years ago at a British clothing store. They bonded while folding shirts.`\
+https://www.nytimes.com/2026/11/06/style/liv-heeney-barney-soanes-cundle-wedding.html
+
+**He Quit the ‘Man of the Month Club’ After Meeting ‘Mr. October’**\
+`Thomas Ranzweiler and T.C. Lind met three years ago through a dating app. But their relationship almost never happened.`\
+https://www.nytimes.com/2026/11/06/style/tc-lind-thomas-ranzweiler-wedding.html
+
+**A Perfect Match On and Off the Court**\
+`Gonzales Austin and Louisa Chirico met during the Pan American Games in Toronto. He was once her tennis coach, now he’s her husband.`\
+https://www.nytimes.com/2026/11/06/style/louisa-chirico-gonzales-austin-wedding.html
+
+**From the Front Page: Lincoln Is Elected President on Nov. 6, 1860**\
+`Abraham Lincoln, a former Illinois congressman, was elected president of the United States, defeating three other candidates.`\
+https://www.nytimes.com/2026/11/06/learning/from-the-front-page-lincoln-is-elected-president-on-nov-6-1860.html
+
 **‘Rope’ and ‘The Verge’: The Joy of Sex and Death**\
 `Two theater pieces that drill down from the polite society of the intelligentsia to the most primal animal urges, with acknowledgments to Freud.`\
 https://www.nytimes.com/2026/11/05/theater/rope-the-verge-review-off-broadway-silverman.html
@@ -145,56 +197,4 @@ https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
 **‘The Pitt’ Resembles ‘ER’ Enough for Lawsuit to Proceed, Judge Rules**\
 `The widow of Michael Crichton has claimed that the award-winning HBO show “The Pitt” is essentially a reboot of the medical drama her husband helped create.`\
 https://www.nytimes.com/2026/11/05/arts/television/the-pitt-lawsuit-er-michael-crichton.html
-
-**Calling Trump**\
-`Plus: A critic of our Alaska Senate race story, and election night inside The Times.`\
-https://www.nytimes.com/2026/11/05/insider/calling-trump-election-night.html
-
-**Salon, a Pioneer of Digital Journalism, Shuts Down**\
-`The progressive website, founded in 1995, said its business was “no longer sustainable.”`\
-https://www.nytimes.com/2026/11/05/business/media/salon-online-magazine-shutters.html
-
-**For Democrats, Midterm Wins Bring New Challenge**\
-`The Democrats’ sweeping midterm victory put the party in control of Congress, but that did little to settle the debate over the best ideological path forward. Lisa Lerer, a national political correspondent, explains where moderates and progressives agree, including affordability and oversight, and where they remain divided.`\
-https://www.nytimes.com/video/us/politics/100000011261785/for-democrats-midterm-wins-bring-new-challenge.html
-
-**Paraguay’s President, Santiago Peña, Quits Amid Ueno Bank Scandal**\
-`The president of the South American nation, Santiago Peña, has apologized for failing to prevent its worst financial crisis in decades.`\
-https://www.nytimes.com/2026/11/05/world/americas/paraguay-santiago-pena-resigns.html
-
-**In Alaska, Ranked-Choice Ballots Are Unlikely to Be Enough for Dan Sullivan**\
-`An analysis shows Mary Peltola is likely to keep her lead in the Senate race in part because of ballots she’d accumulate in ranked-choice tabulation from supporters of the other Dan Sullivan.`\
-https://www.nytimes.com/2026/11/05/us/alaska-ranked-choice-data-sullivan-peltola.html
-
-**Carney Asserts Canada’s Sovereignty and Vows to End Homelessness in Budget**\
-`The prime minister’s second budget repeatedly stresses diversifying Canada’s economy away from the United States.`\
-https://www.nytimes.com/2026/11/05/world/canada/carney-sovereignty-federal-budget-trade.html
-
-**Trump Tried to Undermine the Nation’s Elections. It Didn’t Work.**\
-`Millions of Americans cast their ballots on Tuesday in an election that showed the resiliency of democracy. The president said he would accept the results.`\
-https://www.nytimes.com/2026/11/05/us/election-deniers-midterms-trump.html
-
-**Read the document**\
-`A letter sent to the Public Service Commission from 24 environmental groups about data centers.`\
-https://www.nytimes.com/interactive/2026/11/05/nyregion/dpsdatacenters.html
-
-**Environmental Ballot Wins**\
-`Voters around the country approved measures on conservation, water and data centers on Tuesday.`\
-https://www.nytimes.com/2026/11/05/climate/climate-environment-ballot-meaures-midterms.html
-
-**Dozens Are Rescued in Georgia and Tennessee After Heavy Rain**\
-`More than 100 people were rescued by boat on both sides of the state line as the Toccoa River reached “catastrophic” flooding levels, officials said.`\
-https://www.nytimes.com/2026/11/05/weather/flooding-georgia-tennessee.html
-
-**Klaus-Michael Kühne Has Died. His Company Played a Dark Role in Nazi Germany.**\
-`As Klaus-Michael Kühne’s business became a global force in container shipping, he resisted demands to document its wartime activities. He was 89.`\
-https://www.nytimes.com/2026/11/05/world/europe/klaus-michael-kuhne-dead.html
-
-**What’s Going On in This Picture? | Nov. 9, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-picture-nov-9-2026.html
-
-**3 Spots for Pizza That Break the Mold**\
-`In honor of our updated list of the best pizza in New York City — some off-the-beaten-path choices.`\
-https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
 
