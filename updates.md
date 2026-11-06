@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Size of Democratic Majorities Hinges on Tight Races**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but dozens of races remain too close to call.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
+
 **Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
 `Global stocks were rattled after a deep U.S. sell-off on Thursday, but signs of a rally emerged in futures markets at the end of a turbulent week for investors.`\
 https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html

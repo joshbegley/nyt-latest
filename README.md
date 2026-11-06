@@ -1,3 +1,7 @@
+**After a $2.5 Trillion Wipeout, Tech Investors Brace for More Pain**\
+`A stock rally fueled in part by artificial intelligence is being tested after Democrats’ landslide election victories.`\
+https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
+
 **Midterm Elections Live Updates: Size of Democratic Majorities Hinges on Tight Races**\
 `Democrats have won at least 253 seats in the House and 54 in the Senate, but dozens of races remain too close to call.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojo
 `“When he feels cornered, when he feels attacked, he fights back,” the columnist Carlos Lozada says of Donald Trump, who is now entering the lame-duck phase of his presidency. Columnists from across Times Opinion share their predictions for what the final two years of Trump’s term might look like — and they’re not pretty.`\
 https://www.nytimes.com/video/opinion/100000011257733/what-to-expect-from-lame-duck-trump.html
 
-**Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
-`As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
-https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
-
 **What Democrats Can Do Now to Lower Costs**\
 `Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
 https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
+
+**Microsoft’s Buyout Offer Sets Its Workforce on Edge**\
+`As Microsoft pours billions into artificial intelligence, the company has offered buyouts to about 60,000 employees. The work force was already on edge.`\
+https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
 
 **59 Movies to See This Winter, From ‘Avengers: Doomsday’ to ‘Dune: Part Three’**\
 `The riches this season include “Dune: Part Three” along with surprises like a Paul Thomas Anderson concert film and a Nigerian adaptation of “Mrs. Dalloway.”`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/television/sctv-netflix-dave-thomas.html
 **Like Trump, Netanyahu Finds the Limits to Fear-Mongering**\
 `By leaning into nativist absolutism, Netanyahu almost doubled the Arab vote, creating a political — and foundational — crisis for Israel.`\
 https://www.nytimes.com/2026/11/06/magazine/trump-netanyahu-fear-elections.html
-
-**After ‘Babydoll’, Dominic Fike Embraces the Mess**\
-`In the wake of a viral hit, new sobriety and fatherhood, the rocker scrapped the album he had been working on to make a less-polished LP.`\
-https://www.nytimes.com/2026/11/06/arts/music/dominic-fike-popcast-interview.html
 
