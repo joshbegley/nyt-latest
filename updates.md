@@ -1,3 +1,15 @@
+**Officials Release 911 Call Made During Oregon School Shooting**\
+`Kaylub Giamanco made a frantic 911 call moments before he fatally shot a teenage shooter at an Oregon elementary school attended by his two daughters.`\
+https://www.nytimes.com/video/us/100000011265133/bend-oregon-school-shooting-911-call.html
+
+**Lucien Smith, Art-World Star, Died From Accidental Drug Overdose**\
+`Shortly before Mr. Smith died, he created a series of new “Rain Paintings” that are now on display in a show at the Tripoli Gallery in Wainscott, N.Y.`\
+https://www.nytimes.com/2026/11/05/arts/design/artist-lucien-smith-cause-of-death.html
+
+**These 5 Midterm Races Tell the Story of the Democrats’ Blue Wave**\
+`The districts are very different, but they all explain how the Democrats won so big.`\
+https://www.nytimes.com/2026/11/05/us/politics/democrats-blue-wave-elections-districts.html
+
 **The Major U.S. Cities That Have Elected Democratic Socialist Mayors**\
 `Nithya Raman’s win in Los Angeles adds to the list of major cities with democratic socialist leaders.`\
 https://www.nytimes.com/2026/11/05/us/elections/democratic-socialist-mayors.html
