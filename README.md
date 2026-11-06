@@ -1,9 +1,13 @@
+**Is K-pop Experiencing Its Own Revival?**\
+`In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
+https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html
+
 **Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Susie Wiles to Step Down as White House Chief of Staff**\
-`President Trump announced she will be replaced by Stephen Miller, the White House’s domestic policy adviser who has driven the administration’s immigration crackdown.`\
+**Trump Taps Stephen Miller as New White House Chief of Staff**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
 `Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
-
-**Melania Trump Repositions the White Suit**\
-`The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
-https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
