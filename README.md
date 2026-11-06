@@ -1,3 +1,11 @@
+**In Mississippi, Careful Scrutiny of Votes in an Unexpectedly Tight Race**\
+`A phalanx of lawyers, observers and campaign officials are watching the counting of votes in the race for Senate, where a Democratic challenger has a slim lead.`\
+https://www.nytimes.com/2026/11/05/us/mississippi-senate-colom-hydesmith-votes.html
+
+**Dolly Parton’s Manager Drops Lawsuit Against Singer’s Nephew**\
+`The manager, Danny Nozell, had accused the nephew, Bryan Seaver, of waging a campaign to extract money from Ms. Parton’s estate. The nephew denied the accusations.`\
+https://www.nytimes.com/2026/11/05/arts/music/dolly-parton-nephew-manager-lawsuit-dropped.html
+
 **Dominic Fike on Public Breakups, ‘Babydoll,’ Fatherhood & Sobriety**\
 `Watch the full conversation with Dominic Fike. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011260426/dominic-fike-on-public-breakups-babydoll-fatherhood-sobriety.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/11/05/opinion/teen-mental-health.html
 **I’m a Republican. We Have Let Too Many Weirdos Into Our Party.**\
 `The G.O.P. cannot allow itself to be defined by its radicals.`\
 https://www.nytimes.com/2026/11/05/opinion/republicans-jd-vance-weirdo-right.html
-
-**Strand Bookstore to Pay U.S. $1.5 Million Over Pandemic-Relief Loan**\
-`The store agreed to settle a claim that it was not entitled to the loan because its owner is married to a U.S. senator.`\
-https://www.nytimes.com/2026/11/05/nyregion/strand-bookstore-pay-pandemic-loan-nyc.html
 
