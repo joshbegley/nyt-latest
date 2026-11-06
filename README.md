@@ -1,3 +1,7 @@
+**How the Tech Right’s Bet on A.I. Backfired**\
+`This week on “Hard Fork,” Ezra Klein, an Opinion columnist for The New York Times, joins the show to discuss the midterm election, including voter concerns about A.I. and data centers.`\
+https://www.nytimes.com/video/technology/100000011268712/how-the-tech-rights-bet-on-ai-backfired.html
+
 **Maps: Tracking Tropical Storm Pena**\
 `See the likely path and wind arrival times for Pena`\
 https://www.nytimes.com/interactive/2026/11/06/weather/tropical-storm-pena-pacific-map-path.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
 `The state is once again processing mail ballots at a deliberate pace. Only about 65 percent of the votes had been tallied as of Thursday.`\
 https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
 
-**Cornell Faculty Passes Vote of No Confidence in Administration**\
+**Cornell Faculty Passes Vote of No Confidence Over Handling of Sexual Assault Case**\
 `A largely symbolic no-confidence vote served as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
 https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/us/elections/100000011265557/the-voters-who-powere
 **Trump-Backed Candidate Keeps a N.Y. House Seat Under G.O.P. Control**\
 `Anthony Constantino, a self-funded sticker magnate who recorded a rap album in tribute to President Trump, defeated Blake Gendebien, a second-generation dairy farmer.`\
 https://www.nytimes.com/2026/11/06/nyregion/new-york-house-21-constantino-gendebien.html
-
-**Claudia Rankine: My Life as an Experiment**\
-`I have learned over a lifetime why three Black girls in 1963 could not begin to integrate the schools.`\
-https://www.nytimes.com/2026/11/06/opinion/claudia-rankine-nyt-175.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

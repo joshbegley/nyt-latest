@@ -1,3 +1,11 @@
+**Maps: Tracking Tropical Storm Pena**\
+`See the likely path and wind arrival times for Pena`\
+https://www.nytimes.com/interactive/2026/11/06/weather/tropical-storm-pena-pacific-map-path.html
+
+**China’s Top Spy Agency Recruited Woman Who Targeted Jensen Huang**\
+`U.S. intelligence concluded that Alice Huang, a Chinese business executive who developed a close relationship with Nvidia’s leader, was an asset of Beijing’s Ministry of State Security.`\
+https://www.nytimes.com/2026/11/06/us/politics/chinese-spy-agency-nvidia-jensen-huang.html
+
 **Sinclair Clark Made Museum Masterpieces. Why Was His Name Left Out?**\
 `As a taxidermy tanner, he prepared the thick, heavy skins of majestic creatures for display in museums across the world. But for a long time, he went unnamed.`\
 https://www.nytimes.com/2026/11/06/obituaries/sinclair-clark-overlooked.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/11/06/nyregion/new-york-house-21-constantino-gendeb
 **Claudia Rankine: My Life as an Experiment**\
 `I have learned over a lifetime why three Black girls in 1963 could not begin to integrate the schools.`\
 https://www.nytimes.com/2026/11/06/opinion/claudia-rankine-nyt-175.html
-
-**The Greatest Flex for a Celebrity? A Photo With the Pope.**\
-`The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
-https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
