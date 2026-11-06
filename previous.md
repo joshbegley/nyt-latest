@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-m
 https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
 
 **Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
-`Mayor Zohran Mamdani wants to stop Amazon from using contractors for delivery services. The City Council speaker, Julie Menin, and business leaders have concerns about the bill.`\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The business-friendly Council speaker, Julie Menin, has concerns.`\
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
 
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\

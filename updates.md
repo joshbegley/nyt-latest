@@ -1,3 +1,7 @@
+**Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The business-friendly Council speaker, Julie Menin, has concerns.`\
+https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
+
 **Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
 `The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
 https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
