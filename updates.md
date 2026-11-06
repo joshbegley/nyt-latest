@@ -1,3 +1,7 @@
+**‘It Gets Worse’ Review: Leo Reich Comedy Channels ‘Girls’**\
+`Produced by A24 and Crave, Leo Reich’s new comedy is prickly and perceptive.`\
+https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
+
 **Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
 `Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The business-friendly Council speaker, Julie Menin, has concerns.`\
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html

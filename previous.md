@@ -1,3 +1,7 @@
+**‘It Gets Worse’ Review: Leo Reich Comedy Channels ‘Girls’**\
+`Produced by A24 and Crave, Leo Reich’s new comedy is prickly and perceptive.`\
+https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
+
 **Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
 `The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
 https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.ht
 **Rachel Maddow on America’s Pendulum Swing**\
 `The MS NOW anchor takes stock of the midterms, the memes and the democratic project.`\
 https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swing.html
-
-**Saudi-Led Forces Bombed Yemeni Home, Killing Nine Family Members, Relatives Say**\
-`The attack in October cast a spotlight on civilian casualties in the Saudi-led and U.S.-assisted bombing campaign against the Houthis.`\
-https://www.nytimes.com/2026/11/06/world/middleeast/saudi-arabia-bombing-yemen-civilians-houthi-war.html
 
