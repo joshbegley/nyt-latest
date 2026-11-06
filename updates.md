@@ -1,3 +1,7 @@
+**He’s the Most Powerful Democrat in Washington. Is He Up to the Job?**\
+`He’s the country’s top Democrat now. He needs to act like it.`\
+https://www.nytimes.com/2026/11/06/opinion/hakeem-jeffries-congress-democrats-midterms.html
+
 **Why the Tech Right Lost Big This Week**\
 `“This felt like a decidedly anti-tech election.”`\
 https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
