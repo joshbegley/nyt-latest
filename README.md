@@ -2,7 +2,7 @@
 `Dozens of people were evacuated by boat on Thursday in Tennessee and Georgia after heavy rains led to severe flooding.`\
 https://www.nytimes.com/video/weather/100000011265675/tennessee-georgia-flooding-rescues.html
 
-**In Mississippi, Careful Scrutiny of Votes in an Unexpectedly Tight Race**\
+**In Tight Mississippi Senate Race, Votes Are Carefully Scrutinized**\
 `A phalanx of lawyers, observers and campaign officials are watching the counting of votes in the race for Senate, where a Democratic challenger has a slim lead.`\
 https://www.nytimes.com/2026/11/05/us/mississippi-senate-colom-hydesmith-votes.html
 
