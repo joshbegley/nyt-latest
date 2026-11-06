@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Nov. 6, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
+
 **The Most Dangerous Way to Misread the Midterm Results**\
 `There’s a big difference between a midterm election and a presidential election.`\
 https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html

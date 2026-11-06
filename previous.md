@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Nov. 6, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
+
 **The Changing Politics of Identity**\
 `This is one reason voters are swinging between parties.`\
 https://www.nytimes.com/2026/11/06/briefing/the-changing-politics-of-identity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/music/dominic-fike-popcast-interview.htm
 **New York City Ballet’s ‘Nutcracker,’ Now in Virtual Reality**\
 `On a domed screen in Detroit, New York City Ballet’s production of “The Nutcracker” began a new, immersive chapter.`\
 https://www.nytimes.com/2026/11/06/arts/dance/nutcracker-virtual-reality-new-york-city-ballet.html
-
-**He’s the Most Powerful Democrat in Washington. Is He Up to the Job?**\
-`He’s the country’s top Democrat now. He needs to act like it.`\
-https://www.nytimes.com/2026/11/06/opinion/hakeem-jeffries-congress-democrats-midterms.html
 
