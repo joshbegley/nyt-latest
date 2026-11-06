@@ -1,3 +1,15 @@
+**She Commands the Sunken Titanic, from 1,000 Miles Away**\
+`A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
+https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
+
+**What Homeowners Should Know About Home Equity Contracts**\
+`Financial tech firms promote home equity contracts as a source of money without monthly payments. But skeptics see “a loan masquerading as obligation-free cash.”`\
+https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
+
+**Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
+`Mayor Zohran Mamdani wants to stop Amazon from using contractors for delivery services. The City Council speaker, Julie Menin, and business leaders have concerns about the bill.`\
+https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
+
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
 `Paul Nthenge Mackenzie forced followers to starve themselves to meet Jesus and told parents to make sure their children fasted in the sun and died first.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html

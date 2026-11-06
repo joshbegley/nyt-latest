@@ -1,3 +1,15 @@
+**She Commands the Sunken Titanic, from 1,000 Miles Away**\
+`A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
+https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
+
+**What Homeowners Should Know About Home Equity Contracts**\
+`Financial tech firms promote home equity contracts as a source of money without monthly payments. But skeptics see “a loan masquerading as obligation-free cash.”`\
+https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
+
+**Why Mamdani’s Push to Regulate Amazon Is Facing Resistance**\
+`Mayor Zohran Mamdani wants to stop Amazon from using contractors for delivery services. The City Council speaker, Julie Menin, and business leaders have concerns about the bill.`\
+https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
+
 **Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
 `Paul Nthenge Mackenzie forced followers to starve themselves to meet Jesus and told parents to make sure their children fasted in the sun and died first.`\
 https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/06/movies/winter-movies-november-december-2026.h
 **The Walker Who Found Fame by Leaving New York**\
 `Chantz Rivera walked to California. He will fly back but is already thinking about his next megawalk.`\
 https://www.nytimes.com/2026/11/06/nyregion/the-walker-who-found-fame-by-leaving-new-york.html
-
-**Tech Stocks Got Hammered. Is the Economy Next?**\
-`Any hangover from an A.I. stock implosion will be worse than the dot-com bust.`\
-https://www.nytimes.com/2026/11/06/opinion/nasdaq-tech-stocks-ai-bubble-dot-com-bust.html
-
-**Trump’s Tariffs Have Failed. Bring Back Reaganomics.**\
-`The country needs a careful, restrained government — and always has.`\
-https://www.nytimes.com/2026/11/06/opinion/trump-tariffs-economy.html
-
-**How A.I. Just Blew Up a Key Tenet of Computer Science**\
-`A longstanding hypothesis held that some problems would always be hard for computers to solve quickly. But OpenAI disproved it — raising the possibility of radical new efficiencies.`\
-https://www.nytimes.com/2026/11/06/science/ai-exponential-time-hypothesis.html
 

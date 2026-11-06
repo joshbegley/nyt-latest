@@ -1,4 +1,8 @@
-**She Commands the Sunken Titanic, from 1,000 Miles Away**\
+**Corrections: Nov. 6, 2026**\
+`Corrections that appeared in print on Friday, Nov. 6, 2026.`\
+https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
+
+**She Commands the Sunken Titanic, From 1,000 Miles Away**\
 `A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
 https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/technology/microsoft-buyouts.html
 **59 Movies to See This Winter, From ‘Avengers: Doomsday’ to ‘Dune: Part Three’**\
 `The riches this season include “Dune: Part Three” along with surprises like a Paul Thomas Anderson concert film and a Nigerian adaptation of “Mrs. Dalloway.”`\
 https://www.nytimes.com/2026/11/06/movies/winter-movies-november-december-2026.html
-
-**The Walker Who Found Fame by Leaving New York**\
-`Chantz Rivera walked to California. He will fly back but is already thinking about his next megawalk.`\
-https://www.nytimes.com/2026/11/06/nyregion/the-walker-who-found-fame-by-leaving-new-york.html
 
