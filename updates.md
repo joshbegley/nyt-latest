@@ -1,3 +1,7 @@
+**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
+`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
+https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
+
 **F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
 `Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic.`\
 https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
