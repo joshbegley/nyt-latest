@@ -1,3 +1,11 @@
+**Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
+`The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
+https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
+
+**Susie Wiles to Step Down as White House Chief of Staff**\
+`President Trump announced she will be replaced by Stephen Miller, the White House’s domestic policy adviser who has driven the administration’s immigration crackdown.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentenc
 **Melania Trump Repositions the White Suit**\
 `The first lady wore a white suit to preside over the White House meeting of delegations from Russia and Ukraine.`\
 https://www.nytimes.com/2026/11/06/style/melania-trump-white-suit-russia-ukraine-cease-fire.html
-
-**John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
-`The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
-https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
-
-**Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
-`Bomb threats have disrupted dozens of flights in Europe over the past week. At airports in Rome, Madrid and Warsaw, travelers were more frustrated than fearful.`\
-https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-europe-travel.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
