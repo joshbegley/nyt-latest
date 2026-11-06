@@ -1,3 +1,7 @@
+**Trump Chief of Staff Accused of Blocking Healthy-Food Policies to Attract Donations**\
+`In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means.html
+
 **Republicans’ Losses in New York’s Midterms Were Bad. Then Came Their Post-Election Freakout.**\
 `The party’s losses in New York mirrored those across the nation, but leading Republicans in the state quickly blamed each other for the results.`\
 https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republicans-blakeman-stefanik.html
