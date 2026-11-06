@@ -1,3 +1,19 @@
+**Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
+`Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
+https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
+
+**The Voters Who Powered the Blue Tsunami**\
+`A younger, more diverse electorate than is typical in midterm elections helped drive Democrats’ decisive victory, along with gains among swing voters and support from some Republican voters. Nate Cohn, The New York Times’s chief political analyst, explains.`\
+https://www.nytimes.com/video/us/elections/100000011265557/the-voters-who-powered-the-blue-tsunami.html
+
+**Trump-Backed Candidate Keeps a N.Y. House Seat Under G.O.P. Control**\
+`Anthony Constantino, a self-funded sticker magnate who recorded a rap album in tribute to President Trump, defeated Blake Gendebien, a second-generation dairy farmer.`\
+https://www.nytimes.com/2026/11/06/nyregion/new-york-house-21-constantino-gendebien.html
+
+**Claudia Rankine: My Life as an Experiment**\
+`I have learned over a lifetime why three Black girls in 1963 could not begin to integrate the schools.`\
+https://www.nytimes.com/2026/11/06/opinion/claudia-rankine-nyt-175.html
+
 **The Greatest Flex for a Celebrity? A Photo With the Pope.**\
 `The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
 https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/11/06/well/reconnecting-ex-friend-advice.html
 **The Most Dangerous Way to Misread the Midterm Results**\
 `There’s a big difference between a midterm election and a presidential election.`\
 https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html
-
-**YouTuber Accused of Child Sexual Abuse Is Arrested After Discussing Behavior in Film**\
-`A man known for online rants about pro football spoke in a documentary about accusations that he had a sexual interest in minors, prompting law enforcement to bring charges.`\
-https://www.nytimes.com/2026/11/06/us/edp445-youtuber-arrested-sex-crimes.html
-
-**Swings in Farm Areas Helped Propel Democrats to Victory**\
-`Anger over tariffs and higher costs because of the war in Iran led many Republican farmers and ranchers to vote blue — or stay home.`\
-https://www.nytimes.com/2026/11/06/business/farmers-election-trump-democrats.html
-
-**Whitney Museum Announces Curators for 2028 Biennial**\
-`Meg Onli, a Biennial veteran, and Zack Winokur, the former artistic director of Little Island, will organize the 83rd edition of the much-scrutinized exhibition.`\
-https://www.nytimes.com/2026/11/06/arts/design/whitney-museum-curators-2028-biennial.html
-
-**These Newly Elected Lawmakers Know Something Trump Doesn’t: Science**\
-`Among those elected to Congress on Tuesday are a mathematician, a microbiologist and a chemical engineer. They plan to take on a White House that has threatened funding cuts to research.`\
-https://www.nytimes.com/2026/11/06/science/scientists-election-congress.html
 

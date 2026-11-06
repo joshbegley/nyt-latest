@@ -1,3 +1,19 @@
+**Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
+`Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
+https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
+
+**The Voters Who Powered the Blue Tsunami**\
+`A younger, more diverse electorate than is typical in midterm elections helped drive Democrats’ decisive victory, along with gains among swing voters and support from some Republican voters. Nate Cohn, The New York Times’s chief political analyst, explains.`\
+https://www.nytimes.com/video/us/elections/100000011265557/the-voters-who-powered-the-blue-tsunami.html
+
+**Trump-Backed Candidate Keeps a N.Y. House Seat Under G.O.P. Control**\
+`Anthony Constantino, a self-funded sticker magnate who recorded a rap album in tribute to President Trump, defeated Blake Gendebien, a second-generation dairy farmer.`\
+https://www.nytimes.com/2026/11/06/nyregion/new-york-house-21-constantino-gendebien.html
+
+**Claudia Rankine: My Life as an Experiment**\
+`I have learned over a lifetime why three Black girls in 1963 could not begin to integrate the schools.`\
+https://www.nytimes.com/2026/11/06/opinion/claudia-rankine-nyt-175.html
+
 **Midterm Elections Live Updates: Democrats Build on Decisive Wins as Late Votes Trickle In**\
 `Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
