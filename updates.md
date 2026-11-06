@@ -1,3 +1,7 @@
+**Bomb Threats in Europe Expand to Broadcasters**\
+`A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
+https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
+
 **U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
 `Jason Reding Quiñones is the latest prosecutor to leave the Justice Department after being assigned a sprawling investigation seeking retribution against President Trump’s perceived enemies.`\
 https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html

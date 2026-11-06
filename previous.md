@@ -1,3 +1,7 @@
+**Bomb Threats in Europe Expand to Broadcasters**\
+`A number of newsrooms in Europe had to be evacuated on Friday after receiving bomb threats while threats to flights continued.`\
+https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
+
 **U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
 `Jason Reding Quiñones is the latest prosecutor to leave the Justice Department after being assigned a sprawling investigation seeking retribution against President Trump’s perceived enemies.`\
 https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/movies/new-movies-this-week-critics.html
 **Texas Led the Conservative Overhaul of Education. What Now?**\
 `In Texas, teaching on race and gender was restricted, Christianity was encouraged and private school vouchers expanded. It may be hard for Democrats to reverse those policies.`\
 https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojosa.html
-
-**What to Expect From Lame-Duck Trump**\
-`“When he feels cornered, when he feels attacked, he fights back,” the columnist Carlos Lozada says of Donald Trump, who is now entering the lame-duck phase of his presidency. Columnists from across Times Opinion share their predictions for what the final two years of Trump’s term might look like — and they’re not pretty.`\
-https://www.nytimes.com/video/opinion/100000011257733/what-to-expect-from-lame-duck-trump.html
 
