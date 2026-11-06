@@ -1,3 +1,7 @@
+**Black Southerners Voted at Unusually High Levels — and They Voted for Democrats**\
+`Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
+https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
+
 **Rubio Says Elections in Venezuela Would ‘Ideally’ Be Held Next Year**\
 `Secretary of State Marco Rubio laid out a series of steps the United States wants to see before Venezuela holds free elections.`\
 https://www.nytimes.com/2026/11/05/us/politics/rubio-elections-venezuela.html
