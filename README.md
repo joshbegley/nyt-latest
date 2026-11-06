@@ -1,3 +1,7 @@
+**F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
+`Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic.`\
+https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
+
 **Susie Wiles, Trump’s Chief of Staff, Accused of Blocking Health Policies to Attract Donations**\
 `In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-qui
 **The Changing Politics of Identity**\
 `This is one reason voters are swinging between parties.`\
 https://www.nytimes.com/2026/11/06/briefing/the-changing-politics-of-identity.html
-
-**Why the Tech Right Lost Big This Week**\
-`“This felt like a decidedly anti-tech election.”`\
-https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

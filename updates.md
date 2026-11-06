@@ -1,3 +1,7 @@
+**Susie Wiles, Trump’s Chief of Staff, Accused of Blocking Health Policies to Attract Donations**\
+`In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
+
 **Trump Chief of Staff Accused of Blocking Healthy-Food Policies to Attract Donations**\
 `In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means.html
