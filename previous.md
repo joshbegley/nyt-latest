@@ -1,3 +1,15 @@
+**Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
+`A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
+https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
+
+**Lauren Ambrose, in ‘Unbelievers,’ and Jasmine Cephas Jones, in ‘2:22,’ Are Superb**\
+`Lauren Ambrose plays the mother of a missing teen in “The Unbelievers,” and Jasmine Cephas Jones plays a mother hearing spooky sounds in “2:22.”`\
+https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-review-ambrose.html
+
+**A.I. Was Supposed to Come for Our Jobs. So Far, Evidence Is Mixed.**\
+`White collar industries that are most exposed to artificial intelligence continued to add jobs in October, although that growth has been weak.`\
+https://www.nytimes.com/2026/11/06/business/economy/ai-jobs-layoffs.html
+
 **Police Chief Says He ‘Wouldn’t Be Surprised’ by Further Russell Brand Accusations**\
 `The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
 https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
@@ -18,7 +30,7 @@ https://www.nytimes.com/2026/11/06/dining/tender-chicken-meatballs-swimming-in-l
 `This month brings comedies about a demonic dryer and psychotic elites but also Japanese body horror that’s nothing to laugh at.`\
 https://www.nytimes.com/2026/11/06/movies/five-horror-movies-to-stream-now.html
 
-**In Fight for the Methodist Church’s Future, President Bush Picks a Side**\
+**In Fight for a Methodist Church’s Future, President Bush Picks a Side**\
 `George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
 https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/06/opinion/jd-vance-midterms.html
 **What a Democratic Congress Could Mean for Science**\
 `The Trump administration has sought to reshape the nation’s research infrastructure. Democratic lawmakers, newly empowered, are preparing to push back.`\
 https://www.nytimes.com/2026/11/06/science/science-democrats-congress-election.html
-
-**Fed Up With Politics and Struggle, Young Voters Rose Up**\
-`Young people powered Democratic candidates, joining global demands for generational change from a cohort weary of older people sitting on jobs and devouring resources.`\
-https://www.nytimes.com/2026/11/06/us/politics/young-voters-democratic-wave-midterms.html
-
-**Which $1.5 Million Home in Cuernavaca, Mexico Would You Choose?**\
-`A home with modern touches in Cuernavaca, a contemporary home in Chapultepec and a Mexican-colonial in Acapantzingo are available.`\
-https://www.nytimes.com/2026/11/06/realestate/homes-for-sale-in-cuernavaca-mexico.html
-
-**A Democrat Will Govern Texas. Republicans Won’t Make It Easy.**\
-`After a sweeping Democratic victory, Governor-elect Gina Hinojosa will try to reshape a state molded by decades of conservative policymaking, with Republicans still in control of the State Senate.`\
-https://www.nytimes.com/2026/11/06/us/texas-governor-democrat-gina-hinojosa.html
 

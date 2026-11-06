@@ -1,3 +1,19 @@
+**Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
+`A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
+https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
+
+**Lauren Ambrose, in ‘Unbelievers,’ and Jasmine Cephas Jones, in ‘2:22,’ Are Superb**\
+`Lauren Ambrose plays the mother of a missing teen in “The Unbelievers,” and Jasmine Cephas Jones plays a mother hearing spooky sounds in “2:22.”`\
+https://www.nytimes.com/2026/11/06/theater/the-unbelievers-222-a-ghost-story-review-ambrose.html
+
+**A.I. Was Supposed to Come for Our Jobs. So Far, Evidence Is Mixed.**\
+`White collar industries that are most exposed to artificial intelligence continued to add jobs in October, although that growth has been weak.`\
+https://www.nytimes.com/2026/11/06/business/economy/ai-jobs-layoffs.html
+
+**In Fight for a Methodist Church’s Future, President Bush Picks a Side**\
+`George and Laura Bush made their first public comment on the controversy roiling their usually decorous congregation, which is reverberating far outside Texas.`\
+https://www.nytimes.com/2026/11/06/us/george-bush-highland-park-methodist-church.html
+
 **Police Chief Says He ‘Wouldn’t Be Surprised’ by Further Russell Brand Accusations**\
 `The comment came a day after a jury convicted Brand of rape. The London police have said they are investigating two further accusations against the former comedy star.`\
 https://www.nytimes.com/2026/11/06/arts/russell-brand-rape-sexual-assault-police-commissioner.html
