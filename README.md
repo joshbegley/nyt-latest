@@ -1,3 +1,7 @@
+**Talarico’s Cowboy Boots Are Stealing the Show**\
+`James Talarico’s worn-in Lucchese cowboy boots helped shape his image during his Senate campaign in Texas. Vanessa Friedman, our chief fashion critic, explains the political meanings they carried.`\
+https://www.nytimes.com/video/style/100000011240122/talaricos-cowboy-boots-are-stealing-the-show.html
+
 **How the Tech Right’s Bet on A.I. Backfired**\
 `This week on “Hard Fork,” Ezra Klein, an Opinion columnist for The New York Times, joins the show to discuss the midterm election, including voter concerns about A.I. and data centers.`\
 https://www.nytimes.com/video/technology/100000011268712/how-the-tech-rights-bet-on-ai-backfired.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/11/06/briefing/minneapolis-home-buyers.html
 `Behind the scenes, the world’s richest person spent a record amount over two years to bend the country’s politics to his will. He couldn’t.`\
 https://www.nytimes.com/2026/11/06/us/politics/musk-trump-midterm-election-spending.html
 
-**After a Generation, Southern Democrats Finally Have the Chance to Lead**\
+**Southern Democrats Now Have a Chance to Lead. What Will They Do With It?**\
 `Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
 https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html
 
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
 
-**Live Updates: Stephen Miller to Replace Susie Wiles as Trump’s Chief of Staff**\
-`Mr. Miller, a domestic policy adviser, has driven the administration’s immigration crackdown. The staff shake-up follows sweeping losses for Republicans in the midterm elections.`\
+**Live Updates: Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
+`The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 
 **Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.
 **The Voters Who Powered the Blue Tsunami**\
 `A younger, more diverse electorate than is typical in midterm elections helped drive Democrats’ decisive victory, along with gains among swing voters and support from some Republican voters. Nate Cohn, The New York Times’s chief political analyst, explains.`\
 https://www.nytimes.com/video/us/elections/100000011265557/the-voters-who-powered-the-blue-tsunami.html
-
-**Trump-Backed Candidate Keeps a N.Y. House Seat Under G.O.P. Control**\
-`Anthony Constantino, a self-funded sticker magnate who recorded a rap album in tribute to President Trump, defeated Blake Gendebien, a second-generation dairy farmer.`\
-https://www.nytimes.com/2026/11/06/nyregion/new-york-house-21-constantino-gendebien.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
