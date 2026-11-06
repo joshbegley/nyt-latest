@@ -1,3 +1,15 @@
+**Paraguay’s President Removed Over Financial Crisis**\
+`Millions lost access to their savings, and the nation’s president was impeached and removed from office Friday after a major bank with close ties to his administration went under.`\
+https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
+
+**New Leaders Emerge for 2028**\
+`Live from Brooklyn, Michelle Cottle, Jamelle Bouie and David French weigh in on the “blue tsunami.”`\
+https://www.nytimes.com/video/opinion/100000011255800/new-leaders-emerge-for-2028.html
+
+**The Evening: Trump Replaces Chief of Staff**\
+`Plus, a surprisingly good jobs report. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/11/06/briefing/stephen-miller-trump.html
+
 **Prosecutors Vow to Keep Pursuing Death Penalty in California**\
 `Unless the next governor, Xavier Becerra, keeps commuting sentences, California’s death row is likely to slowly repopulate in the coming years.`\
 https://www.nytimes.com/2026/11/06/us/california-prosecutors-death-penalty.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011267365/pope-leo-uruguay-ar
 **What Led to the Blue Wave, and What Comes Next**\
 `Readers discuss the blue wave midterm elections, looking back and ahead. Also: Applying to New York City high schools.`\
 https://www.nytimes.com/2026/11/06/opinion/midterm-elections.html
-
-**The End of Yeezy**\
-`A runway show in Los Angeles made a case for the brand’s irrelevance.`\
-https://www.nytimes.com/2026/11/06/style/end-of-yeezy.html
-
-**U.S. Global Health Strategy Jeopardizes Prevention of Pandemics, Experts Warn**\
-`The Trump administration has been negotiating agreements with dozens of individual countries. Public health experts say a global agreement would be far more effective.`\
-https://www.nytimes.com/2026/11/06/us/politics/pandemic-prevention-african-countries.html
-
-**Tesla Is Ending Production of Its Cybertruck and Refocusing on the Cybercab**\
-`Production of the electric trucks will stop in the middle of 2027 to make room for increased production of its autonomous ride-share vehicle, Elon Musk said.`\
-https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html
 
