@@ -1,3 +1,7 @@
+**Europe Still Sees Trump As Powerful, Especially in Foreign Policy**\
+`The commanding victory of the Democrats has brought private relief to some Europeans but no official glee, with Ukraine, Iran and NATO all hanging in the balance.`\
+https://www.nytimes.com/2026/11/06/world/europe/europe-trump-midterms.html
+
 **15-Minute Lesson Plan: Visual Dictionaries**\
 `What do the style choices people make tell us about who they are — or what they want us to believe?`\
 https://www.nytimes.com/2026/11/06/learning/15-minute-lesson-plan-visual-dictionaries.html
