@@ -1,3 +1,11 @@
+**Florida Shattered Rain Records This Week. Was That Just a Preview?**\
+`Parts of the state recorded two feet of rain in a day. Will this El Niño winter deliver even more?`\
+https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
+
+**Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
+`Markets in Asia and Europe tumbled, with Japan’s market falling into a bear market.`\
+https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
+
 **Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
 `Victory for Democrats could alter the course of peace negotiations and a war nearing its fifth year.`\
 https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/06/realestate/secondary-homes-year-round.html
 **As Hormone Use Increases, Some Doctors Warn Slight Cancer Risk Is Being Overlooked**\
 `Doctors said that women should receive treatment for menopause symptoms, but need accurate information about the drugs.`\
 https://www.nytimes.com/2026/11/06/well/hormone-therapy-menopause-cancer.html
-
-**How the College Board Is Fighting A.I. Cheating on the SAT Tests**\
-`The group behind the college exams is planning new measures to keep up with high-tech breaches and “time zone” cheating.`\
-https://www.nytimes.com/2026/11/06/us/college-board-cheating-sat.html
-
-**What Does the Super El Niño Mean for Ski Season?**\
-`The climate event is predicted to alter snowfall patterns across the U.S. and Canada. Experts are starting to see how it might play out across ski country.`\
-https://www.nytimes.com/2026/11/06/travel/el-nino-skiing-united-states.html
 
