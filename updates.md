@@ -1,3 +1,7 @@
+**The Most Dangerous Way to Misread the Midterm Results**\
+`There’s a big difference between a midterm election and a presidential election.`\
+https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html
+
 **The Changing Politics of Identity**\
 `This is one reason voters are swinging between parties.`\
 https://www.nytimes.com/2026/11/06/briefing/the-changing-politics-of-identity.html
