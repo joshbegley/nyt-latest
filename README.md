@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/11/05/dining/weird-pizza.html
 `As the popularity of the genre has surged, a dispute between a band and its label has put a spotlight on restrictive artist contracts.`\
 https://www.nytimes.com/2026/11/05/world/kpop-russell-brand-iran.html
 
-**Across the South, Black Voters Help Propel Democratic Wins**\
+**Black Southerners Voted at Unusually High Levels — and They Voted for Democrats**\
 `Democrats in the South used anger over redistricting, cuts to key federal programs and attacks on Black history to help galvanize a crucial bloc of voters to the polls.`\
 https://www.nytimes.com/2026/11/05/us/politics/black-voters-south-democratic-wins.html
 

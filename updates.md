@@ -1,3 +1,11 @@
+**Rubio Says Elections in Venezuela Would ‘Ideally’ Be Held Next Year**\
+`Secretary of State Marco Rubio laid out a series of steps the United States wants to see before Venezuela holds free elections.`\
+https://www.nytimes.com/2026/11/05/us/politics/rubio-elections-venezuela.html
+
+**Trump Moves to Make Oval Office a National Monument**\
+`The president’s announcement reinforced his post-midterm elections preoccupation on White House renovation projects.`\
+https://www.nytimes.com/2026/11/05/us/politics/trump-oval-office-national-monument.html
+
 **Officials Release 911 Call Made During Oregon School Shooting**\
 `Kaylub Giamanco made a frantic 911 call moments before he fatally shot a teenage shooter at an Oregon elementary school attended by his two daughters.`\
 https://www.nytimes.com/video/us/100000011265133/bend-oregon-school-shooting-911-call.html
