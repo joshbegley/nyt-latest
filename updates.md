@@ -1,3 +1,7 @@
+**Prosecutors Vow to Keep Pursuing Death Penalty in California**\
+`Unless the next governor, Xavier Becerra, keeps commuting sentences, California’s death row is likely to slowly repopulate in the coming years.`\
+https://www.nytimes.com/2026/11/06/us/california-prosecutors-death-penalty.html
+
 **See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
 `See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
 https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
