@@ -1,3 +1,7 @@
+**Biotech Firm Claims Some Credit for Groundbreaking Virus Research**\
+`Radical Numerics turned heads with its announcement about a novel treatment. Now a former partner, Tabula Bioscience, says it performed much of the research.`\
+https://www.nytimes.com/2026/11/06/science/radical-numerics-tabula-phage.html
+
 **Houston Mayor Announces Order to Limit Cooperation With ICE**\
 `Mayor John Whitmire has instructed Houston police to no longer alert ICE agents when they encounter an unauthorized migrant during routine traffic stops or in connection with other low-level infractions.`\
 https://www.nytimes.com/video/us/politics/100000011267984/whitmire-houston-ice.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-
 **Houston Police to Stop Alerting ICE During Traffic Stops**\
 `Mayor John Whitmire has instructed Houston police to stop notifying immigration agents when they encounter someone without legal status during routine street stops.`\
 https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ice-cooperation.html
-
-**Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
-`Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
-https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\

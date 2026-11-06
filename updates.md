@@ -1,3 +1,7 @@
+**Houston Mayor Announces Order to Limit Cooperation With ICE**\
+`Mayor John Whitmire has instructed Houston police to no longer alert ICE agents when they encounter an unauthorized migrant during routine traffic stops or in connection with other low-level infractions.`\
+https://www.nytimes.com/video/us/politics/100000011267984/whitmire-houston-ice.html
+
 **Talarico’s Cowboy Boots Are Stealing the Show**\
 `James Talarico’s worn-in Lucchese cowboy boots helped shape his image during his Senate campaign in Texas. Vanessa Friedman, our chief fashion critic, explains the political meanings they carried.`\
 https://www.nytimes.com/video/style/100000011240122/talaricos-cowboy-boots-are-stealing-the-show.html
