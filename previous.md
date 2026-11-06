@@ -1,3 +1,7 @@
+**Stable Labor Market to Keep Fed on Track to Raise Rates Gradually**\
+`The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
+https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
+
 **Florida Shattered Rain Records This Week. Was That Just a Preview?**\
 `Parts of the state recorded two feet of rain in a day. Will this El Niño winter deliver even more?`\
 https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
@@ -172,7 +176,7 @@ https://www.nytimes.com/2026/11/06/technology/tiktok-time-saved-videos-heyitsyoo
 
 **European Countries Push, Again, To Deport Migrants to Rwanda**\
 `Five European nations are closing in on a plan to send rejected migrants to Rwanda following a failed U.K. deal with the country.`\
-https://www.nytimes.com/2026/11/06/world/europe/european-countries-push-again-to-deport-migrants-to-rwanda.html
+https://www.nytimes.com/2026/11/06/world/europe/europe-migrants-rwanda.html
 
 **Is It Finally Time to Buy a Second Home in Atlantic City?**\
 `The New Jersey shore town, best known for its casinos and urban decay, is getting a makeover. For second homeowners, it might be the last great beach town deal.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/world/canada/alberta-book-ban-public-librarie
 **People Are Using Weekend and Seasonal Homes Year-Round Long After the Pandemic**\
 `Long after the pandemic, people are still using weekend and seasonal homes year-round.`\
 https://www.nytimes.com/2026/11/06/realestate/secondary-homes-year-round.html
-
-**As Hormone Use Increases, Some Doctors Warn Slight Cancer Risk Is Being Overlooked**\
-`Doctors said that women should receive treatment for menopause symptoms, but need accurate information about the drugs.`\
-https://www.nytimes.com/2026/11/06/well/hormone-therapy-menopause-cancer.html
 
