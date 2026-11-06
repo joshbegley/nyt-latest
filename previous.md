@@ -1,3 +1,7 @@
+**Bomb Threats Disrupt Dozens of Flights in Europe**\
+`Bomb threats disrupted dozens of flights in Europe this week, prompting some countries to order fighter jets to respond to what turned out to be hoaxes.`\
+https://www.nytimes.com/video/world/europe/100000011267060/bomb-threats-europe-flights-airlines.html
+
 **Late Night Finds Trump Supporters Jumping Ship**\
 `“Wouldn’t it be ironic if the only person who stands by Trump is Melania?” Jimmy Fallon said after Republicans began distancing themselves from the president after the midterms.`\
 https://www.nytimes.com/2026/11/06/arts/television/late-night-midterms-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/05/technology/social-media-child-safety-californ
 **The Many Meanings of James Talarico’s Winning Cowboy Boots**\
 `Obviously, the Texas election was about more than shoes. But the symbolism mattered.`\
 https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senate-race.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
 

@@ -1,3 +1,7 @@
+**Bomb Threats Disrupt Dozens of Flights in Europe**\
+`Bomb threats disrupted dozens of flights in Europe this week, prompting some countries to order fighter jets to respond to what turned out to be hoaxes.`\
+https://www.nytimes.com/video/world/europe/100000011267060/bomb-threats-europe-flights-airlines.html
+
 **Late Night Finds Trump Supporters Jumping Ship**\
 `“Wouldn’t it be ironic if the only person who stands by Trump is Melania?” Jimmy Fallon said after Republicans began distancing themselves from the president after the midterms.`\
 https://www.nytimes.com/2026/11/06/arts/television/late-night-midterms-trump.html
