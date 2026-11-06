@@ -1,3 +1,23 @@
+**Tanzania’s Opposition Leader Gets a Four-Year Sentence**\
+`Tundu Lissu was found guilty of incitement for statements he had made ahead of a presidential election in October 2025.`\
+https://www.nytimes.com/2026/11/06/world/africa/tanzanias-opposition-leader-gets-a-four-year-sentence.html
+
+**Flashback: Your Weekly History Quiz, Nov. 7, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/06/upshot/flashback.html
+
+**Mamdani Wants to Take On Amazon. The City Council Speaker Isn’t So Sure.**\
+`Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The Council speaker, Julie Menin, and business leaders have concerns.`\
+https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
+
+**U.S. Hiring Picks Up and Unemployment Falls**\
+`U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
+https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
+
+**Strong Hiring Reinforces a Sturdy Job Market**\
+`Unemployment fell in October, extending years of stability for a U.S. work force threated by inflation and artificial intelligence.`\
+https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
+
 **Midterm Elections Live Updates: Democrats Build on Decisive Wins as Latest Votes Trickle In**\
 `Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump

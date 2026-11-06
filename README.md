@@ -1,3 +1,7 @@
+**Tesla Is Ending Production of Its Cybertruck and Refocusing on the Cybercab**\
+`Production of the electric trucks will stop in the middle of 2027 to make room for increased production of its autonomous ride-share vehicle, Elon Musk said.`\
+https://www.nytimes.com/2026/11/06/business/tesla-cybertruck-production.html
+
 **Tanzania’s Opposition Leader Gets a Four-Year Sentence**\
 `Tundu Lissu was found guilty of incitement for statements he had made ahead of a presidential election in October 2025.`\
 https://www.nytimes.com/2026/11/06/world/africa/tanzanias-opposition-leader-gets-a-four-year-sentence.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-
 https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
 
 **Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
-`Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after bomb threats, the latest of a series of security incidents.`\
+`Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after false bomb threats, the latest of a series of security incidents.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
 
 **The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-
 **Florida Shattered Rain Records This Week. Was That Just a Preview?**\
 `Parts of the state recorded two feet of rain in a day. Will this El Niño winter deliver even more?`\
 https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
-
-**Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
-`Global markets were rattled after a deep U.S. sell-off on Thursday, but a rally emerged at the end of a turbulent week for investors.`\
-https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
 
