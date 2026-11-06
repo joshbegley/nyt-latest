@@ -1,3 +1,7 @@
+**Wave of Hoax Bomb Threats to Flights in Europe Leaves Travelers Frustrated**\
+`Bomb threats have disrupted dozens of flights in Europe over the past week. At airports in Rome, Madrid and Warsaw, travelers were more frustrated than fearful.`\
+https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-planes-flights-europe-travel.html
+
 **After a $2.5 Trillion Wipeout, Tech Investors Brace for More Pain**\
 `A stock rally fueled in part by artificial intelligence is being tested after Democrats’ landslide election victories.`\
 https://www.nytimes.com/2026/11/06/business/dealbook/tech-investors-ai-rout.html
@@ -59,7 +63,7 @@ https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-
 https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
 
 **Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
-`Global stocks were rattled after a deep U.S. sell-off on Thursday, but signs of a rally emerged in futures markets at the end of a turbulent week for investors.`\
+`Global markets were rattled after a deep U.S. sell-off on Thursday, but signs of a modest rally emerged  at the end of a turbulent week for investors.`\
 https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
 
 **Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/television/new-york-comedy-festival-chap
 **Dave Thomas Looks Back on ‘SCTV’**\
 `A new documentary explores the legacy of this sketch series, which is now available to stream. In an interview, a core cast member recalls its inception and his favorite sketches.`\
 https://www.nytimes.com/2026/11/06/arts/television/sctv-netflix-dave-thomas.html
-
-**Like Trump, Netanyahu Finds the Limits to Fear-Mongering**\
-`By leaning into nativist absolutism, Netanyahu almost doubled the Arab vote, creating a political — and foundational — crisis for Israel.`\
-https://www.nytimes.com/2026/11/06/magazine/trump-netanyahu-fear-elections.html
 
