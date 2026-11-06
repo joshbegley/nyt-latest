@@ -1,3 +1,11 @@
+**After a Generation, Southern Democrats Finally Have the Chance to Lead**\
+`Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
+https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html
+
+**Here’s the latest.**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **Rob Sand Was a Prada Runway Model. Now He’s Going to Be Iowa Governor.**\
 `Rob Sand, an Iowa state auditor who was elected governor on Tuesday, spent part of his youth walking runways before a career in politics.`\
 https://www.nytimes.com/2026/11/06/style/rob-sand-iowa-governor-prada-model.html
