@@ -1,3 +1,7 @@
+**Democratic Socialist Elected Next Mayor of Los Angeles**\
+`Nithya Raman, a Democratic socialist, defeated the incumbent mayor, Karen Bass, to become the next leader of Los Angeles.`\
+https://www.nytimes.com/video/us/elections/100000011266748/democratic-socialist-elected-next-mayor-of-los-angeles.html
+
 **A Cornell Fraternity Was Supposed to Have an Adult on Hand. It Didn’t.**\
 `University rules required Chi Phi to have a live-in adviser on the premises the night a woman said she was raped at the fraternity house. The organization had not hired one.`\
 https://www.nytimes.com/2026/11/06/nyregion/cornell-fraternity-sex-assault-adviser.html
