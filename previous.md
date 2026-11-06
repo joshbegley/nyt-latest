@@ -1,3 +1,11 @@
+**Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
+`The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
+https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
+
+**Houston Police to Stop Alerting ICE During Traffic Stops**\
+`Mayor John Whitmire has instructed Houston police to stop notifying immigration agents when they encounter someone without legal status during routine street stops.`\
+https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ice-cooperation.html
+
 **Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
 `Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
 https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
@@ -63,7 +71,7 @@ https://www.nytimes.com/2026/11/06/us/elections/colom-hyde-smith-mississippi-sen
 https://www.nytimes.com/video/world/europe/100000011267475/bomb-threats-flights-news-europe.html
 
 **U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
-`Jason Reding Quiñones is the latest prosecutor to leave the Justice Department after being assigned a sprawling investigation seeking retribution against President Trump’s perceived enemies.`\
+`Jason Reding Quiñones joins what is expected to be a succession of departures at the Justice Department after the midterm elections, including that of the leader of the national security division.`\
 https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
 
 **Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
@@ -158,6 +166,10 @@ https://www.nytimes.com/2026/11/06/podcasts/the-headlines/data-center-backlash-m
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
 https://www.nytimes.com/live/2026/11/06/business/jobs-report-stocks-market-economy
 
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
+
 **Stable Labor Market Keeps Fed on Track to Raise Rates Gradually**\
 `The Federal Reserve decided against raising interest rates at its meeting last week, but it is widely expected to move again in December to help tame inflation.`\
 https://www.nytimes.com/2026/11/06/business/economy/stable-labor-market-to-keep-fed-on-track-to-raise-rates-gradually.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swin
 **Saudi-Led Forces Bombed Yemeni Home, Killing Nine Family Members, Relatives Say**\
 `The attack in October cast a spotlight on civilian casualties in the Saudi-led and U.S.-assisted bombing campaign against the Houthis.`\
 https://www.nytimes.com/2026/11/06/world/middleeast/saudi-arabia-bombing-yemen-civilians-houthi-war.html
-
-**How Accurate Were Kalshi and Polymarket at Picking Midterm Winners?**\
-`The midterm elections were a referendum on the predictive power of election forecasts.`\
-https://www.nytimes.com/interactive/2026/11/06/business/polymarket-kalshi-prediction-markets-midterm-elections-accuracy.html
-
-**Someone From Your Past Wants to Reconnect. What Now?**\
-`Before you respond, ask yourself a few questions.`\
-https://www.nytimes.com/2026/11/06/well/reconnecting-ex-friend-advice.html
-
-**The Most Dangerous Way to Misread the Midterm Results**\
-`There’s a big difference between a midterm election and a presidential election.`\
-https://www.nytimes.com/2026/11/06/opinion/trump-era-blue-wave-democrats-midterms.html
 

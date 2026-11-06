@@ -1,3 +1,19 @@
+**Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
+`The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
+https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
+
+**Houston Police to Stop Alerting ICE During Traffic Stops**\
+`Mayor John Whitmire has instructed Houston police to stop notifying immigration agents when they encounter someone without legal status during routine street stops.`\
+https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ice-cooperation.html
+
+**U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
+`Jason Reding Quiñones joins what is expected to be a succession of departures at the Justice Department after the midterm elections, including that of the leader of the national security division.`\
+https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
+
+**Here’s the latest.**\
+`(No description)`\
+https://www.nytimes.com/2026/11/06/business/economy/economy-jobs-unemployment.html
+
 **Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
 `Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
 https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
