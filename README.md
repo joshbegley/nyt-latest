@@ -1,3 +1,7 @@
+**Houston Mayor Announces Order to Limit Cooperation With ICE**\
+`Mayor John Whitmire has instructed Houston police to no longer alert ICE agents when they encounter an unauthorized migrant during routine traffic stops or in connection with other low-level infractions.`\
+https://www.nytimes.com/video/us/politics/100000011267984/whitmire-houston-ice.html
+
 **Talarico’s Cowboy Boots Are Stealing the Show**\
 `James Talarico’s worn-in Lucchese cowboy boots helped shape his image during his Senate campaign in Texas. Vanessa Friedman, our chief fashion critic, explains the political meanings they carried.`\
 https://www.nytimes.com/video/style/100000011240122/talaricos-cowboy-boots-are-stealing-the-show.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ic
 **Meghan Markle’s Father Is Arrested on Child Sex Abuse Material Charges**\
 `Thomas Markle Sr., Meghan’s estranged father, was arrested in Florida on Friday. He has denied the accusations against him.`\
 https://www.nytimes.com/2026/11/06/us/thomas-markle-arrested-child-sexual-abuse.html
-
-**The Voters Who Powered the Blue Tsunami**\
-`A younger, more diverse electorate than is typical in midterm elections helped drive Democrats’ decisive victory, along with gains among swing voters and support from some Republican voters. Nate Cohn, The New York Times’s chief political analyst, explains.`\
-https://www.nytimes.com/video/us/elections/100000011265557/the-voters-who-powered-the-blue-tsunami.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
