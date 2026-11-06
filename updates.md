@@ -1,3 +1,7 @@
+**The Greatest Flex for a Celebrity? A Photo With the Pope.**\
+`The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
+https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
+
 **Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
 `A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
 https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html

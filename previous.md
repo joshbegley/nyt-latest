@@ -1,3 +1,7 @@
+**The Greatest Flex for a Celebrity? A Photo With the Pope.**\
+`The singer Bob Dylan became the latest in a small group of high-profile public figures who can brag about a papal encounter.`\
+https://www.nytimes.com/2026/11/06/style/pope-bob-dylan-celebrities.html
+
 **Martin Blinder Has Died. He Was Blamed for the ‘Twinkie Defense.’**\
 `A forensic psychiatrist, he testified that consuming sugary foods could cause antisocial behavior. To his dismay, a catchphrase was born. He was 89.`\
 https://www.nytimes.com/2026/11/06/us/martin-blinder-twinkie-defense-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/science/scientists-election-congress.html
 **After These Midterms, JD Vance Is in a Bind**\
 `He will need to sell voters on a tarnished Trump brand.`\
 https://www.nytimes.com/2026/11/06/opinion/jd-vance-midterms.html
-
-**What a Democratic Congress Could Mean for Science**\
-`The Trump administration has sought to reshape the nation’s research infrastructure. Democratic lawmakers, newly empowered, are preparing to push back.`\
-https://www.nytimes.com/2026/11/06/science/science-democrats-congress-election.html
 
