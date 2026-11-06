@@ -1,3 +1,7 @@
+**U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
+`Jason Reding Quiñones is the latest prosecutor to leave the Justice Department after being assigned a sprawling investigation seeking retribution against President Trump’s perceived enemies.`\
+https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
+
 **This Is How Democrats Can Make Life More Affordable**\
 `Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
 https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html

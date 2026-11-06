@@ -1,3 +1,7 @@
+**U.S. Attorney Who Oversaw Centerpiece of Trump’s Revenge Campaign Resigns**\
+`Jason Reding Quiñones is the latest prosecutor to leave the Justice Department after being assigned a sprawling investigation seeking retribution against President Trump’s perceived enemies.`\
+https://www.nytimes.com/2026/11/06/us/politics/jason-reding-quinones-resigns.html
+
 **Bomb Threats in Europe Probably a Coordinated Campaign, Ireland Says**\
 `Multiple flights in Europe were disrupted and several newsrooms in Ireland were evacuated after bomb threats, the latest of a series of security incidents.`\
 https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ireland.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/texas-conservative-education-reform-hinojo
 **What to Expect From Lame-Duck Trump**\
 `“When he feels cornered, when he feels attacked, he fights back,” the columnist Carlos Lozada says of Donald Trump, who is now entering the lame-duck phase of his presidency. Columnists from across Times Opinion share their predictions for what the final two years of Trump’s term might look like — and they’re not pretty.`\
 https://www.nytimes.com/video/opinion/100000011257733/what-to-expect-from-lame-duck-trump.html
-
-**This Is How Democrats Can Make Life More Affordable**\
-`Democrats have a chance to rewrite the rules of the economy. Here’s how.`\
-https://www.nytimes.com/2026/11/06/opinion/democrats-economy-affordability.html
 
