@@ -1,3 +1,11 @@
+**Rachel Maddow on America’s Pendulum Swing**\
+`The MS NOW anchor takes stock of the midterms, the memes and the democratic project.`\
+https://www.nytimes.com/2026/11/06/podcasts/rachel-maddow-americas-pendulum-swing.html
+
+**Saudi-Led Forces Bombed Yemeni Home, Killing Nine Family Members, Relatives Say**\
+`The attack in October cast a spotlight on civilian casualties in the Saudi-led and U.S.-assisted bombing campaign against the Houthis.`\
+https://www.nytimes.com/2026/11/06/world/middleeast/saudi-arabia-bombing-yemen-civilians-houthi-war.html
+
 **How Accurate Were Kalshi and Polymarket at Picking Midterm Winners?**\
 `The midterm elections were a referendum on the predictive power of election forecasts.`\
 https://www.nytimes.com/interactive/2026/11/06/business/polymarket-kalshi-prediction-markets-midterm-elections-accuracy.html
