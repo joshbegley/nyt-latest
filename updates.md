@@ -1,3 +1,15 @@
+**Lonnie Thompson Has Died. He Dodged Avalanches to Preserve Climate History.**\
+`His observations helped establish shriveling mountain glaciers as an unmistakable consequence of human-caused warming. He was 78.`\
+https://www.nytimes.com/2026/11/06/science/lonnie-thompson-dead.html
+
+**Live Updates: Stephen Miller to Replace Susie Wiles as Trump’s Chief of Staff**\
+`President Trump announced the shake-up on social media. Mr. Miller, a domestic policy adviser, has driven the administration’s immigration crackdown.`\
+https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
+
+**Susie Wiles, Trump’s Chief of Staff, Is Accused of Blocking Health Policies to Attract Donations**\
+`In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
+
 **Is K-pop Experiencing Its Own Revival?**\
 `In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
 https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html

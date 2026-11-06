@@ -1,3 +1,7 @@
+**Lonnie Thompson Has Died. He Dodged Avalanches to Preserve Climate History.**\
+`His observations helped establish shriveling mountain glaciers as an unmistakable consequence of human-caused warming. He was 78.`\
+https://www.nytimes.com/2026/11/06/science/lonnie-thompson-dead.html
+
 **Is K-pop Experiencing Its Own Revival?**\
 `In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
 https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Trump Taps Stephen Miller as New White House Chief of Staff**\
-`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
-https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
-
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
+
+**Live Updates: Stephen Miller to Replace Susie Wiles as Trump’s Chief of Staff**\
+`President Trump announced the shake-up on social media. Mr. Miller, a domestic policy adviser, has driven the administration’s immigration crackdown.`\
+https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 
 **Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
 `A looming impeachment push could put President Trump’s polarizing defense secretary in a standoff with Democrats and Republicans.`\
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-laur
 `Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic.`\
 https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
 
-**Susie Wiles, Trump’s Chief of Staff, Accused of Blocking Health Policies to Attract Donations**\
+**Susie Wiles, Trump’s Chief of Staff, Is Accused of Blocking Health Policies to Attract Donations**\
 `In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/your-money/home-equity-investment.html
 **New York Is Set to Take On Amazon Over Drivers, if Its Leaders Can Agree**\
 `Mayor Zohran Mamdani backs a bill to stop Amazon from outsourcing its deliveries, which would be a blow to the company. The City Council speaker, Julie Menin, and business leaders have concerns.`\
 https://www.nytimes.com/2026/11/06/nyregion/amazon-regulation-mamdani.html
-
-**Kenya Cult Leader Handed 200 Year Prison Sentence for Mass Murder**\
-`Paul Nthenge Mackenzie told followers to starve themselves in order to meet Jesus, an edict that was violently enforced, a court heard during his trial.`\
-https://www.nytimes.com/2026/11/06/world/africa/kenya-cult-leader-prison-sentence-mass-murder-paul-mackenzie.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
