@@ -1,3 +1,7 @@
+**Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
+`The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
+https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
+
 **Time’s Up, Hegseth**\
 `Many in Washington believe Pete Hegseth’s future leading the Defense Department can be counted in days.`\
 https://www.nytimes.com/2026/11/06/opinion/pete-hegseth-rant-impeachment.html
@@ -17,6 +21,10 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 **Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
+
+**Trump Elevates Stephen Miller to Chief of Staff in White House shakeup**\
+`Mr. Miller, the White House’s domestic policy adviser, who has driven the administration’s immigration crackdown, will replace Susie Wiles, the president said.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/06/world/europe/bomb-threats-flights-campaign-ir
 **The Hairstylist Rama Duwaji DMed for Her Razor Cut**\
 `Lauren Sottile’s signature cut is a style coveted by artsy women in New York City looking for a bit of edge.`\
 https://www.nytimes.com/2026/11/06/style/rama-duwaji-haircut-lauren-sottile-brooklyn.html
-
-**Corrections: Nov. 6, 2026**\
-`Corrections that appeared in print on Friday, Nov. 6, 2026.`\
-https://www.nytimes.com/2026/11/06/pageoneplus/corrections-nov-6-2026.html
-
-**She Commands the Sunken Titanic, From 1,000 Miles Away**\
-`A Virginia judge, empowered by quirks in maritime law, has overseen the salvage of the remote shipwreck for decades. Now her rule is being challenged.`\
-https://www.nytimes.com/2026/11/06/arts/design/titanic-artifacts-federal-judge-maritime-law.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
