@@ -172,7 +172,7 @@ https://www.nytimes.com/2026/11/06/technology/tiktok-time-saved-videos-heyitsyoo
 
 **European Countries Push, Again, To Deport Migrants to Rwanda**\
 `Five European nations are closing in on a plan to send rejected migrants to Rwanda following a failed U.K. deal with the country.`\
-https://www.nytimes.com/2026/11/06/world/europe/european-countries-push-again-to-deport-migrants-to-rwanda.html
+https://www.nytimes.com/2026/11/06/world/europe/europe-migrants-rwanda.html
 
 **Is It Finally Time to Buy a Second Home in Atlantic City?**\
 `The New Jersey shore town, best known for its casinos and urban decay, is getting a makeover. For second homeowners, it might be the last great beach town deal.`\

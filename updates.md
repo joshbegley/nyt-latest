@@ -1,3 +1,11 @@
+**Florida Shattered Rain Records This Week. Was That Just a Preview?**\
+`Parts of the state recorded two feet of rain in a day. Will this El Niño winter deliver even more?`\
+https://www.nytimes.com/2026/11/06/weather/florida-rain-el-nino.html
+
+**Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
+`Markets in Asia and Europe tumbled, with Japan’s market falling into a bear market.`\
+https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
+
 **Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout**\
 `Victory for Democrats could alter the course of peace negotiations and a war nearing its fifth year.`\
 https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html
