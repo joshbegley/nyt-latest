@@ -1,3 +1,11 @@
+**The Major U.S. Cities That Have Elected Democratic Socialist Mayors**\
+`Nithya Raman’s win in Los Angeles adds to the list of major cities with democratic socialist leaders.`\
+https://www.nytimes.com/2026/11/05/us/elections/democratic-socialist-mayors.html
+
+**Watch Live: What the Midterm Elections Are Telling Us About 2028**\
+`Live from the Brooklyn Public Library, Jamelle Bouie, Michelle Cottle and David French discuss the midterm election results and look ahead to 2028.`\
+https://www.nytimes.com/2026/11/05/opinion/midterm-election-trump-bouie-cottle-french.html
+
 **‘Let’s Go, Bahhston’: Logan Airport Chooses Its New Voice**\
 `A pipe fitter from Massachusetts beat out thousands of other applicants to provide the voice that welcomes travelers to Boston Logan Airport.`\
 https://www.nytimes.com/2026/11/05/us/voice-of-logan-airport-boston-winner.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
 **JoAnna Mendoza Wins in Arizona, Giving Democrats a Key House Pickup**\
 `The Democrat, a retired Marine, defeated Representative Juan Ciscomani, a two-term Republican, in a highly competitive district in southeastern Arizona.`\
 https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza.html
-
-**Russell Brand Found Guilty of Rape and Sexual Assault**\
-`Russell Brand, the firebrand YouTuber and former comedian, was found guilty in a London court on Thursday of one count of rape and three counts of sexual assault. A jury cleared him of three other charges.`\
-https://www.nytimes.com/video/world/europe/100000011264866/russell-brand-rape-sexual-assault-trial-verdict.html
-
-**What Teenagers Are Saying About Childhood Independence**\
-`Are we overprotective of children? Students respond to an article about parents facing legal investigations for letting their kids play alone outside.`\
-https://www.nytimes.com/2026/11/05/learning/what-teenagers-are-saying-about-childhood-independence.html
 
