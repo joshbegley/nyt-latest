@@ -1,3 +1,23 @@
+**Talarico’s Cowboy Boots Are Stealing the Show**\
+`James Talarico’s worn-in Lucchese cowboy boots helped shape his image during his Senate campaign in Texas. Vanessa Friedman, our chief fashion critic, explains the political meanings they carried.`\
+https://www.nytimes.com/video/style/100000011240122/talaricos-cowboy-boots-are-stealing-the-show.html
+
+**How the Tech Right’s Bet on A.I. Backfired**\
+`This week on “Hard Fork,” Ezra Klein, an Opinion columnist for The New York Times, joins the show to discuss the midterm election, including voter concerns about A.I. and data centers.`\
+https://www.nytimes.com/video/technology/100000011268712/how-the-tech-rights-bet-on-ai-backfired.html
+
+**Cornell Faculty Passes Vote of No Confidence Over Handling of Sexual Assault Case**\
+`A largely symbolic no-confidence vote served as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
+https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
+
+**Southern Democrats Now Have a Chance to Lead. What Will They Do With It?**\
+`Sweeping midterm successes in Georgia and North Carolina have given the party an opportunity, and a test, to lay out a vision for governing in the South.`\
+https://www.nytimes.com/2026/11/06/us/southern-democrats-georgia-north-carolina.html
+
+**Live Updates: Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
+`The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
+https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
+
 **Maps: Tracking Tropical Storm Pena**\
 `See the likely path and wind arrival times for Pena`\
 https://www.nytimes.com/interactive/2026/11/06/weather/tropical-storm-pena-pacific-map-path.html
