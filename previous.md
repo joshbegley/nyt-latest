@@ -1,3 +1,11 @@
+**Giant Pandas Make Debut in Atlanta Zoo**\
+`Two giant pandas made their debut at an Atlanta zoo on Friday. The animals are part of an international effort to preserve giant pandas and symbolize diplomatic relations between the United States and China.`\
+https://www.nytimes.com/video/us/100000011268144/pandas-atlanta-zoo.html
+
+**What to Know About Stephen Miller, Trump’s New Chief of Staff**\
+`The architect of President Trump’s mass deportation campaign, Mr. Miller has been the public face of many of Mr. Trump’s immigration policies.`\
+https://www.nytimes.com/2026/11/06/us/politics/stephen-miller-white-house-chief-staff.html
+
 **Susie Wiles Is First High-Level Official to Leave Trump Administration After Midterms**\
 `Four cabinet officials left their positions in the Trump administration earlier this year`\
 https://www.nytimes.com/2026/11/06/us/susie-wiles-replaced-trump-chief-of-staff.html
@@ -55,7 +63,7 @@ https://www.nytimes.com/2026/11/06/dining/a-big-pot-of-tomato-soup.html
 https://www.nytimes.com/2026/11/06/us/elections/california-elections-ballots-count.html
 
 **Cornell Faculty Passes Vote of No Confidence Over Handling of Sexual Assault Case**\
-`A largely symbolic no-confidence vote served as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
+`The largely symbolic vote serves as a sharp rebuke of campus leadership’s handling of an explosive rape allegation that put the university in the national spotlight.`\
 https://www.nytimes.com/2026/11/06/nyregion/cornell-no-confidence-vote.html
 
 **The Local: How Minneapolis looks to home buyers**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/11/06/upshot/flashback.html
 **‘It Gets Worse’ Review: Leo Reich Comedy Channels ‘Girls’**\
 `Produced by A24 and Crave, Leo Reich’s new comedy is prickly and perceptive.`\
 https://www.nytimes.com/2026/11/06/arts/television/it-gets-worse-review.html
-
-**Right-wing Firebrand Lauren Boebert Is Locked in a Close Race**\
-`The Republican provocateur is trailing her Democrat challenger, Eileen Laubacher, by less than a percentage point in a normally red district.`\
-https://www.nytimes.com/2026/11/06/us/elections/lauren-boebert-midterm-election-trump.html
-
-**Houston Police to Stop Alerting ICE During Traffic Stops**\
-`Mayor John Whitmire has instructed Houston police to stop notifying immigration agents when they encounter someone without legal status during routine street stops.`\
-https://www.nytimes.com/2026/11/06/us/houston-mayor-john-whitmire-immigration-ice-cooperation.html
 
