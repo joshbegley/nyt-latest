@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Democrats Build on Decisive Wins as Late Votes Trickle In**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but dozens of races remain too close to call.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
+
 **John D. Rockefeller IV, West Virginia Governor and Senator, Dies at 89**\
 `The rare Democrat in a fabled family of wealthy Republicans, he served 30 years as senator and helped bring health insurance to millions of low-income children.`\
 https://www.nytimes.com/2026/11/06/us/politics/jay-rockefeller-dead.html
