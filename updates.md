@@ -1,3 +1,7 @@
+**Global Stocks Follow U.S. Sell-Off as A.I. Spending Fears Spread**\
+`Global stocks were rattled after a deep U.S. sell-off on Thursday, but signs of a rally emerged in futures markets at the end of a turbulent week for investors.`\
+https://www.nytimes.com/2026/11/06/business/global-stocks-markets-tech-ai.html
+
 **‘The Headlines’ News Quiz: Nov. 6, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/06/podcasts/the-headlines/the-headlines-news-quiz-nov-6-2026.html
