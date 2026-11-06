@@ -1,3 +1,7 @@
+**2026 Midterms Data: How Democrats Won the Largest House Majority Since 2008**\
+`Democrats are on track to win the largest House majority since 2008, when they won 257 seats.`\
+https://www.nytimes.com/interactive/2026/11/05/us/elections/democrats-house-majority-midterms-data.html
+
 **Rubio Says Elections in Venezuela Would ‘Ideally’ Be Held Next Year**\
 `Secretary of State Marco Rubio laid out a series of steps the United States wants to see before Venezuela holds free elections.`\
 https://www.nytimes.com/2026/11/05/us/politics/rubio-elections-venezuela.html
@@ -106,7 +110,7 @@ https://www.nytimes.com/2026/11/05/style/james-talarico-cowboy-boots-texas-senat
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/05/books/review/new-recommended-books.html
 
-**Voters in 3 States Limit Trans Athletes**\
+**Voters in 4 States Limit Trans Athletes**\
 `Voters in Arizona, Colorado, Nebraska and Washington approved bans on trans athletes on female sports teams. Organizers said the results were likely to lead to similar ballot efforts elsewhere.`\
 https://www.nytimes.com/2026/11/05/us/transgender-athlete-bans-referendums.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/05/nyregion/strand-bookstore-pay-pandemic-loan-n
 **This Is What the Big Tent Looks Like**\
 `On “The Ezra Klein Show,” Ezra Klein argues that “the big tent is real” and breaks down Democratic showings in North Carolina, Georgia, Kansas and Mississippi.`\
 https://www.nytimes.com/video/opinion/100000011258482/this-is-what-the-big-tent-looks-like.html
-
-**FBI Agent Struck Pedestrian in Brooklyn and Drove Off, U.S. Says**\
-`The agent went through a red light, drove the wrong way on a Brooklyn road and struck a man, leaving him unconscious, prosecutors said.`\
-https://www.nytimes.com/2026/11/05/nyregion/fbi-andrew-reyes-arrested-pedestrian-brooklyn.html
 
