@@ -1,3 +1,15 @@
+**Officials Release 911 Call Made During Oregon School Shooting**\
+`Kaylub Giamanco made a frantic 911 call moments before he fatally shot a teenage shooter at an Oregon elementary school attended by his two daughters.`\
+https://www.nytimes.com/video/us/100000011265133/bend-oregon-school-shooting-911-call.html
+
+**Lucien Smith, Art-World Star, Died From Accidental Drug Overdose**\
+`Shortly before Mr. Smith died, he created a series of new “Rain Paintings” that are now on display in a show at the Tripoli Gallery in Wainscott, N.Y.`\
+https://www.nytimes.com/2026/11/05/arts/design/artist-lucien-smith-cause-of-death.html
+
+**These 5 Midterm Races Tell the Story of the Democrats’ Blue Wave**\
+`The districts are very different, but they all explain how the Democrats won so big.`\
+https://www.nytimes.com/2026/11/05/us/politics/democrats-blue-wave-elections-districts.html
+
 **The Major U.S. Cities That Have Elected Democratic Socialist Mayors**\
 `Nithya Raman’s win in Los Angeles adds to the list of major cities with democratic socialist leaders.`\
 https://www.nytimes.com/2026/11/05/us/elections/democratic-socialist-mayors.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/05/learning/whats-going-on-in-this-graph-nov-18-
 **OpenAI Pledges to Give Locals More Say in Data Center Projects**\
 `The artificial intelligence company pledged to be more collaborative with the communities where it is building its data centers.`\
 https://www.nytimes.com/2026/11/05/technology/openai-data-centers-midterms.html
-
-**Nithya Raman Wins Los Angeles Mayoral Race, Defeating Karen Bass**\
-`The 45-year-old City Council member defeated the incumbent mayor, Karen Bass, 73, a sweeping success for a new generation of far-left leaders.`\
-https://www.nytimes.com/2026/11/05/us/la-mayor-raman-bass.html
-
-**RFK Jr.’s Appointees to Health Task Force Included Four Allowed to Keep Drug Stocks**\
-`New members of the influential U.S. Preventive Services Task Force were given waivers to serve with financial conflicts.`\
-https://www.nytimes.com/2026/11/05/well/rfk-jr-uspstf-stocks.html
-
-**JoAnna Mendoza Wins in Arizona, Giving Democrats a Key House Pickup**\
-`The Democrat, a retired Marine, defeated Representative Juan Ciscomani, a two-term Republican, in a highly competitive district in southeastern Arizona.`\
-https://www.nytimes.com/2026/11/05/us/politics/arizona-house-6-ciscomani-mendoza.html
 
