@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/11/06/arts/design/whitney-museum-curators-2028-bien
 `Among those elected to Congress on Tuesday are a mathematician, a microbiologist and a chemical engineer. They plan to take on a White House that has threatened funding cuts to research.`\
 https://www.nytimes.com/2026/11/06/science/scientists-election-congress.html
 
-**After These Midterms, JD Vance Is in a Bind**\
-`He will need to sell voters on a tarnished Trump brand.`\
-https://www.nytimes.com/2026/11/06/opinion/jd-vance-midterms.html
-
