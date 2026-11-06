@@ -1,3 +1,7 @@
+**Republicans’ Losses in New York’s Midterms Were Bad. Then Came Their Post-Election Freakout.**\
+`The party’s losses in New York mirrored those across the nation, but leading Republicans in the state quickly blamed each other for the results.`\
+https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republicans-blakeman-stefanik.html
+
 **How Dominic Fike Fell Back in Love With Music**\
 `Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
 https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/06/podcasts/hardfork-midterms-tech-right.html
 **Why the Eagles Collapsed**\
 `Plus, has Lamar Jackson played his last game with the Ravens?`\
 https://www.nytimes.com/2026/11/06/podcasts/why-the-eagles-collapsed.html
-
-**Chuck Schumer on Governing With (or Without) Trump**\
-`“The Daily” goes to Capitol Hill to talk with Senator Chuck Schumer.`\
-https://www.nytimes.com/2026/11/06/podcasts/the-daily/chuck-schumer-senate-democrats.html
 
 **U.S. Hiring Picks Up and Unemployment Falls**\
 `U.S. employers hired at a vigorous pace in October, adding 165,000 jobs. The unemployment rate fell to 4.1 percent.`\
