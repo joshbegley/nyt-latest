@@ -6,8 +6,8 @@ https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now
 `The singer was kicked off Ed Sheeran’s tour in September over his vocal support for Palestinians.`\
 https://www.nytimes.com/2026/11/06/arts/music/macklemore-says-us-arenas-wont-book-his-free-palestine-tour.html
 
-**Paraguay’s President Removed Over Financial Crisis**\
-`Millions lost access to their savings, and the nation’s president was impeached and removed from office Friday after a major bank with close ties to his administration went under.`\
+**Paraguay’s President Removed and Arrested Over Financial Crisis**\
+`Santiago Peña was impeached, removed from office and arrested at his residence after a bank with close ties to his administration went under.`\
 https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
 
 **New Leaders Emerge for 2028**\

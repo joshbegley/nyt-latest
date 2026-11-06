@@ -1,3 +1,7 @@
+**Inside the Wardrobe of Truman Capote’s Nicest Swan**\
+`A new museum exhibition gathers some of the elegant dresses, but also the sneakers and shorts, of the American socialite, equestrian and writer C.Z. Guest.`\
+https://www.nytimes.com/2026/11/06/t-magazine/truman-capotes-nicest-swan-cz-guest.html
+
 **Democrats Took Over Texas. What Now?**\
 `Democrats’ wins in the Lone Star state exceeded their wildest dreams.`\
 https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finall
 **Dominic Fike on the Art of Code Switching**\
 `On ‘Popcast,’ the musician and actor Dominic Fike shares how his genre-blending sound was shaped by watching his mom navigate different worlds and being exposed to a diverse mix of music.`\
 https://www.nytimes.com/video/podcasts/100000011260449/dominic-fike-on-the-art-of-code-switching.html
-
-**After Israel’s Election, Who Will Get the First Chance to Form a Government?**\
-`President Isaac Herzog is set to task a candidate with trying to form a government, following two days of talks with party leaders and officials after an inconclusive election.`\
-https://www.nytimes.com/2026/11/06/world/middleeast/israel-election-government-herzog.html
 

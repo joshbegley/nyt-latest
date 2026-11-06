@@ -1,3 +1,7 @@
+**Paraguay’s President Removed and Arrested Over Financial Crisis**\
+`Santiago Peña was impeached, removed from office and arrested at his residence after a bank with close ties to his administration went under.`\
+https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
+
 **Democrats Took Over Texas. What Now?**\
 `Democrats’ wins in the Lone Star state exceeded their wildest dreams.`\
 https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now.html
