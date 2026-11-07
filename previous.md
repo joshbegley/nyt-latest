@@ -1,3 +1,7 @@
+**Justice Department Intervenes in Planned Parenthood Lawsuit in Texas**\
+`The Justice Department’s intervention in the Texas lawsuit could signal that the administration is ready to challenge newly elected Democrats in state offices.`\
+https://www.nytimes.com/2026/11/07/us/politics/doj-texas-fraud-lawsuit-planned-parenthood.html
+
 **A ‘Chaotic Race’ for the World’s Top Diplomat**\
 `The contest to replace António Guterres as U.N. secretary general has been jolted by last-minute entrants and deep divisions among members of the Security Council.`\
 https://www.nytimes.com/2026/11/07/world/americas/un-secretary-general-pick.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/music/dove-cameron-rex-orange-county-shy
 **Book Review: ‘Look at Me,’ by Dustin Hoffman**\
 `“Look at Me,” his long-awaited memoir, is an entertaining, if incomplete, reminder of how wrong he turned out to be.`\
 https://www.nytimes.com/2026/11/07/books/review/dustin-hoffman-look-at-me.html
-
-**Inside the Operation That Helped Ukraine Reverse Some Russian War Gains**\
-`After months of secrecy, Ukrainian commanders let New York Times journalists join them in bunkers and training grounds used to reverse some Russian territorial gains.`\
-https://www.nytimes.com/2026/11/07/world/europe/ukraine-russia-war-operation-vivaldi.html
 

@@ -1,3 +1,7 @@
+**Justice Department Intervenes in Planned Parenthood Lawsuit in Texas**\
+`The Justice Department’s intervention in the Texas lawsuit could signal that the administration is ready to challenge newly elected Democrats in state offices.`\
+https://www.nytimes.com/2026/11/07/us/politics/doj-texas-fraud-lawsuit-planned-parenthood.html
+
 **Trump Appoints Stephen Miller as New Chief of Staff**\
 `Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Miller is the hard-line policy adviser responsible for many of Trump’s most aggressive immigration policies.`\
 https://www.nytimes.com/video/us/politics/100000011269719/trump-stephen-miller-chief-of-staff.html
