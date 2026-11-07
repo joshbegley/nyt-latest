@@ -1,3 +1,11 @@
+**Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
+`A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
+https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
+
+**NYT Spelling Bee Answers for November 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/07/crosswords/spelling-bee-forum.html
+
 **Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
 `Economic concerns dominated in the lead-up to the election on Saturday, in which there was no clear front-runner and smaller parties were expected to wield greater influence.`\
 https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html

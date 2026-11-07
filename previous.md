@@ -1,3 +1,11 @@
+**Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
+`A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
+https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
+
+**NYT Spelling Bee Answers for November 7, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/07/crosswords/spelling-bee-forum.html
+
 **Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
 `The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
 https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/06/us/ohio-state-wexner-buildings-epstein.html
 **Some Publishers Drop Russell Brand After Rape Conviction**\
 `Some book publishers pulled Brand’s titles after his conviction on a rape charge on Thursday. But streaming services like YouTube seem less sure how to deal with old content featuring the former star.`\
 https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
-
-**Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
-`The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
-https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
-
-**Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
-`The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
-https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 
