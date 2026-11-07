@@ -1,3 +1,7 @@
+**First Three Jurors Picked, 26 Years After the Bombing of the U.S.S. Cole**\
+`More U.S. military officers are being mobilized late next week because the original pool in the death penalty case is being depleted.`\
+https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.html
+
 **Richard Lloyd, Torrential Guitarist of Television, Has Died**\
 `With Tom Verlaine, he led the dual-guitar attack in a band that brought fiery yet sophisticated art rock to the New York City punk scene of the 1970s. He was 75.`\
 https://www.nytimes.com/2026/11/07/arts/music/richard-lloyd-dead.html

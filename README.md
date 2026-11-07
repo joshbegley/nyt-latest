@@ -1,3 +1,7 @@
+**Never Get High on Your Own Supply**\
+`Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
+
 **First Three Jurors Picked, 26 Years After the Bombing of the U.S.S. Cole**\
 `More U.S. military officers are being mobilized late next week because the original pool in the death penalty case is being depleted.`\
 https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/technology/whistle-blowers-jeffrey-wigand.htm
 **Book Review: ‘The Savage Mind,’ by David Treuer**\
 `David Treuer’s new book is a letter to his children about the savage history of our national character.`\
 https://www.nytimes.com/2026/11/07/books/review/david-treuer-savage-mind.html
-
-**U.S. Cleared Nvidia Chips to Chinese Firms With Empty Offices and Troubling Ties**\
-`The Commerce Department has approved dozens of Chinese companies to handle Nvidia’s H200 chips, some of which have ties to firms under sanctions over national security.`\
-https://www.nytimes.com/2026/11/07/business/economy/nvidia-chips-chinese-firms.html
 
