@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.
 `Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
 https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
 
-**Live Updates: Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
+**Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 
