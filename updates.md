@@ -1,3 +1,7 @@
+**Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
+`Economic concerns dominated in the lead-up to the election on Saturday, in which there was no clear front-runner and smaller parties were expected to wield greater influence.`\
+https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
+
 **Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
 `The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
 https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
