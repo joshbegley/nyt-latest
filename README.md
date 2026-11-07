@@ -1,3 +1,7 @@
+**South Carolina Republicans Fracture Over Stunning Defeat of Darline Graham**\
+`Some blamed President Trump for backing the novice candidate after the death of her brother, Lindsey Graham. Others accused Ms. Graham’s team of pushing her to run despite her lack of experience.`\
+https://www.nytimes.com/2026/11/07/us/politics/darline-graham-loss-blame.html
+
 **Red Flag Warnings for Fire Are In Place Near Los Angeles on Saturday**\
 `Temperatures could climb close to 90 around Los Angeles.`\
 https://www.nytimes.com/2026/11/07/weather/la-heat-fire-temperature.html
@@ -38,13 +42,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Need a Bold Governing Agenda**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Need a Bold Governing Agenda**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/11/07/crosswords/strands-sidekick-980.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
 https://www.nytimes.com/2026/11/07/crosswords/connections-companion-1246.html
 
-**Despite All, Daylight Saving Time Is Still on Trump’s Mind**\
+**Still on the President’s Agenda: Daylight Saving Time**\
 `Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
 https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html
 
@@ -166,7 +170,7 @@ https://www.nytimes.com/2026/11/07/books/review/david-treuer-savage-mind.html
 `The Commerce Department has approved dozens of Chinese companies to handle Nvidia’s H200 chips, some of which have ties to firms under sanctions over national security.`\
 https://www.nytimes.com/2026/11/07/business/economy/nvidia-chips-chinese-firms.html
 
-**How The New York Times Obituaries Desk Covers Death by Suicide**\
+**How the New York Times Obituaries Desk Covers Death by Suicide**\
 `There is more openness about discussing suicide now. But sometimes families talk about it only reluctantly, or not at all.`\
 https://www.nytimes.com/2026/11/07/obituaries/suicide-deaths.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/style/ceramic-wedding-bouquets-bridal.html
 **Husbands Makes Suits for a 1970s Leading Man, for Now**\
 `Husbands, a Parisian suiting label founded by Nicolas Gabard, has tapped into a new-old idea of sexiness for men.`\
 https://www.nytimes.com/2026/11/07/style/husbands-suits-nicolas-gabard-paris.html
-
-**With So Much New Blood in the Senate, the Average Age Is Falling. To 63.**\
-`Incoming senators are nearly 15 years younger than departing ones, on average. But the chamber’s overall age isn’t shifting much.`\
-https://www.nytimes.com/2026/11/07/upshot/senators-midterm-elections-age.html
 
