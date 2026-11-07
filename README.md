@@ -1,13 +1,17 @@
+**A ‘Chaotic Race’ for the World’s Top Diplomat**\
+`The contest to replace António Guterres as U.N. secretary general has been jolted by last-minute entrants and deep divisions among members of the Security Council.`\
+https://www.nytimes.com/2026/11/07/world/americas/un-secretary-general-pick.html
+
 **Trump Appoints Stephen Miller as New Chief of Staff**\
-`Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Mr. Miller is the hard-line policy adviser responsible for many of Mr. Trump’s most aggressive immigration policies.`\
+`Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Miller is the hard-line policy adviser responsible for many of Trump’s most aggressive immigration policies.`\
 https://www.nytimes.com/video/us/politics/100000011269719/trump-appoints-stephen-miller-new-chief-of-staff.html
 
-**For Stephen Miller, Election Defeat Is No Reason to Back Down**\
+**For Stephen Miller, Election Defeat Is No Reason to Back Down on Immigration Crackdown**\
 `The president’s new chief of staff has already demonstrated his intention to forge ahead with an agenda that many voters rejected.`\
 https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
 
-**Brooklyn Jogger Dies. Man Charged With Murder in Her Stabbing.**\
-`The arrest of Sayed Mohassib, 27, ends a weeklong search for Katie Suarez’s attacker. Ms. Suarez had been on a ventilator for days following the attack.`\
+**Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
+`The arrest of Sayed Mohassib, 27, ends a weeklong search for the attacker. The jogger, Katie Suarez, had been on a ventilator for days following the attack.`\
 https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
 
 **Why White Working-Class Voters Shifted Left in the Midterms**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/books/review/dustin-hoffman-look-at-me.html
 **Inside the Operation That Helped Ukraine Reverse Some Russian War Gains**\
 `After months of secrecy, Ukrainian commanders let New York Times journalists join them in bunkers and training grounds used to reverse some Russian territorial gains.`\
 https://www.nytimes.com/2026/11/07/world/europe/ukraine-russia-war-operation-vivaldi.html
-
-**Inside ‘American Hagwon’ Author Min Jin Lee’s Harlem Home**\
-`The ‘American Hagwon’ author’s home features floor-to-ceiling bookshelves and seven fireplaces.`\
-https://www.nytimes.com/interactive/2026/11/07/realestate/inside-author-min-jin-lees-treasure-filled-harlem-townhouse.html
 
