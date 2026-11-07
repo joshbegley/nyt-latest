@@ -1,3 +1,7 @@
+**Kansans Elect Democrat as Attorney General, Voting Out Kris Kobach**\
+`Chris Mann, a former police officer and prosecutor, defeated Mr. Kobach, a Republican who helped elevate concerns about election fraud to national prominence.`\
+https://www.nytimes.com/2026/11/06/us/kansas-attorney-general-kobach-mann.html
+
 **Susie Wiles Is the Latest Powerful Woman to Exit the Trump Administration**\
 `A wave of high-ranking women have left the Trump administration in the past year. Many were replaced by men.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-trump-women.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-roga
 **Republicans’ Losses in New York’s Midterms Were Bad. Then Came Their Post-Election Freakout.**\
 `The party’s losses in New York mirrored those across the nation, but leading Republicans in the state quickly blamed each other for the results.`\
 https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republicans-blakeman-stefanik.html
-
-**How Dominic Fike Fell Back in Love With Music**\
-`On ‘Popcast,” the musician and actor Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
-https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
 
