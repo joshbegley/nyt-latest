@@ -1,3 +1,7 @@
+**Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
+`Preliminary results showed no clear front-runner after an election that was dominated by economic concerns.`\
+https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
+
 **Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
 `A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
 https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
