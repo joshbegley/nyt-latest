@@ -1,3 +1,7 @@
+**Schumer Lifts His Senate Standing With an Election Blowout**\
+`The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
+https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
+
 **Have Yourself a Delicious Little Thanksgiving**\
 `Easy sheet-pan dishes (crispy gnocchi with sausage and broccoli) and smaller options (roast chicken with plums) for a cozy dinner with friends.`\
 https://www.nytimes.com/2026/11/07/dining/have-yourself-a-delicious-little-thanksgiving.html
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/11/07/arts/alexander-skarsgard-sexuality.html
 `Dove Cameron’s retro melodrama, Rex Orange County’s ’60s echoes, Shygirl’s “Mantra” and more.`\
 https://www.nytimes.com/2026/11/07/arts/music/dove-cameron-rex-orange-county-shygirl-songs.html
 
-**Inside the Operation That Helped Ukraine Reverse Some Russian War Gains**\
-`After months of secrecy, Ukrainian commanders let New York Times journalists join them in bunkers and training grounds used to reverse some Russian territorial gains.`\
-https://www.nytimes.com/2026/11/07/world/europe/ukraine-russia-war-operation-vivaldi.html
-
 **Book Review: ‘Look at Me,’ by Dustin Hoffman**\
 `“Look at Me,” his long-awaited memoir, is an entertaining, if incomplete, reminder of how wrong he turned out to be.`\
 https://www.nytimes.com/2026/11/07/books/review/dustin-hoffman-look-at-me.html
+
+**Inside the Operation That Helped Ukraine Reverse Some Russian War Gains**\
+`After months of secrecy, Ukrainian commanders let New York Times journalists join them in bunkers and training grounds used to reverse some Russian territorial gains.`\
+https://www.nytimes.com/2026/11/07/world/europe/ukraine-russia-war-operation-vivaldi.html
 
 **Inside ‘American Hagwon’ Author Min Jin Lee’s Harlem Home**\
 `The ‘American Hagwon’ author’s home features floor-to-ceiling bookshelves and seven fireplaces.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/obituaries/suicide-deaths.html
 **Illeana Douglas Looks Back on Hollywood’s Biggest ‘Cat Fight’**\
 `After publishing a book about the 1939 classic “The Women,” the actress and writer talks about her film career and her role in #MeToo.`\
 https://www.nytimes.com/2026/11/07/style/illeana-douglas-the-women-cat-fight.html
-
-**The Artisan Transforming Broken Glass Into Something Beautiful**\
-`After two decades at luxury houses including Hermès, Sophie Toporkoff opened a stained glass studio and introduces some of her design sensibilities to the craft.`\
-https://www.nytimes.com/2026/11/07/arts/the-artisan-transforming-broken-glass-into-something-beautiful.html
 
