@@ -1,3 +1,7 @@
+**A Holiday Gift-Giving Pep Talk (and Tips) From Priya Parker**\
+`The author and self-described “meaning-maker” Priya Parker explains why presents can make, break or distort our relationships.`\
+https://www.nytimes.com/2026/11/07/style/holiday-gift-shopping-tips-priya-parker.html
+
 **Children’s Problems Today Go Beyond the Screens**\
 `Readers discuss a guest essay by a child psychiatrist.`\
 https://www.nytimes.com/2026/11/07/opinion/children-screens.html
