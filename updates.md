@@ -1,3 +1,7 @@
+**Justice Dept. Dismisses Suit Against California Over 20,000 Ballots**\
+`The effort by the Trump administration to set aside thousands of mail-in ballots had been rejected by the Supreme Court before Election Day.`\
+https://www.nytimes.com/2026/11/06/us/elections/justice-dept-dismisses-california-suit.html
+
 **U.S. Homeless Population Had Record Drop in 2025**\
 `The Department of Housing and Urban Development credited President Trump, while homeless advocacy groups said that so-called Housing First policies of his predecessors played a part.`\
 https://www.nytimes.com/2026/11/06/us/politics/homeless-population-drop.html

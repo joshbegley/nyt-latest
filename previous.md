@@ -1,3 +1,7 @@
+**Justice Dept. Dismisses Suit Against California Over 20,000 Ballots**\
+`The effort by the Trump administration to set aside thousands of mail-in ballots had been rejected by the Supreme Court before Election Day.`\
+https://www.nytimes.com/2026/11/06/us/elections/justice-dept-dismisses-california-suit.html
+
 **U.S. Homeless Population Had Record Drop in 2025**\
 `The Department of Housing and Urban Development credited President Trump, while homeless advocacy groups said that so-called Housing First policies of his predecessors played a part.`\
 https://www.nytimes.com/2026/11/06/us/politics/homeless-population-drop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.ht
 **Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
-
-**Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
-`A looming impeachment push could put President Trump’s polarizing defense secretary in a standoff with Democrats and Republicans.`\
-https://www.nytimes.com/2026/11/06/us/politics/hegseth-trump-iran-war.html
 
