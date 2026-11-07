@@ -1,3 +1,7 @@
+**Law Firms Have Malpractice Insurance. Should Their A.I. Agents?**\
+`Crosby, an A.I. law firm, bought it for them. The move speaks to a nascent gap in coverage as major insurers grapple with risks related to artificial intelligence.`\
+https://www.nytimes.com/2026/11/07/business/dealbook/crosby-ai-agent-liability-malpractice-insurance.html
+
 **What Michelle Goldberg Learned From the Most Exciting Democrats**\
 `Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
 https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html

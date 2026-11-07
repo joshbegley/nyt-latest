@@ -1,3 +1,7 @@
+**Law Firms Have Malpractice Insurance. Should Their A.I. Agents?**\
+`Crosby, an A.I. law firm, bought it for them. The move speaks to a nascent gap in coverage as major insurers grapple with risks related to artificial intelligence.`\
+https://www.nytimes.com/2026/11/07/business/dealbook/crosby-ai-agent-liability-malpractice-insurance.html
+
 **Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
 `At least 44 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
 https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/upshot/senators-midterm-elections-age.html
 **This Israeli Vows to Oust Netanyahu. Here’s How.**\
 `Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
-
-**Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
-`A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
-https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
 
