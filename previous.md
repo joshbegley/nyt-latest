@@ -1,3 +1,7 @@
+**Why White Working-Class Voters Shifted Left in the Midterms**\
+`White voters without a college degree, a cornerstone of the Republican base in the Trump era, moved left this year. Some cited high prices, the war with Iran and more in their decisions.`\
+https://www.nytimes.com/2026/11/07/us/politics/white-working-class-voters-midterms-democrats-trump.html
+
 **More Than 50 Killed in Yemen in One of the Deadliest 24 Hours of the War**\
 `Strikes show the heavy toll since fighting between the Houthis and the Saudi-backed government reignited in August, with civilians paying a heavy price.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/more-than-50-killed-in-yemen.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Need a Bold Governing Agenda**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Need a Bold Governing Agenda**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/television/dorinda-medley-real-housewive
 **A Holiday Gift-Giving Pep Talk (and Tips) From Priya Parker**\
 `The author and self-described “meaning-maker” Priya Parker explains why presents can make, break or distort our relationships.`\
 https://www.nytimes.com/2026/11/07/style/holiday-gift-shopping-tips-priya-parker.html
-
-**Jeffrey Wigand, Who Blew the Whistle on Big Tobacco, Takes a Lot of Calls**\
-`Jeffrey Wigand, who took on Big Tobacco, counsels insiders who think they have a story about wrongdoing. There are quite a few of them.`\
-https://www.nytimes.com/2026/11/07/technology/whistle-blowers-jeffrey-wigand.html
 
