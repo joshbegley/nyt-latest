@@ -1,3 +1,7 @@
+**Researchers Identify Suspicious Activity on Kalshi and Polymarket Before Times/Siena Poll Release**\
+`A trader placed well-timed bets on Polymarket and Kalshi in two Senate races. It was unclear if the person had access to inside information or simply made good trades.`\
+https://www.nytimes.com/2026/11/06/technology/kalshi-polymarket-nyt-siena-poll-bets.html
+
 **Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
