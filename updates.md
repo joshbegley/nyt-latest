@@ -1,3 +1,7 @@
+**Kansans Elect Democrat as Attorney General, Voting Out Kris Kobach**\
+`Chris Mann, a former police officer and prosecutor, defeated Mr. Kobach, a Republican who helped elevate concerns about election fraud to national prominence.`\
+https://www.nytimes.com/2026/11/06/us/kansas-attorney-general-kobach-mann.html
+
 **In Elevating Stephen Miller, Trump Doubles Down on Hard-Line Agenda**\
 `The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term, as well as an aggressive approach to executive power.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
