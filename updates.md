@@ -1,3 +1,7 @@
+**At Least 6 Dead in Poland After Gunman Opens Fire in Krakow, Police Say**\
+`The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
+https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
+
 **A ‘Legend of Zelda’ Game Is Reborn and ’90s Nostalgia Fans Are All In**\
 `Nintendo’s “Legend of Zelda: Ocarina of Time” was released in 1998. Now, its remake has some fans giddily reliving their childhoods.`\
 https://www.nytimes.com/2026/11/07/business/media/zelda-ocarina-of-time-remake-nintendo.html
