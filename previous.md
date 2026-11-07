@@ -1,3 +1,15 @@
+**U.S. Homeless Population Had Record Drop in 2025**\
+`The Department of Housing and Urban Development credited President Trump, while homeless advocacy groups said that so-called Housing First policies of his predecessors played a part.`\
+https://www.nytimes.com/2026/11/06/us/politics/homeless-population-drop.html
+
+**Trump’s D.C. Construction Blitz May Be About to Get Tougher**\
+`The president has bulldozed through obstacles as he has sought to remake the face of Washington. But newly empowered Democrats and angry judges are setting up a high-stakes showdown.`\
+https://www.nytimes.com/2026/11/06/us/politics/trump-construction-projects-washington.html
+
+**How ‘Talafreako’ Became a Selling Point**\
+`Insult politics are out. Ken Paxton’s attacks on James Talarico were “digging his political grave,” the columnist David French argues. In a recent live episode of “The Opinions,” French describes how some conservative evangelicals in Texas privately told him they planned to vote for Talarico — and why Republican attacks weren’t resonating with voters.`\
+https://www.nytimes.com/video/opinion/100000011268014/how-talafreako-became-a-selling-point.html
+
 **Brilliant Stuff**\
 `Adrian Johnson’s latest themeless puzzle is out of this world.`\
 https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
 **Hegseth Faces Impeachment Effort and Bipartisan Scrutiny After Midterm Elections**\
 `A looming impeachment push could put President Trump’s polarizing defense secretary in a standoff with Democrats and Republicans.`\
 https://www.nytimes.com/2026/11/06/us/politics/hegseth-trump-iran-war.html
-
-**The Stock Market Can Be Volatile. Here’s How to Stay Calm.**\
-`Feeling a bit wobbly? Here are four things to consider that might provide some peace of mind.`\
-https://www.nytimes.com/2026/11/06/your-money/stock-market-volatility-investments.html
-
-**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
-`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
-https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
-
-**F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
-`Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic at the nation’s air traffic control centers.`\
-https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
 

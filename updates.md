@@ -1,3 +1,15 @@
+**U.S. Homeless Population Had Record Drop in 2025**\
+`The Department of Housing and Urban Development credited President Trump, while homeless advocacy groups said that so-called Housing First policies of his predecessors played a part.`\
+https://www.nytimes.com/2026/11/06/us/politics/homeless-population-drop.html
+
+**Trump’s D.C. Construction Blitz May Be About to Get Tougher**\
+`The president has bulldozed through obstacles as he has sought to remake the face of Washington. But newly empowered Democrats and angry judges are setting up a high-stakes showdown.`\
+https://www.nytimes.com/2026/11/06/us/politics/trump-construction-projects-washington.html
+
+**How ‘Talafreako’ Became a Selling Point**\
+`Insult politics are out. Ken Paxton’s attacks on James Talarico were “digging his political grave,” the columnist David French argues. In a recent live episode of “The Opinions,” French describes how some conservative evangelicals in Texas privately told him they planned to vote for Talarico — and why Republican attacks weren’t resonating with voters.`\
+https://www.nytimes.com/video/opinion/100000011268014/how-talafreako-became-a-selling-point.html
+
 **Brilliant Stuff**\
 `Adrian Johnson’s latest themeless puzzle is out of this world.`\
 https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
