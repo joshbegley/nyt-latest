@@ -1,3 +1,7 @@
+**Mixed Results**\
+`Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
+https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
+
 **Democrats Can’t Whiff This. The Stakes Are Too High.**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html

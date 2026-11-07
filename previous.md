@@ -1,3 +1,7 @@
+**Mixed Results**\
+`Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
+https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
+
 **NASA Is Seeking Its Next Class of Astronauts**\
 `The new space travelers will most likely be trained for missions to the moon and space stations in low-Earth orbit. Applications are due Dec. 3.`\
 https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**We the People Finally Turn on Trump**\
-`A Norma Desmond crash-out to end all crash-outs.`\
-https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
-
 **Democrats Can’t Whiff This. The Stakes Are Too High.**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 
 **‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/us/politics/asu-student-maricopa-county-clerk
 **They Didn’t Vote for Democrats. But They’ll Pray for Them.**\
 `In deep-red Texas, conservatives are trying to make sense of what just happened to their longtime Republican stronghold. We visited a men’s bible study as they gathered for the first time since the election.`\
 https://www.nytimes.com/video/us/elections/100000011264590/they-didnt-vote-for-democrats-but-theyll-pray-for-them.html
-
-**Bomb Threats and Cyberattacks in Europe Inject Unease Into Everyday Life**\
-`A cyberattack on supermarket fridges, bomb threats to planes and software vulnerabilities have Europe on edge as government officials encourage resilience and stockpiling.`\
-https://www.nytimes.com/2026/11/07/world/europe/bomb-threats-cyberattacks-europe-uncertainty.html
 
