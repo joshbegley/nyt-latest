@@ -1,3 +1,7 @@
+**In Elevating Stephen Miller, Trump Signals He Has No Plan to Alter Approach**\
+`The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
+
 **See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
 `See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
 https://www.nytimes.com/interactive/2026/11/06/us/elections/results-senate-governor-house-flips.html
