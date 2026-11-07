@@ -190,7 +190,7 @@ https://www.nytimes.com/2026/11/07/style/husbands-suits-nicolas-gabard-paris.htm
 `Incoming senators are nearly 15 years younger than departing ones, on average. But the chamber’s overall age isn’t shifting much.`\
 https://www.nytimes.com/2026/11/07/upshot/senators-midterm-elections-age.html
 
-**How Israel’s Ex-Army Chief’s Could Oust Netanyahu**\
+**How Israel’s Ex-Army Chief Could Oust Netanyahu**\
 `Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
 
