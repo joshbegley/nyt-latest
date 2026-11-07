@@ -1,3 +1,7 @@
+**Brilliant Stuff**\
+`Adrian Johnson’s latest themeless puzzle is out of this world.`\
+https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
+
 **Researchers Identify Suspicious Activity on Kalshi and Polymarket Before Times/Siena Poll Release**\
 `A trader placed well-timed bets on Polymarket and Kalshi in two Senate races. It was unclear if the person had access to inside information or simply made good trades.`\
 https://www.nytimes.com/2026/11/06/technology/kalshi-polymarket-nyt-siena-poll-bets.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/arts/dance/paul-taylor-company-premieres-laur
 **F.A.A. to Phase Out Floppy Disks in Air Traffic Control Towers**\
 `Decades after the computer industry moved on, federal officials plan to finally ground the once-vaunted tech relic at the nation’s air traffic control centers.`\
 https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
-
-**Susie Wiles, Trump’s Chief of Staff, Is Accused of Blocking Health Policies to Attract Donations**\
-`In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
-https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
 

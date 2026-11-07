@@ -1,3 +1,7 @@
+**Brilliant Stuff**\
+`Adrian Johnson’s latest themeless puzzle is out of this world.`\
+https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
+
 **Researchers Identify Suspicious Activity on Kalshi and Polymarket Before Times/Siena Poll Release**\
 `A trader placed well-timed bets on Polymarket and Kalshi in two Senate races. It was unclear if the person had access to inside information or simply made good trades.`\
 https://www.nytimes.com/2026/11/06/technology/kalshi-polymarket-nyt-siena-poll-bets.html
