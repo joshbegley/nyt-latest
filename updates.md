@@ -1,3 +1,7 @@
+**Red Flag Warnings for Fire Are In Place Near Los Angeles on Saturday**\
+`Temperatures could climb close to 90 around Los Angeles.`\
+https://www.nytimes.com/2026/11/07/weather/la-heat-fire-temperature.html
+
 **Democrats Need a Bold Governing Agenda**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
