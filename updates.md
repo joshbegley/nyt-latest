@@ -1,3 +1,7 @@
+**A Year in Money: Four People Share How They Spend, Save and Pay Off Debt**\
+`For a year, The New York Times followed along as they tried to get a handle on their money. It wasn’t easy for any of them.`\
+https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-money.html
+
 **Mixed Results**\
 `Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
 https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html

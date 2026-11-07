@@ -1,3 +1,7 @@
+**A Year in Money: Four People Share How They Spend, Save and Pay Off Debt**\
+`For a year, The New York Times followed along as they tried to get a handle on their money. It wasn’t easy for any of them.`\
+https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-money.html
+
 **Mixed Results**\
 `Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
 https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/us/elections/north-carolina-republicans.html
 **He’ll Be Clerk of One of the Country’s Largest Counties. He’s 19.**\
 `Sebastian Matta, a sophomore at Arizona State University, was elected on Tuesday as Superior Court clerk in Maricopa County, Ariz.`\
 https://www.nytimes.com/2026/11/07/us/politics/asu-student-maricopa-county-clerk-election.html
-
-**They Didn’t Vote for Democrats. But They’ll Pray for Them.**\
-`In deep-red Texas, conservatives are trying to make sense of what just happened to their longtime Republican stronghold. We visited a men’s bible study as they gathered for the first time since the election.`\
-https://www.nytimes.com/video/us/elections/100000011264590/they-didnt-vote-for-democrats-but-theyll-pray-for-them.html
 
