@@ -1,3 +1,7 @@
+**Gunman Kills at Least 6 in Poland, Police Say**\
+`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, police said.`\
+https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
+
 **Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
 `On social media, the president offered the now-vacant job of White House press secretary to Dana White, the organization’s C.E.O., and told him to bring along fighters as aides.`\
 https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secretary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/world/europe/bomb-threats-cyberattacks-europe
 **Mysterious Request Scrambles Major Supreme Court Gun Case Against Cook County**\
 `In an unusual move, the lead plaintiff in one of two cases challenging semiautomatic weapons bans has asked to drop out weeks before the cases are heard.`\
 https://www.nytimes.com/2026/11/07/us/politics/supreme-court-guns-plaintiff.html
-
-**Democrats, Newly Ascendant, Begin a Fight to Shape the Party’s Future**\
-`At a moment of opportunity for the party, its long-feuding factions are seizing on the midterm results to make their case for tacking to the center or to the left.`\
-https://www.nytimes.com/2026/11/07/us/politics/democrats-midterms-2028-presidential-race.html
 

@@ -1,3 +1,7 @@
+**Gunman Kills at Least 6 in Poland, Police Say**\
+`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, police said.`\
+https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
+
 **Eisenkot, Netanyahu Rival and Opposition Leader, Tapped to Try to Form Government**\
 `Gadi Eisenkot, a former military chief, hopes to succeed Benjamin Netanyahu as prime minister by cobbling together a coalition after an inconclusive election.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/israel-eisenkot-government.html
