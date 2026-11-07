@@ -19,7 +19,7 @@ https://www.nytimes.com/video/us/politics/100000011269719/trump-stephen-miller-c
 https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
 
 **Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
-`The arrest of Sayed Mohassib, 27, ends a weeklong search for the attacker. The jogger, Katie Suarez, had been on a ventilator for days following the attack.`\
+`The arrest of Sayed Mohassib, who had worked briefly as a police officer, ends a weeklong search. The jogger, Katie Suarez, had been on a ventilator for days after the attack.`\
 https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
 
 **Why White Working-Class Voters Shifted Left in the Midterms**\

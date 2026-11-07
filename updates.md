@@ -1,3 +1,7 @@
+**Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
+`The arrest of Sayed Mohassib, who had worked briefly as a police officer, ends a weeklong search. The jogger, Katie Suarez, had been on a ventilator for days after the attack.`\
+https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
+
 **At Least 6 Dead in Poland After Gunman Opens Fire in Krakow, Police Say**\
 `The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
 https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
