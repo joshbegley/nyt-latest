@@ -1,3 +1,7 @@
+**Why Israel’s Ex-Army Chief’s Next Mission Could Be Mission Impossible**\
+`Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
+
 **Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
 `Preliminary results showed no clear front-runner after an election that was dominated by economic concerns.`\
 https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
