@@ -1,3 +1,7 @@
+**Trump Appoints Stephen Miller as New Chief of Staff**\
+`Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Mr. Miller is the hard-line policy adviser responsible for many of Mr. Trump’s most aggressive immigration policies.`\
+https://www.nytimes.com/video/us/politics/100000011269719/trump-appoints-stephen-miller-new-chief-of-staff.html
+
 **For Stephen Miller, Election Defeat Is No Reason to Back Down**\
 `The president’s new chief of staff has already demonstrated his intention to forge ahead with an agenda that many voters rejected.`\
 https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/world/europe/ukraine-russia-war-operation-viv
 **Inside ‘American Hagwon’ Author Min Jin Lee’s Harlem Home**\
 `The ‘American Hagwon’ author’s home features floor-to-ceiling bookshelves and seven fireplaces.`\
 https://www.nytimes.com/interactive/2026/11/07/realestate/inside-author-min-jin-lees-treasure-filled-harlem-townhouse.html
-
-**The Dad Dilemma: Which Memories to Delete?**\
-`Our cartoonist discovered that even the everyday photos of his 7-year-old daughter’s childhood were agonizing to delete.`\
-https://www.nytimes.com/2026/11/07/arts/the-dad-dilemma-which-memories-to-delete.html
 

@@ -1,3 +1,11 @@
+**For Stephen Miller, Election Defeat Is No Reason to Back Down**\
+`The president’s new chief of staff has already demonstrated his intention to forge ahead with an agenda that many voters rejected.`\
+https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
+
+**Brooklyn Jogger Dies. Man Charged With Murder in Her Stabbing.**\
+`The arrest of Sayed Mohassib, 27, ends a weeklong search for Katie Suarez’s attacker. Ms. Suarez had been on a ventilator for days following the attack.`\
+https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
+
 **Why White Working-Class Voters Shifted Left in the Midterms**\
 `White voters without a college degree, a cornerstone of the Republican base in the Trump era, moved left this year. Some cited high prices, the war with Iran and more in their decisions.`\
 https://www.nytimes.com/2026/11/07/us/politics/white-working-class-voters-midterms-democrats-trump.html
