@@ -1,3 +1,7 @@
+**How the Democrats Did It**\
+`Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
+https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
+
 **Americans Voted Against the ‘Depravity Economy’**\
 `Technology is increasingly a moral issue — and a bipartisan one.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html

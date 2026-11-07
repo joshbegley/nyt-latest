@@ -1,3 +1,7 @@
+**Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
+`At least 44 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
+https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
+
 **How the Democrats Did It**\
 `Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
 https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
@@ -26,13 +30,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**We the People Finally Turn on Trump**\
-`A Norma Desmond crash-out to end all crash-outs.`\
-https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
-
 **Democrats Won Big. What’s Next?**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-governme
 **Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
 `A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
 https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
-
-**NYT Spelling Bee Answers for November 7, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/07/crosswords/spelling-bee-forum.html
 
