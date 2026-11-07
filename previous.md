@@ -1,3 +1,7 @@
+**Father Calls Daughter, the Co-Pilot Killed in Florida Crash, ‘a Hero’**\
+`Allan Filgueiras said during a news conference that his daughter, Nathalia, 20, fought to the final seconds as a private jet carrying nine people crashed near Palm Beach, Fla.`\
+https://www.nytimes.com/2026/11/07/us/florida-jet-crash-father-pilot.html
+
 **Judge Taps Lawyer to Investigate Trump Administration’s Conduct in Golf Course Case**\
 `Judge Ana C. Reyes wrote that she intended to pick a former U.S. attorney in Washington to investigate whether officials misled the court about changes to the East Potomac Golf Links.`\
 https://www.nytimes.com/2026/11/07/us/politics/washington-judge-special-master-trump-golf.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.htm
 `With Tom Verlaine, he led the dual-guitar attack in a band that brought fiery yet sophisticated art rock to the New York City punk scene of the 1970s. He was 75.`\
 https://www.nytimes.com/2026/11/07/arts/music/richard-lloyd-dead.html
 
-**Schumer Is on Track to Remain Democratic Leader in Senate After Election Blowout, Aides Say**\
+**Chuck Schumer Is on Track to Become Senate Majority Leader After Election Blowout**\
 `The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
 https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/us/turning-point-arizona-midterms.html
 **‘It Gave Me a Lot of Anxiety’: Alex Katz on Sharing the Room With Matisse**\
 `At 99, the American painter confronts his lifelong reverence for the modern French master in a rare double billing at the Matisse Museum.`\
 https://www.nytimes.com/2026/11/07/arts/design/alex-katz-matisse.html
-
-**My Real Estate Agent Is Too Cozy for Comfort. What Can I Do?**\
-`Investing in real estate is a major financial decision demanding an agent who best represents you. But if they aren’t the right fit, there are steps you can take.`\
-https://www.nytimes.com/2026/11/07/realestate/my-real-estate-agent-is-too-cozy-for-comfort-what-can-i-do.html
 

@@ -1,3 +1,11 @@
+**Father Calls Daughter, the Co-Pilot Killed in Florida Crash, ‘a Hero’**\
+`Allan Filgueiras said during a news conference that his daughter, Nathalia, 20, fought to the final seconds as a private jet carrying nine people crashed near Palm Beach, Fla.`\
+https://www.nytimes.com/2026/11/07/us/florida-jet-crash-father-pilot.html
+
+**Chuck Schumer Is on Track to Become Senate Majority Leader After Election Blowout**\
+`The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
+https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
+
 **Judge Taps Lawyer to Investigate Trump Administration’s Conduct in Golf Course Case**\
 `Judge Ana C. Reyes wrote that she intended to pick a former U.S. attorney in Washington to investigate whether officials misled the court about changes to the East Potomac Golf Links.`\
 https://www.nytimes.com/2026/11/07/us/politics/washington-judge-special-master-trump-golf.html
