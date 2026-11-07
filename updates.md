@@ -1,3 +1,7 @@
+**What Michelle Goldberg Learned From the Most Exciting Democrats**\
+`Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
+https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
+
 **This Israeli Vows to Oust Netanyahu. Here’s How.**\
 `Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
