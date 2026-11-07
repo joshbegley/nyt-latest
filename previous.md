@@ -1,3 +1,7 @@
+**Have Yourself a Delicious Little Thanksgiving**\
+`Easy sheet-pan dishes (crispy gnocchi with sausage and broccoli) and smaller options (roast chicken with plums) for a cozy dinner with friends.`\
+https://www.nytimes.com/2026/11/07/dining/have-yourself-a-delicious-little-thanksgiving.html
+
 **Gunman Opens Fire in Krakow, Killing at Least 5, Polish Police Say**\
 `The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
 https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/style/illeana-douglas-the-women-cat-fight.htm
 **The Artisan Transforming Broken Glass Into Something Beautiful**\
 `After two decades at luxury houses including Hermès, Sophie Toporkoff opened a stained glass studio and introduces some of her design sensibilities to the craft.`\
 https://www.nytimes.com/2026/11/07/arts/the-artisan-transforming-broken-glass-into-something-beautiful.html
-
-**5 Nutrients You May Not Be Getting Enough Of**\
-`And the signs you may be falling short.`\
-https://www.nytimes.com/2026/11/07/well/eat/nutrient-inadequacy-signs.html
 
