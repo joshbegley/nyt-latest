@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.htm
 `With Tom Verlaine, he led the dual-guitar attack in a band that brought fiery yet sophisticated art rock to the New York City punk scene of the 1970s. He was 75.`\
 https://www.nytimes.com/2026/11/07/arts/music/richard-lloyd-dead.html
 
-**Schumer Lifts His Senate Standing With an Election Blowout**\
+**Schumer Is on Track to Remain Democratic Leader in Senate After Election Blowout, Aides Say**\
 `The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
 https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
 

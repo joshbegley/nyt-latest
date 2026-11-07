@@ -1,3 +1,7 @@
+**Schumer Is on Track to Remain Democratic Leader in Senate After Election Blowout, Aides Say**\
+`The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
+https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
+
 **Justice Department Intervenes in Planned Parenthood Lawsuit in Texas**\
 `The Justice Department’s intervention in the Texas lawsuit could signal that the administration is ready to challenge newly elected Democrats in state offices.`\
 https://www.nytimes.com/2026/11/07/us/politics/doj-texas-fraud-lawsuit-planned-parenthood.html
