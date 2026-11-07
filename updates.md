@@ -1,3 +1,11 @@
+**More Than 50 Killed in Yemen in One of the Deadliest 24 Hours of the War**\
+`Strikes show the heavy toll since fighting between the Houthis and the Saudi-backed government reignited in August, with civilians paying a heavy price.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/more-than-50-killed-in-yemen.html
+
+**A Look Inside Jury Selection in U.S.S. Cole Bombing Case**\
+`More U.S. military officers are being mobilized late next week because the original pool in the death penalty case is being depleted.`\
+https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.html
+
 **Never Get High on Your Own Supply**\
 `Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html

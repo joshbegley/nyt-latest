@@ -1,8 +1,12 @@
+**More Than 50 Killed in Yemen in One of the Deadliest 24 Hours of the War**\
+`Strikes show the heavy toll since fighting between the Houthis and the Saudi-backed government reignited in August, with civilians paying a heavy price.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/more-than-50-killed-in-yemen.html
+
 **Never Get High on Your Own Supply**\
 `Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
 
-**First Three Jurors Picked, 26 Years After the Bombing of the U.S.S. Cole**\
+**A Look Inside Jury Selection in U.S.S. Cole Bombing Case**\
 `More U.S. military officers are being mobilized late next week because the original pool in the death penalty case is being depleted.`\
 https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/style/holiday-gift-shopping-tips-priya-parker
 **Jeffrey Wigand, Who Blew the Whistle on Big Tobacco, Takes a Lot of Calls**\
 `Jeffrey Wigand, who took on Big Tobacco, counsels insiders who think they have a story about wrongdoing. There are quite a few of them.`\
 https://www.nytimes.com/2026/11/07/technology/whistle-blowers-jeffrey-wigand.html
-
-**Book Review: ‘The Savage Mind,’ by David Treuer**\
-`David Treuer’s new book is a letter to his children about the savage history of our national character.`\
-https://www.nytimes.com/2026/11/07/books/review/david-treuer-savage-mind.html
 
