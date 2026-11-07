@@ -1,3 +1,7 @@
+**Democrats Can’t Whiff This. The Stakes Are Too High.**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
 **Republicans Got Ruinously High on Their Own Supply**\
 `Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
