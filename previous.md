@@ -1,3 +1,11 @@
+**Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
+`On social media, the president offered the now-vacant job of White House press secretary to Dana White, the organization’s C.E.O., and told him to bring along fighters as aides.`\
+https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secretary.html
+
+**Alien Throne, a Unique Rock Formation in New Mexico, Collapses Amid Heavy Rains**\
+`The oddly shaped 15-foot-tall pillar collapsed after a torrent of rain. It was the second loss of a striking rock formation in the region in less than a month.`\
+https://www.nytimes.com/2026/11/07/us/alien-throne-king-of-wings-new-mexico.html
+
 **Father Calls Daughter, the Co-Pilot Killed in Florida Crash, ‘a Hero’**\
 `Allan Filgueiras said during a news conference that his daughter, Nathalia, 20, fought to the final seconds as a private jet carrying nine people crashed near Palm Beach, Fla.`\
 https://www.nytimes.com/2026/11/07/us/florida-jet-crash-father-pilot.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/07/us/politics/supreme-court-guns-plaintiff.html
 **Democrats, Newly Ascendant, Begin a Fight to Shape the Party’s Future**\
 `At a moment of opportunity for the party, its long-feuding factions are seizing on the midterm results to make their case for tacking to the center or to the left.`\
 https://www.nytimes.com/2026/11/07/us/politics/democrats-midterms-2028-presidential-race.html
-
-**Turning Point Bet on the Midterms and Lost. Some Republicans Are Furious.**\
-`Candidates backed by the right-wing activist group did not fare well, and the results set off recriminations from establishment Republicans.`\
-https://www.nytimes.com/2026/11/07/us/turning-point-arizona-midterms.html
-
-**‘It Gave Me a Lot of Anxiety’: Alex Katz on Sharing the Room With Matisse**\
-`At 99, the American painter confronts his lifelong reverence for the modern French master in a rare double billing at the Matisse Museum.`\
-https://www.nytimes.com/2026/11/07/arts/design/alex-katz-matisse.html
 

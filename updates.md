@@ -1,3 +1,11 @@
+**Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
+`On social media, the president offered the now-vacant job of White House press secretary to Dana White, the organization’s C.E.O., and told him to bring along fighters as aides.`\
+https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secretary.html
+
+**Alien Throne, a Unique Rock Formation in New Mexico, Collapses Amid Heavy Rains**\
+`The oddly shaped 15-foot-tall pillar collapsed after a torrent of rain. It was the second loss of a striking rock formation in the region in less than a month.`\
+https://www.nytimes.com/2026/11/07/us/alien-throne-king-of-wings-new-mexico.html
+
 **Father Calls Daughter, the Co-Pilot Killed in Florida Crash, ‘a Hero’**\
 `Allan Filgueiras said during a news conference that his daughter, Nathalia, 20, fought to the final seconds as a private jet carrying nine people crashed near Palm Beach, Fla.`\
 https://www.nytimes.com/2026/11/07/us/florida-jet-crash-father-pilot.html
