@@ -1,3 +1,15 @@
+**Susie Wiles Is the Latest Powerful Woman to Exit the Trump Administration**\
+`A wave of high-ranking women have left the Trump administration in the past year. Many were replaced by men.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-trump-women.html
+
+**Paraguay’s President Removed and Arrested Over Financial Crisis**\
+`Santiago Peña was impeached, removed from office and placed under house arrest after a bank with close ties to his administration went under.`\
+https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
+
+**Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
+`Nearly twice as many people in New York City died in fires this year compared with the same period in 2025.`\
+https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
+
 **Suffield Academy Shaken by I.R.S. Investigation Into Its Leader**\
 `Suffield Academy placed its longtime head of school, Charlie Cahn III, on leave last month after learning that he was the subject of a federal investigation.`\
 https://www.nytimes.com/2026/11/06/nyregion/suffield-academy-charlie-cahn-scandal.html
