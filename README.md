@@ -1,3 +1,7 @@
+**Susie Wiles Is the Latest Powerful Woman to Exit the Trump Administration**\
+`A wave of high-ranking women have left the Trump administration in the past year. Many were replaced by men.`\
+https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-trump-women.html
+
 **Suffield Academy Shaken by I.R.S. Investigation Into Its Leader**\
 `Suffield Academy placed its longtime head of school, Charlie Cahn III, on leave last month after learning that he was the subject of a federal investigation.`\
 https://www.nytimes.com/2026/11/06/nyregion/suffield-academy-charlie-cahn-scandal.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/11/06/us/politics/texas-democrats-takeover-what-now
 https://www.nytimes.com/2026/11/06/arts/music/macklemore-says-us-arenas-wont-book-his-free-palestine-tour.html
 
 **Paraguay’s President Removed and Arrested Over Financial Crisis**\
-`Santiago Peña was impeached, removed from office and arrested at his residence after a bank with close ties to his administration went under.`\
+`Santiago Peña was impeached, removed from office and placed under house arrest after a bank with close ties to his administration went under.`\
 https://www.nytimes.com/2026/11/06/world/americas/paraguay-president-removed-ueno.html
 
 **New Leaders Emerge for 2028**\
@@ -83,7 +87,7 @@ https://www.nytimes.com/2026/11/06/obituaries/sinclair-clark-overlooked.html
 https://www.nytimes.com/video/world/africa/100000011267952/kenya-cult-leader-paul-mackenzie-sentence.html
 
 **Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
-`More than twice as many people in New York City died in fires this year compared with the same period in 2025.`\
+`Nearly twice as many people in New York City died in fires this year compared with the same period in 2025.`\
 https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
 
 **Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republica
 **How Dominic Fike Fell Back in Love With Music**\
 `On ‘Popcast,” the musician and actor Dominic Fike, whose new album “How To Quit Smoking” is out now, talks about how taking a different approach to the project helped him let go of some of his unhealthy impulses and fall in love with making music again.`\
 https://www.nytimes.com/video/podcasts/100000011260460/how-dominic-fike-fell-back-in-love-with-music.html
-
-**Big Money’s Playbook Finally Failed**\
-`Elon Musk spent nearly half a billion dollars backing Republican candidates in the midterm elections. A wave of Democratic wins exposed the limits of big money’s influence, argues the economist Natasha Sarin on “The Opinions.” But the policy expert Elizabeth Wilkins counters that this is a moment to strengthen democratic institutions against big money.`\
-https://www.nytimes.com/video/opinion/100000011267743/big-moneys-playbook-finally-failed.html
 
