@@ -1,4 +1,8 @@
 **South Carolina Republicans Fracture Over Stunning Defeat of Darline Graham**\
+`Some blamed President Trump for backing the novice candidate after the death of her brother, Lindsey Graham. Others accused Mr. Graham’s team of pushing her to run despite her lack of experience.`\
+https://www.nytimes.com/2026/11/07/us/politics/darline-graham-loss-blame.html
+
+**South Carolina Republicans Fracture Over Stunning Defeat of Darline Graham**\
 `Some blamed President Trump for backing the novice candidate after the death of her brother, Lindsey Graham. Others accused Ms. Graham’s team of pushing her to run despite her lack of experience.`\
 https://www.nytimes.com/2026/11/07/us/politics/darline-graham-loss-blame.html
 
