@@ -1,3 +1,7 @@
+**Children’s Problems Today Go Beyond the Screens**\
+`Readers discuss a guest essay by a child psychiatrist.`\
+https://www.nytimes.com/2026/11/07/opinion/children-screens.html
+
 **I Gave Our Viral Cranberry Tart a Makeover**\
 `Vaughn Vreeland came up with two new variations: portable bars and a giant crème brûlée.`\
 https://www.nytimes.com/2026/11/07/dining/i-gave-our-viral-cranberry-tart-a-makeover.html
