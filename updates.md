@@ -1,3 +1,23 @@
+**Can I Have an A.I. Chatbot Field My Mother’s Endless Complaints?**\
+`It could serve as an infinitely patient sounding board and source of practical help.`\
+https://www.nytimes.com/2026/11/07/magazine/chatbot-elderly-mother-ethics.html
+
+**Today’s Wordle Hints for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/wordle-review-1968.html
+
+**America’s Rebuke of Trump Won’t Swiftly Restore Canada-U.S. Harmony**\
+`While U.S. voters largely oppose the trade war with Canada, many Democrats and their supporters have protectionist leanings.`\
+https://www.nytimes.com/2026/11/07/world/canada/carney-trump-canada-us-relations-midterm-elections.html
+
+**NYT Strands Hints for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/strands-sidekick-980.html
+
+**NYT Connections Answers for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/connections-companion-1246.html
+
 **Despite All, Daylight Saving Time Is Still on Trump’s Mind**\
 `Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
 https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html

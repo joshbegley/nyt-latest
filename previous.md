@@ -1,3 +1,23 @@
+**Can I Have an A.I. Chatbot Field My Mother’s Endless Complaints?**\
+`It could serve as an infinitely patient sounding board and source of practical help.`\
+https://www.nytimes.com/2026/11/07/magazine/chatbot-elderly-mother-ethics.html
+
+**Today’s Wordle Hints for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/wordle-review-1968.html
+
+**America’s Rebuke of Trump Won’t Swiftly Restore Canada-U.S. Harmony**\
+`While U.S. voters largely oppose the trade war with Canada, many Democrats and their supporters have protectionist leanings.`\
+https://www.nytimes.com/2026/11/07/world/canada/carney-trump-canada-us-relations-midterm-elections.html
+
+**NYT Strands Hints for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/strands-sidekick-980.html
+
+**NYT Connections Answers for November 8, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/crosswords/connections-companion-1246.html
+
 **Despite All, Daylight Saving Time Is Still on Trump’s Mind**\
 `Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
 https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/opinion/100000011268014/how-talafreako-became-a-se
 **Brilliant Stuff**\
 `Adrian Johnson’s latest themeless puzzle is out of this world.`\
 https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
-
-**Researchers Identify Suspicious Activity on Kalshi and Polymarket Before Times/Siena Poll Release**\
-`A trader placed well-timed bets on Polymarket and Kalshi in two Senate races. It was unclear if the person had access to inside information or simply made good trades.`\
-https://www.nytimes.com/2026/11/06/technology/kalshi-polymarket-nyt-siena-poll-bets.html
-
-**Kansans Elect Democrat as Attorney General, Voting Out Kris Kobach**\
-`Chris Mann, a former police officer and prosecutor, defeated Mr. Kobach, a Republican who helped elevate concerns about election fraud to national prominence.`\
-https://www.nytimes.com/2026/11/06/us/kansas-attorney-general-kobach-mann.html
-
-**Susie Wiles Is the Latest Powerful Woman to Exit the Trump Administration**\
-`A wave of high-ranking women have left the Trump administration in the past year. Many were replaced by men.`\
-https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-trump-women.html
-
-**Suffield Academy Shaken by I.R.S. Investigation Into Its Leader**\
-`Suffield Academy placed its longtime head of school, Charlie Cahn III, on leave last month after learning that he was the subject of a federal investigation.`\
-https://www.nytimes.com/2026/11/06/nyregion/suffield-academy-charlie-cahn-scandal.html
-
-**Inside the Wardrobe of Truman Capote’s Nicest Swan**\
-`A new museum exhibition gathers some of the elegant dresses, but also the sneakers and shorts, of the American socialite, equestrian and writer C.Z. Guest.`\
-https://www.nytimes.com/2026/11/06/t-magazine/truman-capotes-nicest-swan-cz-guest.html
 
