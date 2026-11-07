@@ -1,3 +1,23 @@
+**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
+`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
+https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
+
+**King Charles Was Umbrella-Less but in His Element on Caribbean Tour**\
+`In his twilight years, the British monarch is embracing his role as a global statesman, even when that involves heavy rain and difficult questions about his nation’s history.`\
+https://www.nytimes.com/2026/11/07/world/europe/king-charles-chogm-umbrella-rain-diplomacy.html
+
+**Quote of the Day: Glass Towers Offer Nice Views, but Residents Bake in the Sun**\
+`Quotation of the Day for Saturday, November 7, 2026.`\
+https://www.nytimes.com/2026/11/07/pageoneplus/quote-of-the-day-glass-towers-offer-nice-views-but-residents-bake-in-the-sun.html
+
+**Another Day of Protests Is Planned in France’s Autumn of Discontent**\
+`Two days after a general strike and huge demonstrations, students and workers aim to take to the streets again on Saturday.`\
+https://www.nytimes.com/2026/11/07/world/europe/france-fourth-saturday-protests.html
+
+**From the Front Page: Bolsheviks Seize Power in Russia on Nov. 7, 1917**\
+`Vladimir Lenin’s forces overthrew Alexander Kerensky’s provisional government in what became known as the October Revolution, which ultimately led to the creation of the Soviet Union.`\
+https://www.nytimes.com/2026/11/07/learning/from-the-front-page-bolsheviks-seize-power-in-russia-on-nov-7-1917.html
+
 **2 Skydivers Die After Midair Collision in Southern California**\
 `The skydivers’ parachutes opened but became entangled after they collided, according to the company hosting the event.`\
 https://www.nytimes.com/2026/11/06/us/california-lake-elsinore-skydiving-deaths.html
