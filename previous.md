@@ -1,3 +1,7 @@
+**I Gave Our Viral Cranberry Tart a Makeover**\
+`Vaughn Vreeland came up with two new variations: portable bars and a giant crème brûlée.`\
+https://www.nytimes.com/2026/11/07/dining/i-gave-our-viral-cranberry-tart-a-makeover.html
+
 **How Cardiologists’ High Hopes for Two Drugs Were Dashed**\
 `By every measure, the drugs were no better than placebos, full data revealed on Saturday. Was it the fault of the design of the studies, or our very hypotheses about heart disease?`\
 https://www.nytimes.com/2026/11/07/science/heart-drugs-failed-novartis-novo-nordisk.html
@@ -46,13 +50,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Need a Bold Governing Agenda**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Need a Bold Governing Agenda**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/well/eat/nutrient-inadequacy-signs.html
 **Inside the Nightclub Sheltering Haitians From Violent Gangs**\
 `Club International was once a popular music venue in Port-au-Prince. Now it’s a makeshift shelter for hundreds of Haitian families fleeing gang violence, and the club’s owner wants them out.`\
 https://www.nytimes.com/video/world/americas/100000011168848/haiti-nightclub-shelter-gang-violence.html
-
-**Ceramic Bouquets Will Far Outlast the Wedding Day**\
-`A growing group of brides are forgoing fresh flowers for ceramic pieces that are built to outlast the wedding day. And they’re not cheap.`\
-https://www.nytimes.com/2026/11/07/style/ceramic-wedding-bouquets-bridal.html
 

@@ -1,3 +1,7 @@
+**I Gave Our Viral Cranberry Tart a Makeover**\
+`Vaughn Vreeland came up with two new variations: portable bars and a giant crème brûlée.`\
+https://www.nytimes.com/2026/11/07/dining/i-gave-our-viral-cranberry-tart-a-makeover.html
+
 **How Cardiologists’ High Hopes for Two Drugs Were Dashed**\
 `By every measure, the drugs were no better than placebos, full data revealed on Saturday. Was it the fault of the design of the studies, or our very hypotheses about heart disease?`\
 https://www.nytimes.com/2026/11/07/science/heart-drugs-failed-novartis-novo-nordisk.html
