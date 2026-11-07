@@ -158,8 +158,8 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
-**Trump Elevates Stephen Miller to Chief of Staff in Post-Election Shake-Up**\
-`Mr. Miller will replace Susie Wiles, the highest-ranking administration official to exit in the wake of the midterms, in which Republicans lost ground across the country.`\
+**In Elevating Stephen Miller, Trump Signals He Has No Plan to Alter Approach**\
+`The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
 **They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
