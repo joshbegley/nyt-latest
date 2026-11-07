@@ -1,3 +1,7 @@
+**Red Flag Warnings for Fire Are In Place Near Los Angeles on Saturday**\
+`Temperatures could climb close to 90 around Los Angeles.`\
+https://www.nytimes.com/2026/11/07/weather/la-heat-fire-temperature.html
+
 **Law Firms Have Malpractice Insurance. Should Their A.I. Agents?**\
 `Crosby, an A.I. law firm, bought it for them. The move speaks to a nascent gap in coverage as major insurers grapple with risks related to artificial intelligence.`\
 https://www.nytimes.com/2026/11/07/business/dealbook/crosby-ai-agent-liability-malpractice-insurance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/style/husbands-suits-nicolas-gabard-paris.htm
 **With So Much New Blood in the Senate, the Average Age Is Falling. To 63.**\
 `Incoming senators are nearly 15 years younger than departing ones, on average. But the chamber’s overall age isn’t shifting much.`\
 https://www.nytimes.com/2026/11/07/upshot/senators-midterm-elections-age.html
-
-**This Israeli Vows to Oust Netanyahu. Here’s How.**\
-`Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
-https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
 
