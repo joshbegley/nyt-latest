@@ -1,3 +1,7 @@
+**Never Get High on Your Own Supply**\
+`Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
+
 **First Three Jurors Picked, 26 Years After the Bombing of the U.S.S. Cole**\
 `More U.S. military officers are being mobilized late next week because the original pool in the death penalty case is being depleted.`\
 https://www.nytimes.com/2026/11/07/us/politics/uss-cole-trial-jury-selection.html
