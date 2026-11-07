@@ -34,7 +34,7 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Won Big. What’s Next?**\
+**Democrats Need a Bold Governing Agenda**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
