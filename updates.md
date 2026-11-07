@@ -1,3 +1,7 @@
+**A ‘Legend of Zelda’ Game Is Reborn and ’90s Nostalgia Fans Are All In**\
+`Nintendo’s “Legend of Zelda: Ocarina of Time” was released in 1998. Now, its remake has some fans giddily reliving their childhoods.`\
+https://www.nytimes.com/2026/11/07/business/media/zelda-ocarina-of-time-remake-nintendo.html
+
 **Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
 `At least 48 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
 https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html

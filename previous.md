@@ -1,3 +1,7 @@
+**A ‘Legend of Zelda’ Game Is Reborn and ’90s Nostalgia Fans Are All In**\
+`Nintendo’s “Legend of Zelda: Ocarina of Time” was released in 1998. Now, its remake has some fans giddily reliving their childhoods.`\
+https://www.nytimes.com/2026/11/07/business/media/zelda-ocarina-of-time-remake-nintendo.html
+
 **Justice Department Intervenes in Planned Parenthood Lawsuit in Texas**\
 `The Justice Department’s intervention in the Texas lawsuit could signal that the administration is ready to challenge newly elected Democrats in state offices.`\
 https://www.nytimes.com/2026/11/07/us/politics/doj-texas-fraud-lawsuit-planned-parenthood.html
@@ -102,13 +106,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Need a Bold Governing Agenda**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Need a Bold Governing Agenda**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/alexander-skarsgard-sexuality.html
 **Heartaches and a Mission Statement: 11 Songs We’re Talking About**\
 `Dove Cameron’s retro melodrama, Rex Orange County’s ’60s echoes, Shygirl’s “Mantra” and more.`\
 https://www.nytimes.com/2026/11/07/arts/music/dove-cameron-rex-orange-county-shygirl-songs.html
-
-**Book Review: ‘Look at Me,’ by Dustin Hoffman**\
-`“Look at Me,” his long-awaited memoir, is an entertaining, if incomplete, reminder of how wrong he turned out to be.`\
-https://www.nytimes.com/2026/11/07/books/review/dustin-hoffman-look-at-me.html
 

@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate
 `Easy sheet-pan dishes (crispy gnocchi with sausage and broccoli) and smaller options (roast chicken with plums) for a cozy dinner with friends.`\
 https://www.nytimes.com/2026/11/07/dining/have-yourself-a-delicious-little-thanksgiving.html
 
-**Gunman Opens Fire in Krakow, Killing at Least 5, Polish Police Say**\
+**At Least 6 Dead in Poland After Gunman Opens Fire in Krakow, Police Say**\
 `The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
 https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
 
