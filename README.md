@@ -1,3 +1,7 @@
+**Researchers Identify Suspicious Activity on Kalshi and Polymarket Before Times/Siena Poll Release**\
+`A trader placed well-timed bets on Polymarket and Kalshi in two Senate races. It was unclear if the person had access to inside information or simply made good trades.`\
+https://www.nytimes.com/2026/11/06/technology/kalshi-polymarket-nyt-siena-poll-bets.html
+
 **Kansans Elect Democrat as Attorney General, Voting Out Kris Kobach**\
 `Chris Mann, a former police officer and prosecutor, defeated Mr. Kobach, a Republican who helped elevate concerns about election fraud to national prominence.`\
 https://www.nytimes.com/2026/11/06/us/kansas-attorney-general-kobach-mann.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/faa-floppy-disks-atc-2028.html
 **Susie Wiles, Trump’s Chief of Staff, Is Accused of Blocking Health Policies to Attract Donations**\
 `In a no-holds-barred interview with Joe Rogan, Calley Means, a former top health adviser, accused Susie Wiles of repeatedly bowing to lobbying pressures and fixating on campaign contributions.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-calley-means-joe-rogan.html
-
-**Republicans’ Losses in New York’s Midterms Were Bad. Then Came Their Post-Election Freakout.**\
-`The party’s losses in New York mirrored those across the nation, but leading Republicans in the state quickly blamed each other for the results.`\
-https://www.nytimes.com/2026/11/06/nyregion/new-york-election-midterms-republicans-blakeman-stefanik.html
 
