@@ -36,7 +36,7 @@ https://www.nytimes.com/2026/11/06/us/california-prosecutors-death-penalty.html
 
 **See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
 `See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
-https://www.nytimes.com/interactive/2026/11/03/us/elections/results-senate-governor-house-flips.html
+https://www.nytimes.com/interactive/2026/11/06/us/elections/results-senate-governor-house-flips.html
 
 **Zoo Atlanta Unveils Its New Pandas: Fu Shuang and Ping Ping**\
 `Two years after two other pandas were returned to China, giant pandas were back on display in Atlanta.`\
@@ -86,8 +86,8 @@ https://www.nytimes.com/2026/11/06/obituaries/sinclair-clark-overlooked.html
 `A Kenyan court sentenced the cult leader Paul Nthenge Mackenzie to 200 years in prison for murdering 190 children and one adult. He and his aides had forced followers to starve themselves to death.`\
 https://www.nytimes.com/video/world/africa/100000011267952/kenya-cult-leader-paul-mackenzie-sentence.html
 
-**Sunset Park Blaze Adds to a Deadly Year of N.Y.C. Fires**\
-`Nearly twice as many people in New York City died in fires this year compared with the same period in 2025.`\
+**86 Deaths and Counting: N.Y.C. Fire Fatalities Have Nearly Doubled This Year**\
+`The Brooklyn blaze that killed six people this week renewed focus on the soaring death toll and raised questions about whether e-bike batteries have played a role.`\
 https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
 
 **Trump Appeals Dismissal of $10 Billion Libel Suit Against Wall Street Journal**\

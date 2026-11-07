@@ -1,3 +1,11 @@
+**See the Newly-Elected Democrats Who Flipped Seats, and Whom They Unseated**\
+`See the full list of the Democrats who defeated Republican incumbents and  challengers for Congress and state offices previously held by Republicans.`\
+https://www.nytimes.com/interactive/2026/11/06/us/elections/results-senate-governor-house-flips.html
+
+**86 Deaths and Counting: N.Y.C. Fire Fatalities Have Nearly Doubled This Year**\
+`The Brooklyn blaze that killed six people this week renewed focus on the soaring death toll and raised questions about whether e-bike batteries have played a role.`\
+https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
+
 **Susie Wiles Is the Latest Powerful Woman to Exit the Trump Administration**\
 `A wave of high-ranking women have left the Trump administration in the past year. Many were replaced by men.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-trump-women.html
