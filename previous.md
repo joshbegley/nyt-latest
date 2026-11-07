@@ -1,3 +1,7 @@
+**Judge Taps Lawyer to Investigate Trump Administration’s Conduct in Golf Course Case**\
+`Judge Ana C. Reyes wrote that she intended to pick a former U.S. attorney in Washington to investigate whether officials misled the court about changes to the East Potomac Golf Links.`\
+https://www.nytimes.com/2026/11/07/us/politics/washington-judge-special-master-trump-golf.html
+
 **Israeli Opposition Leader Tapped to Try to Form Government**\
 `Gadi Eisenkot, a former military chief, hopes to succeed Benjamin Netanyahu as prime minister by cobbling together a coalition after an inconclusive election.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/israel-eisenkot-government.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/design/alex-katz-matisse.html
 **My Real Estate Agent Is Too Cozy for Comfort. What Can I Do?**\
 `Investing in real estate is a major financial decision demanding an agent who best represents you. But if they aren’t the right fit, there are steps you can take.`\
 https://www.nytimes.com/2026/11/07/realestate/my-real-estate-agent-is-too-cozy-for-comfort-what-can-i-do.html
-
-**Alexander Skarsgard’s Unsettling Onscreen Sexuality**\
-`In many of his roles, the actor subverts the classic notion of a sex symbol into something more sinister.`\
-https://www.nytimes.com/2026/11/07/arts/alexander-skarsgard-sexuality.html
 

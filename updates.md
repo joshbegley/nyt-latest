@@ -1,3 +1,7 @@
+**Judge Taps Lawyer to Investigate Trump Administration’s Conduct in Golf Course Case**\
+`Judge Ana C. Reyes wrote that she intended to pick a former U.S. attorney in Washington to investigate whether officials misled the court about changes to the East Potomac Golf Links.`\
+https://www.nytimes.com/2026/11/07/us/politics/washington-judge-special-master-trump-golf.html
+
 **Israeli Opposition Leader Tapped to Try to Form Government**\
 `Gadi Eisenkot, a former military chief, hopes to succeed Benjamin Netanyahu as prime minister by cobbling together a coalition after an inconclusive election.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/israel-eisenkot-government.html
