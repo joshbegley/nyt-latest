@@ -1,3 +1,7 @@
+**2 Skydivers Die After Midair Collision in Southern California**\
+`The skydivers’ parachutes opened but became entangled after they collided, according to the company hosting the event.`\
+https://www.nytimes.com/2026/11/06/us/california-lake-elsinore-skydiving-deaths.html
+
 **Mikie Sherrill Will Tap Acting Secretary of State as Her No. 2**\
 `After the resignation of Dale G. Caldwell in the wake of an ethics inquiry, Gov. Mikie Sherrill of New Jersey is expected to appoint Shirley Emehelu as lieutenant governor.`\
 https://www.nytimes.com/2026/11/06/nyregion/mikie-sherrill-lieutenant-governor.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its
 **Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
 `The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
 https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
-
-**In Elevating Stephen Miller, Trump Doubles Down on Hard-Line Agenda**\
-`The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term, as well as an aggressive approach to executive power.`\
-https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
 
 **Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
