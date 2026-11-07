@@ -1,3 +1,23 @@
+**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
+`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
+https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
+
+**King Charles Was Umbrella-Less but in His Element on Caribbean Tour**\
+`In his twilight years, the British monarch is embracing his role as a global statesman, even when that involves heavy rain and difficult questions about his nation’s history.`\
+https://www.nytimes.com/2026/11/07/world/europe/king-charles-chogm-umbrella-rain-diplomacy.html
+
+**Quote of the Day: Glass Towers Offer Nice Views, but Residents Bake in the Sun**\
+`Quotation of the Day for Saturday, November 7, 2026.`\
+https://www.nytimes.com/2026/11/07/pageoneplus/quote-of-the-day-glass-towers-offer-nice-views-but-residents-bake-in-the-sun.html
+
+**Another Day of Protests Is Planned in France’s Autumn of Discontent**\
+`Two days after a general strike and huge demonstrations, students and workers aim to take to the streets again on Saturday.`\
+https://www.nytimes.com/2026/11/07/world/europe/france-fourth-saturday-protests.html
+
+**From the Front Page: Bolsheviks Seize Power in Russia on Nov. 7, 1917**\
+`Vladimir Lenin’s forces overthrew Alexander Kerensky’s provisional government in what became known as the October Revolution, which ultimately led to the creation of the Soviet Union.`\
+https://www.nytimes.com/2026/11/07/learning/from-the-front-page-bolsheviks-seize-power-in-russia-on-nov-7-1917.html
+
 **2 Skydivers Die After Midair Collision in Southern California**\
 `The skydivers’ parachutes opened but became entangled after they collided, according to the company hosting the event.`\
 https://www.nytimes.com/2026/11/06/us/california-lake-elsinore-skydiving-deaths.html
@@ -173,26 +193,6 @@ https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
 **Juan Atkins: 10 Essential Songs From the Techno Pioneer**\
 `The Detroit D.J. and producer, who died at 64, merged electronic music to Afro-futuristic funk, giving rise to the genre.`\
 https://www.nytimes.com/2026/11/06/arts/music/juan-atkins-10-essential-songs-from-the-techno-pioneer.html
-
-**Time’s Up, Hegseth**\
-`Many in Washington believe Pete Hegseth’s future leading the Defense Department can be counted in days.`\
-https://www.nytimes.com/2026/11/06/opinion/pete-hegseth-rant-impeachment.html
-
-**Christopher Murphy Will Not Return to Senate Next Week After Stroke**\
-`Senator Christopher S. Murphy, Democrat of Connecticut, said in a statement that he would spend several weeks recovering at a rehabilitation center.`\
-https://www.nytimes.com/2026/11/06/us/politics/chris-murphy-senate-stroke.html
-
-**Lonnie Thompson Has Died. He Dodged Avalanches to Preserve Climate History.**\
-`His observations helped establish shriveling mountain glaciers as an unmistakable consequence of human-caused warming. He was 78.`\
-https://www.nytimes.com/2026/11/06/science/lonnie-thompson-dead.html
-
-**Is K-pop Experiencing Its Own Revival?**\
-`In the wake of an ongoing identity crisis among K-Pop girl groups, the newcomer A2O LITE is forging their own path with their single “Neon.” Our critic Jon Caramanica breaks down how the Lee Soo-man-backed group is reviving the genre with 2000s electro-pop and highly-choreographed maximalism.`\
-https://www.nytimes.com/video/podcasts/100000011263366/is-k-pop-experiencing-its-own-revival.html
-
-**Amazon Follows Melania Trump Film With Two-Part Series by the Same Director**\
-`The documentary, which the first lady executive produces, will debut on Nov. 20. Brett Ratner directs.`\
-https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amazon-prime.html
 
 **Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
