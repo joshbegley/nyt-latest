@@ -1,3 +1,7 @@
+**Eisenkot, Netanyahu Rival and Opposition Leader, Tapped to Try to Form Government**\
+`Gadi Eisenkot, a former military chief, hopes to succeed Benjamin Netanyahu as prime minister by cobbling together a coalition after an inconclusive election.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/israel-eisenkot-government.html
+
 **Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
 `On social media, the president offered the now-vacant job of White House press secretary to Dana White, the organization’s C.E.O., and told him to bring along fighters as aides.`\
 https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secretary.html
