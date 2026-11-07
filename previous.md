@@ -43,7 +43,7 @@ https://www.nytimes.com/video/us/politics/100000011269719/trump-stephen-miller-c
 https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
 
 **Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
-`The arrest of Sayed Mohassib, who had worked briefly as a police officer, ends a weeklong search. The jogger, Katie Suarez, had been on a ventilator for days after the attack.`\
+`The arrest of Sayed Mohassib, who had worked briefly as a police officer, ends a weeklong search. The jogger, Katie Suarez, had been on a ventilator for days before her death.`\
 https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
 
 **Why White Working-Class Voters Shifted Left in the Midterms**\
@@ -130,13 +130,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Need a Bold Governing Agenda**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Need a Bold Governing Agenda**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
