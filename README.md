@@ -1,3 +1,7 @@
+**Hunkering Down**\
+`The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
+https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html
+
 **Can I Have an A.I. Chatbot Field My Mother’s Endless Complaints?**\
 `It could serve as an infinitely patient sounding board and source of practical help.`\
 https://www.nytimes.com/2026/11/07/magazine/chatbot-elderly-mother-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/us/politics/trump-construction-projects-washi
 **How ‘Talafreako’ Became a Selling Point**\
 `Insult politics are out. Ken Paxton’s attacks on James Talarico were “digging his political grave,” the columnist David French argues. In a recent live episode of “The Opinions,” French describes how some conservative evangelicals in Texas privately told him they planned to vote for Talarico — and why Republican attacks weren’t resonating with voters.`\
 https://www.nytimes.com/video/opinion/100000011268014/how-talafreako-became-a-selling-point.html
-
-**Brilliant Stuff**\
-`Adrian Johnson’s latest themeless puzzle is out of this world.`\
-https://www.nytimes.com/2026/11/06/crosswords/daily-puzzle-2026-11-07.html
 
