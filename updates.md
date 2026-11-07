@@ -1,3 +1,7 @@
+**Mikie Sherrill Will Tap Acting Secretary of State as Her No. 2**\
+`After the resignation of Dale G. Caldwell in the wake of an ethics inquiry, Gov. Mikie Sherrill of New Jersey is expected to appoint Shirley Emehelu as lieutenant governor.`\
+https://www.nytimes.com/2026/11/06/nyregion/mikie-sherrill-lieutenant-governor.html
+
 **Justice Dept. Dismisses Suit Against California Over 20,000 Ballots**\
 `The effort by the Trump administration to set aside thousands of mail-in ballots had been rejected by the Supreme Court before Election Day.`\
 https://www.nytimes.com/2026/11/06/us/elections/justice-dept-dismisses-california-suit.html

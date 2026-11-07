@@ -1,3 +1,7 @@
+**Mikie Sherrill Will Tap Acting Secretary of State as Her No. 2**\
+`After the resignation of Dale G. Caldwell in the wake of an ethics inquiry, Gov. Mikie Sherrill of New Jersey is expected to appoint Shirley Emehelu as lieutenant governor.`\
+https://www.nytimes.com/2026/11/06/nyregion/mikie-sherrill-lieutenant-governor.html
+
 **Justice Dept. Dismisses Suit Against California Over 20,000 Ballots**\
 `The effort by the Trump administration to set aside thousands of mail-in ballots had been rejected by the Supreme Court before Election Day.`\
 https://www.nytimes.com/2026/11/06/us/elections/justice-dept-dismisses-california-suit.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/06/arts/television/melania-trump-the-series-amaz
 **In Elevating Stephen Miller, Trump Doubles Down on Hard-Line Agenda**\
 `The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term, as well as an aggressive approach to executive power.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
-
-**They Spent Millions to Keep Their Dream Cruise Afloat. It Died Anyway.**\
-`Secrecy, debt and soaring fuel costs all contributed to the Odyssey’s downfall. Here’s an inside look at how the “endless cruise” unraveled.`\
-https://www.nytimes.com/2026/11/06/travel/villa-vie-residences-odyssey-cruise.html
 
 **Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
 `The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
