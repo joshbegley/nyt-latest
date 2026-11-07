@@ -1,3 +1,7 @@
+**Gunman Opens Fire in Krakow, Killing at Least 5, Polish Police Say**\
+`The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
+https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
+
 **I Gave Our Viral Cranberry Tart a Makeover**\
 `Vaughn Vreeland came up with two new variations: portable bars and a giant crème brûlée.`\
 https://www.nytimes.com/2026/11/07/dining/i-gave-our-viral-cranberry-tart-a-makeover.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/the-artisan-transforming-broken-glass-in
 **5 Nutrients You May Not Be Getting Enough Of**\
 `And the signs you may be falling short.`\
 https://www.nytimes.com/2026/11/07/well/eat/nutrient-inadequacy-signs.html
-
-**Inside the Nightclub Sheltering Haitians From Violent Gangs**\
-`Club International was once a popular music venue in Port-au-Prince. Now it’s a makeshift shelter for hundreds of Haitian families fleeing gang violence, and the club’s owner wants them out.`\
-https://www.nytimes.com/video/world/americas/100000011168848/haiti-nightclub-shelter-gang-violence.html
 

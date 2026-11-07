@@ -1,3 +1,7 @@
+**Gunman Opens Fire in Krakow, Killing at Least 5, Polish Police Say**\
+`The authorities said that the gunman, who began shooting from a car near a market square, was shot and taken to a hospital.`\
+https://www.nytimes.com/2026/11/07/world/europe/krakow-poland-shooting.html
+
 **A Holiday Gift-Giving Pep Talk (and Tips) From Priya Parker**\
 `The author and self-described “meaning-maker” Priya Parker explains why presents can make, break or distort our relationships.`\
 https://www.nytimes.com/2026/11/07/style/holiday-gift-shopping-tips-priya-parker.html
