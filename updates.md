@@ -1,3 +1,7 @@
+**Schumer Lifts His Senate Standing With an Election Blowout**\
+`The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
+https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
+
 **Have Yourself a Delicious Little Thanksgiving**\
 `Easy sheet-pan dishes (crispy gnocchi with sausage and broccoli) and smaller options (roast chicken with plums) for a cozy dinner with friends.`\
 https://www.nytimes.com/2026/11/07/dining/have-yourself-a-delicious-little-thanksgiving.html
