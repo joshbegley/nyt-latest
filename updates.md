@@ -1,3 +1,7 @@
+**This Israeli Vows to Oust Netanyahu. Here’s How.**\
+`Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
+
 **How Israel’s Ex-Army Chief Could Oust Netanyahu**\
 `Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
