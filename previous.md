@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
 https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
 
 **Gunman Kills at Least 6 in Poland, Police Say**\
-`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, police said.`\
+`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, the police said.`\
 https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
 
 **Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
@@ -142,13 +142,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**We the People Finally Turn on Trump**\
-`A Norma Desmond crash-out to end all crash-outs.`\
-https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
-
 **Democrats Can’t Whiff This. The Stakes Are Too High.**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 
 **‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\

@@ -1,3 +1,7 @@
+**Gunman Kills at Least 6 in Poland, Police Say**\
+`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, the police said.`\
+https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
+
 **A Year in Money: Four People Share How They Spend, Save and Pay Off Debt**\
 `For a year, The New York Times followed along as they tried to get a handle on their money. It wasn’t easy for any of them.`\
 https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-money.html
