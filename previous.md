@@ -71,7 +71,7 @@ https://www.nytimes.com/2026/11/07/weather/la-heat-fire-temperature.html
 https://www.nytimes.com/2026/11/07/business/dealbook/crosby-ai-agent-liability-malpractice-insurance.html
 
 **Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
-`At least 44 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
+`At least 48 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
 https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
 
 **What Michelle Goldberg Learned From the Most Exciting Democrats**\

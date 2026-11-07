@@ -1,3 +1,7 @@
+**Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
+`At least 48 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
+https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
+
 **Schumer Is on Track to Remain Democratic Leader in Senate After Election Blowout, Aides Say**\
 `The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
 https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html

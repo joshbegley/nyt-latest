@@ -1,3 +1,7 @@
+**A ‘Legend of Zelda’ Game Is Reborn and ’90s Nostalgia Fans Are All In**\
+`Nintendo’s “Legend of Zelda: Ocarina of Time” was released in 1998. Now, its remake has some fans giddily reliving their childhoods.`\
+https://www.nytimes.com/2026/11/07/business/media/zelda-ocarina-of-time-remake-nintendo.html
+
 **Justice Department Intervenes in Planned Parenthood Lawsuit in Texas**\
 `The Justice Department’s intervention in the Texas lawsuit could signal that the administration is ready to challenge newly elected Democrats in state offices.`\
 https://www.nytimes.com/2026/11/07/us/politics/doj-texas-fraud-lawsuit-planned-parenthood.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/arts/alexander-skarsgard-sexuality.html
 **Heartaches and a Mission Statement: 11 Songs We’re Talking About**\
 `Dove Cameron’s retro melodrama, Rex Orange County’s ’60s echoes, Shygirl’s “Mantra” and more.`\
 https://www.nytimes.com/2026/11/07/arts/music/dove-cameron-rex-orange-county-shygirl-songs.html
-
-**Book Review: ‘Look at Me,’ by Dustin Hoffman**\
-`“Look at Me,” his long-awaited memoir, is an entertaining, if incomplete, reminder of how wrong he turned out to be.`\
-https://www.nytimes.com/2026/11/07/books/review/dustin-hoffman-look-at-me.html
 
