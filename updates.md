@@ -1,3 +1,7 @@
+**Richard Lloyd, Torrential Guitarist of Television, Has Died**\
+`With Tom Verlaine, he led the dual-guitar attack in a band that brought fiery yet sophisticated art rock to the New York City punk scene of the 1970s. He was 75.`\
+https://www.nytimes.com/2026/11/07/arts/music/richard-lloyd-dead.html
+
 **Schumer Lifts His Senate Standing With an Election Blowout**\
 `The Democratic leader still faces skeptics in his ranks and hostility from some activists, but aides say he has enough commitments of support to be elected majority leader.`\
 https://www.nytimes.com/2026/11/07/us/politics/schumer-election-democrats-senate.html
