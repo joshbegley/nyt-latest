@@ -1,3 +1,7 @@
+**Islamist Militant Attack Forces Patients to Flee Ebola Clinic in Congo**\
+`At least 44 people were killed in a brutal assault by a group loyal to the Islamic State, officials said. The area is a hot spot of the growing Ebola outbreak.`\
+https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
+
 **How the Democrats Did It**\
 `Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
 https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
