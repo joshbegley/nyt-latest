@@ -1,3 +1,19 @@
+**A ‘Chaotic Race’ for the World’s Top Diplomat**\
+`The contest to replace António Guterres as U.N. secretary general has been jolted by last-minute entrants and deep divisions among members of the Security Council.`\
+https://www.nytimes.com/2026/11/07/world/americas/un-secretary-general-pick.html
+
+**Trump Appoints Stephen Miller as New Chief of Staff**\
+`Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Miller is the hard-line policy adviser responsible for many of Trump’s most aggressive immigration policies.`\
+https://www.nytimes.com/video/us/politics/100000011269719/trump-appoints-stephen-miller-new-chief-of-staff.html
+
+**For Stephen Miller, Election Defeat Is No Reason to Back Down on Immigration Crackdown**\
+`The president’s new chief of staff has already demonstrated his intention to forge ahead with an agenda that many voters rejected.`\
+https://www.nytimes.com/2026/11/07/us/politics/stephen-miller-midterm-elections.html
+
+**Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
+`The arrest of Sayed Mohassib, 27, ends a weeklong search for the attacker. The jogger, Katie Suarez, had been on a ventilator for days following the attack.`\
+https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html
+
 **Trump Appoints Stephen Miller as New Chief of Staff**\
 `Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Mr. Miller is the hard-line policy adviser responsible for many of Mr. Trump’s most aggressive immigration policies.`\
 https://www.nytimes.com/video/us/politics/100000011269719/trump-appoints-stephen-miller-new-chief-of-staff.html
