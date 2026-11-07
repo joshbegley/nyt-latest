@@ -1,3 +1,7 @@
+**Why Israel’s Ex-Army Chief’s Next Mission Could Be Mission Impossible**\
+`Gadi Eisenkot is poised to get a chance to form a new government, replacing Benjamin Netanyahu as prime minister. But the obstacles are formidable.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/eisenkot-israel-new-government.html
+
 **Why Did She Rack Up $40,000 in Parking Tickets? Fill in the ______.**\
 `A New York woman has a distinctive name. She was stunned by violations and fines linked to her BMW convertible.`\
 https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/06/style/rob-sand-iowa-governor-prada-model.html
 **Ohio State Will Not Remove Wexner Name From Buildings Over Epstein Ties**\
 `Hundreds complained about Les Wexner’s ties to the convicted sex offender. But O.S.U. officials said he was not charged with wrongdoing and his name would remain.`\
 https://www.nytimes.com/2026/11/06/us/ohio-state-wexner-buildings-epstein.html
-
-**Some Publishers Drop Russell Brand After Rape Conviction**\
-`Some book publishers pulled Brand’s titles after his conviction on a rape charge on Thursday. But streaming services like YouTube seem less sure how to deal with old content featuring the former star.`\
-https://www.nytimes.com/2026/11/06/arts/russell-brand-books-movies.html
 
