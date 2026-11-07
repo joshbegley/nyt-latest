@@ -1,3 +1,7 @@
+**Israeli Opposition Leader Tapped to Try to Form Government**\
+`Gadi Eisenkot, a former military chief, hopes to succeed Benjamin Netanyahu as prime minister by cobbling together a coalition after an inconclusive election.`\
+https://www.nytimes.com/2026/11/07/world/middleeast/israel-eisenkot-government.html
+
 **A ‘Legend of Zelda’ Game Is Reborn and ’90s Nostalgia Fans Are All In**\
 `Nintendo’s “Legend of Zelda: Ocarina of Time” was released in 1998. Now, its remake has some fans giddily reliving their childhoods.`\
 https://www.nytimes.com/2026/11/07/business/media/zelda-ocarina-of-time-remake-nintendo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/realestate/my-real-estate-agent-is-too-cozy-f
 **Alexander Skarsgard’s Unsettling Onscreen Sexuality**\
 `In many of his roles, the actor subverts the classic notion of a sex symbol into something more sinister.`\
 https://www.nytimes.com/2026/11/07/arts/alexander-skarsgard-sexuality.html
-
-**Heartaches and a Mission Statement: 11 Songs We’re Talking About**\
-`Dove Cameron’s retro melodrama, Rex Orange County’s ’60s echoes, Shygirl’s “Mantra” and more.`\
-https://www.nytimes.com/2026/11/07/arts/music/dove-cameron-rex-orange-county-shygirl-songs.html
 
