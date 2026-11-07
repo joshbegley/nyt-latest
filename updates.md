@@ -1,3 +1,7 @@
+**Trump Appoints Stephen Miller as New Chief of Staff**\
+`Stephen Miller has replaced Susie Wiles as President Trump’s White House chief of staff. Miller is the hard-line policy adviser responsible for many of Trump’s most aggressive immigration policies.`\
+https://www.nytimes.com/video/us/politics/100000011269719/trump-stephen-miller-chief-of-staff.html
+
 **A ‘Chaotic Race’ for the World’s Top Diplomat**\
 `The contest to replace António Guterres as U.N. secretary general has been jolted by last-minute entrants and deep divisions among members of the Security Council.`\
 https://www.nytimes.com/2026/11/07/world/americas/un-secretary-general-pick.html
