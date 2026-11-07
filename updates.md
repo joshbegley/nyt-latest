@@ -1,3 +1,7 @@
+**NASA Is Seeking Its Next Class of Astronauts**\
+`The new space travelers will most likely be trained for missions to the moon and space stations in low-Earth orbit. Applications are due Dec. 3.`\
+https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
+
 **Brooklyn Jogger Dies and a Man Is Charged With Murder in Her Stabbing**\
 `The arrest of Sayed Mohassib, who had worked briefly as a police officer, ends a weeklong search. The jogger, Katie Suarez, had been on a ventilator for days before her death.`\
 https://www.nytimes.com/2026/11/07/nyregion/sayed-mohassib-arrest-brooklyn-stabbing-katie-suarez.html

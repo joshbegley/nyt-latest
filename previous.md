@@ -1,3 +1,7 @@
+**NASA Is Seeking Its Next Class of Astronauts**\
+`The new space travelers will most likely be trained for missions to the moon and space stations in low-Earth orbit. Applications are due Dec. 3.`\
+https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
+
 **Gunman Kills at Least 6 in Poland, Police Say**\
 `A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, police said.`\
 https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
@@ -130,13 +134,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**We the People Finally Turn on Trump**\
-`A Norma Desmond crash-out to end all crash-outs.`\
-https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
-
 **Democrats Need a Bold Governing Agenda**\
 `If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011264590/they-didnt-vote-for-d
 **Bomb Threats and Cyberattacks in Europe Inject Unease Into Everyday Life**\
 `A cyberattack on supermarket fridges, bomb threats to planes and software vulnerabilities have Europe on edge as government officials encourage resilience and stockpiling.`\
 https://www.nytimes.com/2026/11/07/world/europe/bomb-threats-cyberattacks-europe-uncertainty.html
-
-**Mysterious Request Scrambles Major Supreme Court Gun Case Against Cook County**\
-`In an unusual move, the lead plaintiff in one of two cases challenging semiautomatic weapons bans has asked to drop out weeks before the cases are heard.`\
-https://www.nytimes.com/2026/11/07/us/politics/supreme-court-guns-plaintiff.html
 
