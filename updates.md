@@ -1,3 +1,7 @@
+**Hunkering Down**\
+`The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
+https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html
+
 **Can I Have an A.I. Chatbot Field My Mother’s Endless Complaints?**\
 `It could serve as an infinitely patient sounding board and source of practical help.`\
 https://www.nytimes.com/2026/11/07/magazine/chatbot-elderly-mother-ethics.html
