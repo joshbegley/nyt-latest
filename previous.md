@@ -75,7 +75,7 @@ https://www.nytimes.com/video/technology/100000011268712/how-the-tech-rights-bet
 https://www.nytimes.com/interactive/2026/11/06/weather/tropical-storm-pena-pacific-map-path.html
 
 **China’s Top Spy Agency Recruited Woman Who Targeted Jensen Huang**\
-`U.S. intelligence concluded that Alice Huang, a Chinese business executive who developed a close relationship with Nvidia’s leader, was an asset of Beijing’s Ministry of State Security.`\
+`A memo that circulated among U.S. policymakers cited intelligence that Alice Huang, a Chinese executive who developed a relationship with Nvidia’s leader, was an asset of Beijing’s Ministry of State Security.`\
 https://www.nytimes.com/2026/11/06/us/politics/chinese-spy-agency-nvidia-jensen-huang.html
 
 **Sinclair Clark Made Museum Masterpieces. Why Was His Name Left Out?**\

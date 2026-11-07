@@ -1,3 +1,7 @@
+**China’s Top Spy Agency Recruited Woman Who Targeted Jensen Huang**\
+`A memo that circulated among U.S. policymakers cited intelligence that Alice Huang, a Chinese executive who developed a relationship with Nvidia’s leader, was an asset of Beijing’s Ministry of State Security.`\
+https://www.nytimes.com/2026/11/06/us/politics/chinese-spy-agency-nvidia-jensen-huang.html
+
 **In Elevating Stephen Miller, Trump Signals He Has No Plan to Alter Approach**\
 `The new White House chief of staff is responsible for some of the most provocative policies of President Trump’s second term.`\
 https://www.nytimes.com/2026/11/06/us/politics/susie-wiles-chief-of-staff-trump.html
