@@ -159,7 +159,7 @@ https://www.nytimes.com/2026/11/06/nyregion/nyc-fire-deaths.html
 https://www.nytimes.com/2026/11/06/business/media/trump-wall-street-journal.html
 
 **Will New Zealand Join Voters’ Global Revolt Over Soaring Costs?**\
-`Economic concerns dominated in the lead-up to the election on Saturday, in which there was no clear front-runner and smaller parties were expected to wield greater influence.`\
+`Preliminary results showed no clear front-runner after an election that was dominated by economic concerns.`\
 https://www.nytimes.com/2026/11/06/world/asia/new-zealand-election-vote.html
 
 **A Big Pot of Tomato Soup**\
