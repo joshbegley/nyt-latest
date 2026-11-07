@@ -1,3 +1,7 @@
+**Trump Elevates Stephen Miller, a Fiery Hard-Liner, to Chief of Staff**\
+`The promotion of Mr. Miller, who has led the administration’s immigration crackdown, signals a doubling down by the president on policies that voters decisively rejected in the midterm elections.`\
+https://www.nytimes.com/live/2026/11/06/us/trump-miller-wiles-chief-of-staff
+
 **Kansans Elect Democrat as Attorney General, Voting Out Kris Kobach**\
 `Chris Mann, a former police officer and prosecutor, defeated Mr. Kobach, a Republican who helped elevate concerns about election fraud to national prominence.`\
 https://www.nytimes.com/2026/11/06/us/kansas-attorney-general-kobach-mann.html
