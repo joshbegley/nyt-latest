@@ -1,3 +1,43 @@
+**Americans Voted Against the ‘Depravity Economy’**\
+`Technology is increasingly a moral issue — and a bipartisan one.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html
+
+**The Midterms Were Spectacular. Here’s What They Showed.**\
+`Five signals from the Democrats’ extraordinary string of victories.`\
+https://www.nytimes.com/2026/11/07/opinion/america-midterms-democrats-trump.html
+
+**How the Democrats Did It**\
+`Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
+https://www.nytimes.com/video/opinion/100000011267047/how-the-democrats-did-it.html
+
+**Talarico’s Politics of Love**\
+`Senator-elect James Talarico had a clear vision of what Texans were looking for. Ezra Klein and Michelle Goldberg discuss his successful Senate campaign on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011267051/talaricos-politics-of-love.html
+
+**Vance Was Wrong About Ossoff’s Campaign**\
+`After the 2024 election, JD Vance suggested that Senator Jon Ossoff would have to cozy up to President Trump to win a Senate seat. On “The Ezra Klein Show,” Michelle Goldberg and Ezra Klein discuss what actually happened — and how Ossoff channelled a “popular revulsion.”`\
+https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-ossoffs-campaign.html
+
+**8 Bold Ideas for the New Democratic Congress**\
+`8 writers and experts on the legislation Democrats should consider.`\
+https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
+
+**Democrats Won Big. What’s Next?**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Watching ‘NAZA’ Amid the Gazan Rubble**\
+`A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
+https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
+
+**Children’s Problems TodayGo Beyond the Screens**\
+`Readers discuss a guest essay by a child psychiatrist.`\
+https://www.nytimes.com/2026/11/07/opinion/children-screens.html
+
 **Hunkering Down**\
 `The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
 https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/11/07/crosswords/spelling-bee-forum.html
 **Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
 `The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
 https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
-
-**King Charles Was Umbrella-Less but in His Element on Caribbean Tour**\
-`In his twilight years, the British monarch is embracing his role as a global statesman, even when that involves heavy rain and difficult questions about his nation’s history.`\
-https://www.nytimes.com/2026/11/07/world/europe/king-charles-chogm-umbrella-rain-diplomacy.html
-
-**Quote of the Day: Glass Towers Offer Nice Views, but Residents Bake in the Sun**\
-`Quotation of the Day for Saturday, November 7, 2026.`\
-https://www.nytimes.com/2026/11/07/pageoneplus/quote-of-the-day-glass-towers-offer-nice-views-but-residents-bake-in-the-sun.html
-
-**Another Day of Protests Is Planned in France’s Autumn of Discontent**\
-`Two days after a general strike and huge demonstrations, students and workers aim to take to the streets again on Saturday.`\
-https://www.nytimes.com/2026/11/07/world/europe/france-fourth-saturday-protests.html
-
-**From the Front Page: Bolsheviks Seize Power in Russia on Nov. 7, 1917**\
-`Vladimir Lenin’s forces overthrew Alexander Kerensky’s provisional government in what became known as the October Revolution, which ultimately led to the creation of the Soviet Union.`\
-https://www.nytimes.com/2026/11/07/learning/from-the-front-page-bolsheviks-seize-power-in-russia-on-nov-7-1917.html
-
-**2 Skydivers Die After Midair Collision in Southern California**\
-`The skydivers’ parachutes opened but became entangled after they collided, according to the company hosting the event.`\
-https://www.nytimes.com/2026/11/06/us/california-lake-elsinore-skydiving-deaths.html
-
-**Mikie Sherrill Will Tap Acting Secretary of State as Her No. 2**\
-`After the resignation of Dale G. Caldwell in the wake of an ethics inquiry, Gov. Mikie Sherrill of New Jersey is expected to appoint Shirley Emehelu as lieutenant governor.`\
-https://www.nytimes.com/2026/11/06/nyregion/mikie-sherrill-lieutenant-governor.html
-
-**Justice Dept. Dismisses Suit Against California Over 20,000 Ballots**\
-`The effort by the Trump administration to set aside thousands of mail-in ballots had been rejected by the Supreme Court before Election Day.`\
-https://www.nytimes.com/2026/11/06/us/elections/justice-dept-dismisses-california-suit.html
-
-**U.S. Homeless Population Had Record Drop in 2025**\
-`The Department of Housing and Urban Development credited President Trump, while homeless advocacy groups said that so-called Housing First policies of his predecessors played a part.`\
-https://www.nytimes.com/2026/11/06/us/politics/homeless-population-drop.html
-
-**Trump’s D.C. Construction Blitz May Be About to Get Tougher**\
-`The president has bulldozed through obstacles as he has sought to remake the face of Washington. But newly empowered Democrats and angry judges are setting up a high-stakes showdown.`\
-https://www.nytimes.com/2026/11/06/us/politics/trump-construction-projects-washington.html
-
-**How ‘Talafreako’ Became a Selling Point**\
-`Insult politics are out. Ken Paxton’s attacks on James Talarico were “digging his political grave,” the columnist David French argues. In a recent live episode of “The Opinions,” French describes how some conservative evangelicals in Texas privately told him they planned to vote for Talarico — and why Republican attacks weren’t resonating with voters.`\
-https://www.nytimes.com/video/opinion/100000011268014/how-talafreako-became-a-selling-point.html
 

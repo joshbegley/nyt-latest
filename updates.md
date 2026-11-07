@@ -1,3 +1,43 @@
+**Americans Voted Against the ‘Depravity Economy’**\
+`Technology is increasingly a moral issue — and a bipartisan one.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html
+
+**The Midterms Were Spectacular. Here’s What They Showed.**\
+`Five signals from the Democrats’ extraordinary string of victories.`\
+https://www.nytimes.com/2026/11/07/opinion/america-midterms-democrats-trump.html
+
+**How the Democrats Did It**\
+`Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
+https://www.nytimes.com/video/opinion/100000011267047/how-the-democrats-did-it.html
+
+**Talarico’s Politics of Love**\
+`Senator-elect James Talarico had a clear vision of what Texans were looking for. Ezra Klein and Michelle Goldberg discuss his successful Senate campaign on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011267051/talaricos-politics-of-love.html
+
+**Vance Was Wrong About Ossoff’s Campaign**\
+`After the 2024 election, JD Vance suggested that Senator Jon Ossoff would have to cozy up to President Trump to win a Senate seat. On “The Ezra Klein Show,” Michelle Goldberg and Ezra Klein discuss what actually happened — and how Ossoff channelled a “popular revulsion.”`\
+https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-ossoffs-campaign.html
+
+**8 Bold Ideas for the New Democratic Congress**\
+`8 writers and experts on the legislation Democrats should consider.`\
+https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
+
+**Democrats Won Big. What’s Next?**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
+
+**We the People Finally Turn on Trump**\
+`A Norma Desmond crash-out to end all crash-outs.`\
+https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Watching ‘NAZA’ Amid the Gazan Rubble**\
+`A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
+https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
+
+**Children’s Problems TodayGo Beyond the Screens**\
+`Readers discuss a guest essay by a child psychiatrist.`\
+https://www.nytimes.com/2026/11/07/opinion/children-screens.html
+
 **Hunkering Down**\
 `The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
 https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html

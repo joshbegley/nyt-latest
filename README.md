@@ -1,3 +1,7 @@
+**How the Democrats Did It**\
+`Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
+https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
+
 **Americans Voted Against the ‘Depravity Economy’**\
 `Technology is increasingly a moral issue — and a bipartisan one.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html
@@ -22,13 +26,13 @@ https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-osso
 `8 writers and experts on the legislation Democrats should consider.`\
 https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
 
-**Democrats Won Big. What’s Next?**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
 **We the People Finally Turn on Trump**\
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
+
+**Democrats Won Big. What’s Next?**\
+`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 
 **Watching ‘NAZA’ Amid the Gazan Rubble**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/nyregion/nyc-parking-violations.html
 **NYT Spelling Bee Answers for November 7, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/07/crosswords/spelling-bee-forum.html
-
-**Premieres at Paul Taylor: An Emotional Swing and a Hollow Miss**\
-`The company’s resident choreographers, Lauren Lovette and Robert Battle, showed new dances at Lincoln Center. As usual, Taylor’s works flattened them to bits.`\
-https://www.nytimes.com/2026/11/07/arts/dance/paul-taylor-company-premieres-lauren-lovette-robert-battle.html
 
