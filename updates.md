@@ -1,3 +1,15 @@
+**Republicans Got Ruinously High on Their Own Supply**\
+`Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
+
+**We Just Had an Anti-Slop Election**\
+`Technology is increasingly a moral issue — and a bipartisan one.`\
+https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html
+
+**‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
+`A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
+https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
+
 **NASA Is Seeking Its Next Class of Astronauts**\
 `The new space travelers will most likely be trained for missions to the moon and space stations in low-Earth orbit. Applications are due Dec. 3.`\
 https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html

@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/11/07/us/politics/white-working-class-voters-midter
 `Strikes show the heavy toll since fighting between the Houthis and the Saudi-backed government reignited in August, with civilians paying a heavy price.`\
 https://www.nytimes.com/2026/11/07/world/middleeast/more-than-50-killed-in-yemen.html
 
-**Never Get High on Your Own Supply**\
+**Republicans Got Ruinously High on Their Own Supply**\
 `Republicans violated the Notorious B.I.G.’s fourth crack commandment.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-republicans-trump-hubris.html
 
@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/11/07/world/africa/congo-attack-ebola-isis-adf.html
 `Michelle Goldberg reported on the Democrats’ most exciting campaigns. Here’s what she saw.`\
 https://www.nytimes.com/2026/11/07/opinion/ezra-klein-podcast-michelle-goldberg.html
 
-**Americans Voted Against the ‘Depravity Economy’**\
+**We Just Had an Anti-Slop Election**\
 `Technology is increasingly a moral issue — and a bipartisan one.`\
 https://www.nytimes.com/2026/11/07/opinion/midterms-tech-economy.html
 
@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
 `A Norma Desmond crash-out to end all crash-outs.`\
 https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 
-**Watching ‘NAZA’ Amid the Gazan Rubble**\
+**‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
 https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
 
