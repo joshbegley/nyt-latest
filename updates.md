@@ -1,3 +1,7 @@
+**2 Skydivers Die After Midair Collision in Southern California**\
+`The skydivers’ parachutes opened but became entangled after they collided, according to the company hosting the event.`\
+https://www.nytimes.com/2026/11/06/us/california-lake-elsinore-skydiving-deaths.html
+
 **Mikie Sherrill Will Tap Acting Secretary of State as Her No. 2**\
 `After the resignation of Dale G. Caldwell in the wake of an ethics inquiry, Gov. Mikie Sherrill of New Jersey is expected to appoint Shirley Emehelu as lieutenant governor.`\
 https://www.nytimes.com/2026/11/06/nyregion/mikie-sherrill-lieutenant-governor.html
