@@ -163,7 +163,7 @@ https://www.nytimes.com/2026/11/07/arts/the-dad-dilemma-which-memories-to-delete
 https://www.nytimes.com/2026/11/07/arts/television/dorinda-medley-real-housewives-golden-age.html
 
 **A Holiday Gift-Giving Pep Talk (and Tips) From Priya Parker**\
-`The author Priya Parker is passionate about gathering. Turns out she’s just as enthusiastic about gift-giving, and we needed to know why.`\
+`The author and self-described “meaning-maker” Priya Parker explains why presents can make, break or distort our relationships.`\
 https://www.nytimes.com/2026/11/07/style/holiday-gift-shopping-tips-priya-parker.html
 
 **Jeffrey Wigand, Who Blew the Whistle on Big Tobacco, Takes a Lot of Calls**\
