@@ -1,3 +1,15 @@
+**South Carolina Republicans Fracture Over Stunning Defeat of Darline Graham**\
+`Some blamed President Trump for backing the novice candidate after the death of her brother, Lindsey Graham. Others accused Ms. Graham’s team of pushing her to run despite her lack of experience.`\
+https://www.nytimes.com/2026/11/07/us/politics/darline-graham-loss-blame.html
+
+**Still on the President’s Agenda: Daylight Saving Time**\
+`Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
+https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html
+
+**How the New York Times Obituaries Desk Covers Death by Suicide**\
+`There is more openness about discussing suicide now. But sometimes families talk about it only reluctantly, or not at all.`\
+https://www.nytimes.com/2026/11/07/obituaries/suicide-deaths.html
+
 **Red Flag Warnings for Fire Are In Place Near Los Angeles on Saturday**\
 `Temperatures could climb close to 90 around Los Angeles.`\
 https://www.nytimes.com/2026/11/07/weather/la-heat-fire-temperature.html
