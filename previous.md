@@ -80,7 +80,7 @@ https://www.nytimes.com/video/podcasts/100000011269166/georgias-governor-elect-o
 
 **For Trump and America, a Clear Election Verdict but a Murky Future**\
 `As Americans absorb a stunning new political reality, they face a gap between the time they effectively decided to be done with the president and the time he is actually done.`\
-https://www.nytimes.com/2026/11/08/us/politics/for-trump-and-america-a-clear-election-verdict-leaves-a-murky-future.html
+https://www.nytimes.com/2026/11/08/us/politics/trump-midterm-election-america-future.html
 
 **How Mississippi Reached the Verge of Electing a Black Senator**\
 `The echoes of history surround Scott Colom’s final push toward victory, but assembling the coalition that propelled him took hard work after many Democratic misses.`\
