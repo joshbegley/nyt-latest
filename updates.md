@@ -1,3 +1,7 @@
+**Republican Congressman Says He Will ‘Hear’ Debate Over Hegseth Impeachment**\
+`Democrats have said they will hold Trump officials accountable when they take control of Congress after huge wins in the midterms. Secretary of Defense Pete Hegseth’s impeachment may be on the agenda.`\
+https://www.nytimes.com/video/us/politics/100000011271001/us-politics-midterms-hegseth-impeachment.html
+
 **NYT Crossword Answers for Nov. 9, 2026**\
 `Leslie Benson means well.`\
 https://www.nytimes.com/2026/11/08/crosswords/daily-puzzle-2026-11-09.html
