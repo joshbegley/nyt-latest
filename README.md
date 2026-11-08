@@ -1,3 +1,11 @@
+**America Called. It Wants Its Government Back.**\
+`The midterm election can be understood as a plea for a government that actually cares about people.`\
+https://www.nytimes.com/2026/11/08/opinion/midterms-america-government.html
+
+**Putin Just Killed Russia’s Last Independent Newspaper**\
+`Novaya Gazeta’s closure offers a valuable lesson for any publication working in a climate of tyranny.`\
+https://www.nytimes.com/2026/11/08/opinion/novaya-gazeta-russia-putin-newspaper.html
+
 **South Africa’s Politics May Never Be the Same Again**\
 `The African National Congress lost big in local elections, turning a once-dominant force credited with overturning apartheid into “any other political party.”`\
 https://www.nytimes.com/2026/11/08/world/africa/south-africa-election-african-national-congress.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
 **‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
 `A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
 https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
-
-**Children’s Problems Today Go Beyond the Screens**\
-`Readers discuss a guest essay by a child psychiatrist.`\
-https://www.nytimes.com/2026/11/07/opinion/children-screens.html
-
-**Hunkering Down**\
-`The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
-https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html
 
