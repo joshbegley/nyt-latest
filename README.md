@@ -1,3 +1,7 @@
+**Why Winning Big Matters**\
+`The midterm elections in the United States and recent votes in Europe show how blowout victories can make results impossible to deny.`\
+https://www.nytimes.com/2026/11/08/world/election-win-pete-hegseth-poland.html
+
 **Nvidia Opens Investigation Into Jensen Huang’s Relationship With Chinese Spy**\
 `Mr. Huang, the company’s chief executive, acknowledged on Sunday that he was intimate with a business executive who U.S. officials had determined was working for Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/business/personal-email-employer-privacy.html
 **What Talarico’s Win Reveals About Christianity in Texas**\
 `Senator-elect James Talarico’s progressive Christianity seemed to resonate for many in a state whose politics and culture have been dominated by conservative evangelicalism.`\
 https://www.nytimes.com/2026/11/08/us/james-talarico-christianity-texas.html
-
-**With Hopes Low and Temperatures High, Climate Summit Opens in Turkey**\
-`War, artificial intelligence and the Trump era have overshadowed climate change. But officials from nearly every nation are meeting to confront global warming.`\
-https://www.nytimes.com/2026/11/08/climate/with-hopes-low-and-temperatures-high-climate-summit-opens-in-turkey.html
 
