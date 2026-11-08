@@ -1,3 +1,7 @@
+**Justice Dept. Mulled Naming The Times as Conspirator in Comey Leak Case**\
+`It remains unclear how the Justice Department might proceed. The move would be a major escalation of the Trump administration’s recent attacks against the news media.`\
+https://www.nytimes.com/2026/11/08/us/politics/justice-dept-new-york-times-comey-leak.html
+
 **Midterm Elections Live Updates: After Democratic Sweep, Partisan Clashes Erupt on Sunday Shows**\
 `Representative Hakeem Jeffries, the Democratic leader, said he was a “hard yes” on a vote to impeach Defense Secretary Pete Hegseth that is expected to come to the House floor this week.`\
 https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
