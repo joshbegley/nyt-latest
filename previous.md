@@ -1,3 +1,11 @@
+**Nvidia Opens Investigation Into Jensen Huang’s Relationship With Chinese Spy**\
+`Mr. Huang, the company’s chief executive, acknowledged on Sunday that he was intimate with a business executive who U.S. officials had determined was working for Chinese intelligence.`\
+https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang-china.html
+
+**How Can We Best Honor Veterans?**\
+`A 15-year-old student created a military museum to keep war memories alive. What can we learn from him?`\
+https://www.nytimes.com/2026/11/08/learning/how-can-we-best-honor-veterans.html
+
 **Maduro Studies Religion and Meets Clergy Behind Bars**\
 `The jailed Venezuelan autocrat studies religious texts and meets with diverse clergy, including a rabbi, as he awaits trial. He has also lost weight.`\
 https://www.nytimes.com/2026/11/08/nyregion/maduro-prision-life.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/08/us/james-talarico-christianity-texas.html
 **With Hopes Low and Temperatures High, Climate Summit Opens in Turkey**\
 `War, artificial intelligence and the Trump era have overshadowed climate change. But officials from nearly every nation are meeting to confront global warming.`\
 https://www.nytimes.com/2026/11/08/climate/with-hopes-low-and-temperatures-high-climate-summit-opens-in-turkey.html
-
-**Did These Scientists Find Evidence of Blood in a Dinosaur Bone?**\
-`Mineralized “structures” discovered in the bone were the fossilized remains of red blood cells, according to a recent study. Other experts aren’t so sure.`\
-https://www.nytimes.com/2026/11/08/science/dinosaur-blood-bone.html
-
-**Texas Led on Hard-Line Immigration Policies. Democrats Plan a Reversal.**\
-`A Democratic sweep in the state signals fresh momentum to curb aggressive ICE tactics across a shifting national landscape on immigration.`\
-https://www.nytimes.com/2026/11/08/us/texas-border-immigration-ice.html
 

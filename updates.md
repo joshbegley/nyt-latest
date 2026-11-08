@@ -1,3 +1,11 @@
+**Nvidia Opens Investigation Into Jensen Huang’s Relationship With Chinese Spy**\
+`Mr. Huang, the company’s chief executive, acknowledged on Sunday that he was intimate with a business executive who U.S. officials had determined was working for Chinese intelligence.`\
+https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang-china.html
+
+**How Can We Best Honor Veterans?**\
+`A 15-year-old student created a military museum to keep war memories alive. What can we learn from him?`\
+https://www.nytimes.com/2026/11/08/learning/how-can-we-best-honor-veterans.html
+
 **Maduro Studies Religion and Meets Clergy Behind Bars**\
 `The jailed Venezuelan autocrat studies religious texts and meets with diverse clergy, including a rabbi, as he awaits trial. He has also lost weight.`\
 https://www.nytimes.com/2026/11/08/nyregion/maduro-prision-life.html
