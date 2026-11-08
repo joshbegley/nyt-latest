@@ -1,3 +1,7 @@
+**Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
+`The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
+https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
+
 **Keisha Lance Bottoms on a Civil Rights Leader’s Reaction to Her Historic Win**\
 `Andrew Young is a civil rights leader and a former mayor of Atlanta. On “The Interview,” Keisha Lance Bottoms discussed his reaction to her victory in the Georgia governor’s race.`\
 https://www.nytimes.com/video/podcasts/100000011269167/keisha-lance-bottoms-on-a-civil-rights-leaders-reaction-to-her-historic-win.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/11/08/us/politics/republican-blame-trump-midterms.h
 https://www.nytimes.com/2026/11/08/climate/what-is-cop31-climate.html
 
 **Democrats Now Have a Path to Sidestep the Electoral College. Would It Work?**\
-`Midterm victories have created the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
+`Midterm victories have given states the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
 https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
 
 **Can My Company Force Me to Reveal My Personal Email?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secret
 **Alien Throne, a Unique Rock Formation in New Mexico, Collapses Amid Heavy Rains**\
 `The oddly shaped 15-foot-tall pillar collapsed after a torrent of rain. It was the second loss of a striking rock formation in the region in less than a month.`\
 https://www.nytimes.com/2026/11/07/us/alien-throne-king-of-wings-new-mexico.html
-
-**Father Calls Daughter, the Co-Pilot Killed in Florida Crash, ‘a Hero’**\
-`Allan Filgueiras said during a news conference that his daughter, Nathalia, 20, fought to the final seconds as a private jet carrying nine people crashed near Palm Beach, Fla.`\
-https://www.nytimes.com/2026/11/07/us/florida-jet-crash-father-pilot.html
 

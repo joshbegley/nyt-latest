@@ -1,3 +1,11 @@
+**Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
+`The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
+https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
+
+**Democrats Now Have a Path to Sidestep the Electoral College. Would It Work?**\
+`Midterm victories have given states the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
+https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
+
 **Democrats Now Have a Path to Sidestep the Electoral College. Would It Work?**\
 `Midterm victories have created the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
 https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
