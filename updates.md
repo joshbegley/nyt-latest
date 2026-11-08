@@ -1,3 +1,7 @@
+**Who Is Gadi Eisenkot, Israel’s Opposition Leader?**\
+`Mr. Eisenkot, a career general and the leading rival of Prime Minister Benjamin Netanyahu of Israel, will now have up to six weeks to form a coalition.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/israel-eisenkot-netanyahu-what-to-know.html
+
 **Republicans Don’t Understand Men, Either**\
 `For the most part, young men want to be good men.`\
 https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
