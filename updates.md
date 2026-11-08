@@ -1,3 +1,7 @@
+**The Election Brought Lots of Change. Test Your Knowledge.**\
+`(No description)`\
+https://www.nytimes.com/quiz/2026/11/08/us/quiz-midterm-elections-democrats.html
+
 **For Trump and America, a Clear Election Verdict but a Murky Future**\
 `As Americans absorb a stunning new political reality, they face a gap between the time they effectively decided to be done with the president and the time he is actually done.`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-midterm-election-america-future.html
