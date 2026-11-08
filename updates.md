@@ -1,3 +1,7 @@
+**Read the Text Messages at the Center of the Cornell Rape Inquiry**\
+`After a Cornell student said fraternity members had sexually assaulted her, university investigators amassed a trove of communications from the student and the men she accused.`\
+https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-messages.html
+
 **NASA Is Selecting Future Astronauts. Here’s How to Apply.**\
 `The space agency is recruiting its next class of space travelers for missions to low-Earth orbit and the moon. Applications are due Dec. 3.`\
 https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html

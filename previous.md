@@ -1,3 +1,7 @@
+**Read the Text Messages at the Center of the Cornell Rape Inquiry**\
+`After a Cornell student said fraternity members had sexually assaulted her, university investigators amassed a trove of communications from the student and the men she accused.`\
+https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-messages.html
+
 **Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
 `Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
 https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/crosswords/connections-companion-1246.html
 **Still on the President’s Agenda: Daylight Saving Time**\
 `Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
 https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html
-
-**The Good, the Bad and the Cringe: 10 Ads That Defined the Midterms**\
-`In a Democratic landslide election, here are the ads that stood out. Some were effective, while others backfired.`\
-https://www.nytimes.com/2026/11/07/us/politics/midterm-ads-republicans-democrats.html
 
