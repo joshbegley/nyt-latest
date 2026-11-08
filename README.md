@@ -1,3 +1,11 @@
+**Maduro Studies Religion and Meets Clergy Behind Bars**\
+`The jailed Venezuelan autocrat studies religious texts and meets with diverse clergy, including a rabbi, as he awaits trial. He has also lost weight.`\
+https://www.nytimes.com/2026/11/08/nyregion/maduro-prision-life.html
+
+**Deadly Train Collision in Egypt Kills At Least 7**\
+`A deadly train collision near Cairo has killed at least seven people and injured dozens more, officials said.`\
+https://www.nytimes.com/video/world/africa/100000011270867/egypt-train-collision-crash.html
+
 **Connecticut Prep School Head Resigns in Face of I.R.S. Investigation**\
 `Charlie Cahn III, who was compensated more than $1 million annually leading Suffield Academy, was placed on leave last month by the school after it learned of the inquiry.`\
 https://www.nytimes.com/2026/11/08/nyregion/suffield-academy-irs-investigation-china.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/08/science/dinosaur-blood-bone.html
 **Texas Led on Hard-Line Immigration Policies. Democrats Plan a Reversal.**\
 `A Democratic sweep in the state signals fresh momentum to curb aggressive ICE tactics across a shifting national landscape on immigration.`\
 https://www.nytimes.com/2026/11/08/us/texas-border-immigration-ice.html
-
-**In Argentina, Pope Leo to Meet Church at Odds With President Milei**\
-`The pontiff’s trip comes amid tensions between the country’s libertarian leader and its Catholic Church, which is deeply committed to social justice.`\
-https://www.nytimes.com/2026/11/08/world/americas/pope-leo-argentina-milei.html
-
-**The Washington Post’s First Black Masthead Editor Has Died**\
-`Milton Coleman was centrally involved in two major stories in the 1980s that raised questions of journalism ethics. He was 79.`\
-https://www.nytimes.com/2026/11/08/obituaries/milton-coleman-washington-post-dead.html
 

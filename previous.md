@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
 `Plus: Ways to leave your mentee and new-parent strife.`\
 https://www.nytimes.com/2026/11/08/business/personal-email-employer-privacy.html
 
-**In Talarico’s Texas, a Different Kind of Christianity Ascends**\
+**What Talarico’s Win Reveals About Christianity in Texas**\
 `Senator-elect James Talarico’s progressive Christianity seemed to resonate for many in a state whose politics and culture have been dominated by conservative evangelicalism.`\
 https://www.nytimes.com/2026/11/08/us/james-talarico-christianity-texas.html
 

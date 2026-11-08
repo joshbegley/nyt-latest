@@ -1,3 +1,7 @@
+**What Talarico’s Win Reveals About Christianity in Texas**\
+`Senator-elect James Talarico’s progressive Christianity seemed to resonate for many in a state whose politics and culture have been dominated by conservative evangelicalism.`\
+https://www.nytimes.com/2026/11/08/us/james-talarico-christianity-texas.html
+
 **Connecticut Prep School Head Resigns in Face of I.R.S. Investigation**\
 `Charlie Cahn III, who was compensated more than $1 million annually leading Suffield Academy, was placed on leave last month by the school after it learned of the inquiry.`\
 https://www.nytimes.com/2026/11/08/nyregion/suffield-academy-irs-investigation-china.html
