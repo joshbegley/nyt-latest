@@ -1,3 +1,7 @@
+**Why Winning Big Matters**\
+`The midterm elections in the United States and recent votes in Europe show how blowout victories can make results impossible to deny.`\
+https://www.nytimes.com/2026/11/08/world/election-win-pete-hegseth-poland.html
+
 **Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
 `The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
