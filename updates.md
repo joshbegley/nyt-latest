@@ -1,3 +1,7 @@
+**Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
+`Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
+https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html
+
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Sunday, Nov. 8, 2026.`\
 https://www.nytimes.com/2026/11/07/pageoneplus/corrections-nov-8-2026.html

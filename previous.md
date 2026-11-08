@@ -1,3 +1,7 @@
+**Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
+`Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
+https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html
+
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Sunday, Nov. 8, 2026.`\
 https://www.nytimes.com/2026/11/07/pageoneplus/corrections-nov-8-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.htm
 **The Good, the Bad and the Cringe: 10 Ads That Defined the Midterms**\
 `In a Democratic landslide election, here are the ads that stood out. Some were effective, while others backfired.`\
 https://www.nytimes.com/2026/11/07/us/politics/midterm-ads-republicans-democrats.html
-
-**From Powerhouse to Punchline: The North Carolina G.O.P. Implosion**\
-`Republicans in North Carolina saw their state as a firewall, gerrymandered to protect incumbents even if Democrats kept winning the governorship. This week, the wall shattered.`\
-https://www.nytimes.com/2026/11/07/us/elections/north-carolina-republicans.html
 
