@@ -1,3 +1,7 @@
+**Here Are the Difficult Options Trump Is Weighing to Resolve the War in Iran**\
+`There are no good choices facing President Trump as he tries to find a way out of the deeply unpopular conflict. But there are choices.`\
+https://www.nytimes.com/2026/11/08/us/politics/trump-iran-options.html
+
 **When the Boss on the Phone Isn’t Real: How More Than $129 Million Was Stolen Using A.I.**\
 `A federal indictment alleges that three men used generative A.I. to impersonate voices of chief executives and lawyers to defraud companies of millions of dollars.`\
 https://www.nytimes.com/2026/11/08/business/ai-ceo-impersonation-theft.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/elections/mississippi-black-senator.html
 **Gina Hinojosa Takes on the Texas Government Republicans Built**\
 `In her first interview with The New York Times since her victory, the governor-elect talked about tackling data centers, abortion restrictions and Elon Musk.`\
 https://www.nytimes.com/2026/11/08/us/gina-hinojosa-texas-priorities.html
-
-**Georgia’s Governor-Elect on Democrats: ‘If We Don’t Deliver, Then Shame on All of Us’**\
-`On “The Interview,” Keisha Lance Bottoms discussed how Democrats could make sure they kept winning over voters in Georgia and the South.`\
-https://www.nytimes.com/video/podcasts/100000011266220/georgias-governor-elect-on-democrats-if-we-dont-deliver-then-shame-on-all-of-us.html
 
