@@ -1,3 +1,7 @@
+**When the Boss on the Phone Isn’t Real: How More Than $129 Million Was Stolen Using A.I.**\
+`A federal indictment alleges that three men used generative A.I. to impersonate voices of chief executives and lawyers to defraud companies of millions of dollars.`\
+https://www.nytimes.com/2026/11/08/business/ai-ceo-impersonation-theft.html
+
 **Republican Congressman Says He Will ‘Hear’ Debate Over Hegseth Impeachment**\
 `Democrats have said they will hold Trump officials accountable when they take control of Congress after huge wins in the midterms. Secretary of Defense Pete Hegseth’s impeachment may be on the agenda.`\
 https://www.nytimes.com/video/us/politics/100000011271001/us-politics-midterms-hegseth-impeachment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/gina-hinojosa-texas-priorities.html
 **Georgia’s Governor-Elect on Democrats: ‘If We Don’t Deliver, Then Shame on All of Us’**\
 `On “The Interview,” Keisha Lance Bottoms discussed how Democrats could make sure they kept winning over voters in Georgia and the South.`\
 https://www.nytimes.com/video/podcasts/100000011266220/georgias-governor-elect-on-democrats-if-we-dont-deliver-then-shame-on-all-of-us.html
-
-**Gina Hinojosa on Data Centers, Immigration and a Blue Texas**\
-`After a sweeping Democratic victory, Texas governor-elect Gina Hinojosa will try to reshape state politics and deliver on a series of campaign promises. She says the changes won’t happen overnight.`\
-https://www.nytimes.com/video/us/politics/100000011266333/gina-hinojosa-data-centers-immigration-texas.html
 

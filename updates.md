@@ -1,3 +1,7 @@
+**When the Boss on the Phone Isn’t Real: How More Than $129 Million Was Stolen Using A.I.**\
+`A federal indictment alleges that three men used generative A.I. to impersonate voices of chief executives and lawyers to defraud companies of millions of dollars.`\
+https://www.nytimes.com/2026/11/08/business/ai-ceo-impersonation-theft.html
+
 **Republican Congressman Says He Will ‘Hear’ Debate Over Hegseth Impeachment**\
 `Democrats have said they will hold Trump officials accountable when they take control of Congress after huge wins in the midterms. Secretary of Defense Pete Hegseth’s impeachment may be on the agenda.`\
 https://www.nytimes.com/video/us/politics/100000011271001/us-politics-midterms-hegseth-impeachment.html
