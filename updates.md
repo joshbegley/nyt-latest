@@ -1,3 +1,19 @@
+**In High-Wattage New York, Hochul Stays in the Shadows Despite a Big Win**\
+`Gov. Kathy Hochul scored a convincing victory over her Republican rival, the kind of win that can get people talking about higher office. But few are talking, not even her.`\
+https://www.nytimes.com/2026/11/08/nyregion/kathy-hochul-2028-ny.html
+
+**NYT Spelling Bee Answers for November 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/08/crosswords/spelling-bee-forum.html
+
+**This Century-Old Sewing Circle Ties New Yorkers Together**\
+`Older New Yorkers forge connections while chatting in three languages, sharing homemade cakes and crafting garments, as well as the occasional “weird-looking” doll.`\
+https://www.nytimes.com/2026/11/08/nyregion/sewing-knitting-group-nyc.html
+
+**‘He Poured Me a Draft, Put It in Front of Me and Looked at His Watch’**\
+`This week is the column’s 50th anniversary. It first appeared on Nov. 10, 1976. To mark the occasion, we’re featuring tales of New York City from contributors who answered our special Metropolitan Diary challenge.`\
+https://www.nytimes.com/2026/11/08/nyregion/metropolitan-diary.html
+
 **America Called. It Wants Its Government Back.**\
 `The midterm election can be understood as a plea for a government that actually cares about people.`\
 https://www.nytimes.com/2026/11/08/opinion/midterms-america-government.html
