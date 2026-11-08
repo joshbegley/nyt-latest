@@ -1,3 +1,7 @@
+**Democrats Now Have a Path to Sidestep the Electoral College. Would It Work?**\
+`Midterm victories have created the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
+https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
+
 **Keisha Lance Bottoms on a Civil Rights Leader’s Reaction to Her Historic Win**\
 `Andrew Young is a civil rights leader and a former mayor of Atlanta. On “The Interview,” Keisha Lance Bottoms discussed his reaction to her victory in the Georgia governor’s race.`\
 https://www.nytimes.com/video/podcasts/100000011269167/keisha-lance-bottoms-on-a-civil-rights-leaders-reaction-to-her-historic-win.html
