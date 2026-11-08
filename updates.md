@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
+`Sunday morning news shows will be dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
+https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
+
 **The Price of Child Stardom**\
 `We look at the dark side of K-pop.`\
 https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
