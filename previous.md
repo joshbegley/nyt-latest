@@ -1,3 +1,7 @@
+**What to Know About the Mass Shooting in Krakow, Poland**\
+`At least nine people were dead and at least 16 injured after shootings in Krakow and another town, the police said. The motive remains unclear.`\
+https://www.nytimes.com/2026/11/08/world/europe/poland-krakow-mass-shooting.html
+
 **Who Is Gadi Eisenkot, Israel’s Opposition Leader?**\
 `Mr. Eisenkot, a career general and the leading rival of Prime Minister Benjamin Netanyahu of Israel, will now have up to six weeks to form a coalition.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/israel-eisenkot-netanyahu-what-to-know.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/world/canada/roadside-attractions-giant-dinos
 **From the Front Page: Kennedy Is Elected President on Nov. 8, 1960**\
 `Senator John F. Kennedy of Massachusetts defeated Vice President Richard M. Nixon in the presidential election.`\
 https://www.nytimes.com/2026/11/08/learning/from-the-front-page-kennedy-is-elected-president-on-nov-8-1960.html
-
-**Read the Text Messages at the Center of the Cornell Rape Inquiry**\
-`After a Cornell student said fraternity members had sexually assaulted her, university investigators amassed a trove of communications from the student and the men she accused.`\
-https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-messages.html
 

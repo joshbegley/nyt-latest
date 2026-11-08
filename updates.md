@@ -1,3 +1,7 @@
+**What to Know About the Mass Shooting in Krakow, Poland**\
+`At least nine people were dead and at least 16 injured after shootings in Krakow and another town, the police said. The motive remains unclear.`\
+https://www.nytimes.com/2026/11/08/world/europe/poland-krakow-mass-shooting.html
+
 **Who Is Gadi Eisenkot, Israel’s Opposition Leader?**\
 `Mr. Eisenkot, a career general and the leading rival of Prime Minister Benjamin Netanyahu of Israel, will now have up to six weeks to form a coalition.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/israel-eisenkot-netanyahu-what-to-know.html
