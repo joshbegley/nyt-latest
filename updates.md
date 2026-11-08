@@ -1,3 +1,7 @@
+**Talk of Hegseth Impeachment Grows After Democratic Midterm Sweep**\
+`Republicans faced questions about the future of Defense Secretary Pete Hegseth while Hakeem Jeffries, the House Democratic leader, said he was a “hard yes” on a vote expected this week. Attorney General Todd Blanche promised to staunchly defend cabinet officials.`\
+https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
+
 **Jeffries Backs Impeaching Hegseth as Democrats Push for Accountability**\
 `Democrats have begun laying the groundwork for an aggressive oversight agenda aimed at the Trump administration. But a political reckoning could come before the new Congress begins.`\
 https://www.nytimes.com/2026/11/08/us/politics/pete-hegseth-impeachment-hakeem-jeffries.html
