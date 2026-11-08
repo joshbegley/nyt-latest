@@ -1,3 +1,7 @@
+**NASA Is Selecting Future Astronauts. Here’s How to Apply.**\
+`The space agency is recruiting its next class of space travelers for missions to low-Earth orbit and the moon. Applications are due Dec. 3.`\
+https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
+
 **Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
 `Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
 https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html

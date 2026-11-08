@@ -14,8 +14,8 @@ https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-
 `Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
 https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
 
-**NASA Is Seeking Its Next Class of Astronauts**\
-`The new space travelers will most likely be trained for missions to the moon and space stations in low-Earth orbit. Applications are due Dec. 3.`\
+**NASA Is Selecting Future Astronauts. Here’s How to Apply.**\
+`The space agency is recruiting its next class of space travelers for missions to low-Earth orbit and the moon. Applications are due Dec. 3.`\
 https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
 
 **Gunman Kills at Least 6 in Poland, Police Say**\
