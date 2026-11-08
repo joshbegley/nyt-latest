@@ -1,3 +1,7 @@
+**Connecticut Prep School Head Resigns in Face of I.R.S. Investigation**\
+`Charlie Cahn III, who was compensated more than $1 million annually leading Suffield Academy, was placed on leave last month by the school after it learned of the inquiry.`\
+https://www.nytimes.com/2026/11/08/nyregion/suffield-academy-irs-investigation-china.html
+
 **Inside Kim Kardashian and Nicole Kidman’s Night at the LACMA Gala**\
 `The Los Angeles County Museum of Art’s annual gala, which drew a crowd of artists, actors and musicians, was its own eclectic mix of curiosities.`\
 https://www.nytimes.com/2026/11/08/style/lacma-gala-kim-kardashian-nicole-kidman.html
