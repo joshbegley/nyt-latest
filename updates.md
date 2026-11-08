@@ -1,3 +1,7 @@
+**Michael Ward Stout, Lawyer Who Ran Mapplethorpe’s Foundation, Has Died**\
+`He became immersed in the art world through Salvador Dalí and worked with several artists’ foundations and estates. He was 83.`\
+https://www.nytimes.com/2026/11/08/arts/design/michael-stout-dead.html
+
 **Why the Iran War Has Spurred Both Clean Energy and Fossil Fuels**\
 `The shock to global oil prices has caused a surge in demand for electric vehicles while propelling a race for immediate, secure power supplies.`\
 https://www.nytimes.com/2026/11/08/business/cop-31-iran-war-oil.html
