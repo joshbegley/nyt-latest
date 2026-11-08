@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ James Talarico Gets to Interrupt Trump**\
+`The Democratic senator-elect from Texas popped up to turn the tables on the show’s Trump impersonator, James Austin Johnson, in an episode hosted by the comedian Druski.`\
+https://www.nytimes.com/2026/11/08/arts/television/saturday-night-live-druski-the-strokes.html
+
 **The Bible Chapter that Helps Explain the New Christian Left**\
 `A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
 https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/opinion/novaya-gazeta-russia-putin-newspaper.
 **South Africa’s Politics May Never Be the Same Again**\
 `The African National Congress lost big in local elections, turning a once-dominant force credited with overturning apartheid into “any other political party.”`\
 https://www.nytimes.com/2026/11/08/world/africa/south-africa-election-african-national-congress.html
-
-**Quote of the Day: Crossing an Ocean so She Can Continue Studying the Sky**\
-`Quotation of the Day for Sunday, November 8.`\
-https://www.nytimes.com/2026/11/08/pageoneplus/quote-of-the-day-crossing-an-ocean-so-she-can-continue-studying-the-sky.html
 
