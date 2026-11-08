@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 9, 2026**\
+`Leslie Benson means well.`\
+https://www.nytimes.com/2026/11/08/crosswords/daily-puzzle-2026-11-09.html
+
 **Targeted by U.S., Armed Group Strikes Back in Colombia**\
 `American forces are helping Colombia and Venezuela hunt the ELN. This weekend, the group attacked a Colombian military base with drones, officials said.`\
 https://www.nytimes.com/2026/11/08/world/americas/colombia-drone-attack-eln.html

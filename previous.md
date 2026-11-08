@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 9, 2026**\
+`Leslie Benson means well.`\
+https://www.nytimes.com/2026/11/08/crosswords/daily-puzzle-2026-11-09.html
+
 **Targeted by U.S., Armed Group Strikes Back in Colombia**\
 `American forces are helping Colombia and Venezuela hunt the ELN. This weekend, the group attacked a Colombian military base with drones, officials said.`\
 https://www.nytimes.com/2026/11/08/world/americas/colombia-drone-attack-eln.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011266333/gina-hinojosa-data-cen
 **Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
 `The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
 https://www.nytimes.com/video/podcasts/100000011266230/keisha-lance-bottoms-on-what-democrats-can-do-to-make-their-victory-last.html
-
-**Republicans Point Fingers, but Trump Does Not Appear to Be Listening**\
-`After last week’s midterm losses, the Republican Party entered its most uncertain moment in years. Some Republicans called for moderation and cleaning house, but that will be difficult with President Trump still in the White House.`\
-https://www.nytimes.com/2026/11/08/us/politics/republican-blame-trump-midterms.html
 
