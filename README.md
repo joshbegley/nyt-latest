@@ -1,3 +1,7 @@
+**Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
+`The Saudi authorities said no one was injured and that “falling shrapnel” from an intercepted missile had hit the building in the capital’s financial district.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
+
 **What to Know About the Mass Shooting in Krakow, Poland**\
 `At least nine people were dead and at least 16 injured after shootings in Krakow and another town, the police said. The motive remains unclear.`\
 https://www.nytimes.com/2026/11/08/world/europe/poland-krakow-mass-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/world/asia/onesemo-new-zealand-chef-samoa.htm
 **The Small-Town Colossus Faces the End of the Road**\
 `Giant roadside attractions have helped put hundreds of communities on the map. What happens when their novelty fades and costs pile up?`\
 https://www.nytimes.com/2026/11/08/world/canada/roadside-attractions-giant-dinosaur.html
-
-**From the Front Page: Kennedy Is Elected President on Nov. 8, 1960**\
-`Senator John F. Kennedy of Massachusetts defeated Vice President Richard M. Nixon in the presidential election.`\
-https://www.nytimes.com/2026/11/08/learning/from-the-front-page-kennedy-is-elected-president-on-nov-8-1960.html
 
