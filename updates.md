@@ -1,3 +1,11 @@
+**Trains Collide Near Cairo, Killing 4**\
+`The crash between two passenger trains was the latest in a long history of deadly rail accidents in Egypt, despite billions of dollars spent modernizing the network.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
+
+**Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
+`The Saudi authorities said no one was hurt after “falling shrapnel” hit the building in Riyadh’s financial district — one of the highest-profile areas targeted by the Houthis.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
+
 **10 Best Looks From the LACMA Art+Film Gala**\
 `At LACMA’s Art+Film Gala, guests flaunted sequins and tulle, and some bared their bums in front of the museum’s famous lamppost installation.`\
 https://www.nytimes.com/2026/11/08/style/lacma-gala-best-dressed-gucci.html

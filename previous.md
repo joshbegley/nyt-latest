@@ -1,3 +1,7 @@
+**Trains Collide Near Cairo, Killing 4**\
+`The crash between two passenger trains was the latest in a long history of deadly rail accidents in Egypt, despite billions of dollars spent modernizing the network.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
+
 **10 Best Looks From the LACMA Art+Film Gala**\
 `At LACMA’s Art+Film Gala, guests flaunted sequins and tulle, and some bared their bums in front of the museum’s famous lamppost installation.`\
 https://www.nytimes.com/2026/11/08/style/lacma-gala-best-dressed-gucci.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
 https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
 
 **Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
-`The Saudi authorities said no one was injured and that “falling shrapnel” from an intercepted missile had hit the building in the capital’s financial district.`\
+`The Saudi authorities said no one was hurt after “falling shrapnel” hit the building in Riyadh’s financial district — one of the highest-profile areas targeted by the Houthis.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
 
 **What to Know About the Mass Shooting in Krakow, Poland**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/business/anime-japan-sony-demonslayer.html
 **Book Review: ‘No Such Thing as Monday,’ by Sian Hughes**\
 `The British novelist Siân Hughes smartly excavates one woman’s messy past and midlife crash-out in “No Such Thing as Monday.”`\
 https://www.nytimes.com/2026/11/08/books/review/no-such-thing-as-monday-sian-hughes.html
-
-**Hakeem Jeffries, in Line to Become House Speaker, Promises Bold Agenda**\
-`The man in line to be the first Black speaker is a reserved moderate seen by activists on the left as too timid to take on President Trump. He says he’s “strongly positioned” to get things done.`\
-https://www.nytimes.com/2026/11/08/us/politics/hakeem-jeffries-house-democrats-speaker.html
 
