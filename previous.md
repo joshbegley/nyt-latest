@@ -1,3 +1,7 @@
+**Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
+`The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by last spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/08/us/politics/rubio-warned-officials-about-nvidia-chiefs-entanglement-with-chinese-spy.html
+
 **More Than 3,000 Tarantulas Found in Smugglers’ Socks at Peru Airport**\
 `The National Forest and Wildlife Service of Peru said three people had tried to smuggle the tarantulas, which included a threatened species, into Germany.`\
 https://www.nytimes.com/2026/11/08/world/americas/tarantulas-spiders-airport-peru.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
 **Medicare Advantage vs. Traditional Medicare, Explained**\
 `When you sign up for the retiree health plan, the two options can present a financial puzzle. But cost is just one factor.`\
 https://www.nytimes.com/2026/11/08/business/original-medicare-advantage.html
-
-**Phil Collins Knew He Was ‘Lucky,’ if Not Cool**\
-`When the Rock & Roll Hall of Fame inducts Collins as a solo artist this month, it will recognize a hitmaker whose popularity often overshadowed his intensity.`\
-https://www.nytimes.com/2026/11/08/arts/music/phil-collins-knew-he-was-lucky-if-not-cool.html
 
