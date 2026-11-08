@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/11/08/style/lacma-gala-kim-kardashian-nicole-kidman
 https://www.nytimes.com/2026/11/08/us/georgia-state-house-race-memory-card.html
 
 **Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
-`The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
+`The secretary of state’s role in drafting a secret memo highlights how top officials were concerned this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
 
 **More Than 3,000 Tarantulas Found in Smugglers’ Socks at Peru Airport**\
