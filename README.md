@@ -1,3 +1,7 @@
+**Inside Kim Kardashian and Nicole Kidman’s Night at the LACMA Gala**\
+`The Los Angeles County Museum of Art’s annual gala, which drew a crowd of artists, actors and musicians, was its own eclectic mix of curiosities.`\
+https://www.nytimes.com/2026/11/08/style/lacma-gala-kim-kardashian-nicole-kidman.html
+
 **The Memory Card That Could Upend a State House Race in Georgia**\
 `The Democrat was leading the race for a district when officials realized there were missing votes from a single memory card. Now the Republican has the edge.`\
 https://www.nytimes.com/2026/11/08/us/georgia-state-house-race-memory-card.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/obituaries/milton-coleman-washington-post-dea
 **How an Intern and a Biologist Rescued an Orphaned Walrus in Alaska**\
 `An injured five-month-old walrus huddled next to carcasses in remote Alaska after it became separated from its mother. Humans came to its rescue.`\
 https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
-
-**Book Review: ‘The Telephone,’ by James Gleick**\
-`James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
-https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
 
