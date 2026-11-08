@@ -1,3 +1,7 @@
+**Jeffries Backs Impeaching Hegseth as Democrats Push for Accountability**\
+`Democrats have begun laying the groundwork for an aggressive oversight agenda aimed at the Trump administration. But a political reckoning could come before the new Congress begins.`\
+https://www.nytimes.com/2026/11/08/us/politics/pete-hegseth-impeachment-hakeem-jeffries.html
+
 **Tesla Announces It Will Discontinue the Cybertruck, a Culture War on Wheels**\
 `Feelings about the angular, stainless steel pickup run deep.`\
 https://www.nytimes.com/2026/11/08/us/tesla-cybertruck-culture-war.html
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/11/08/world/americas/pope-leo-argentina-milei.html
 `Milton Coleman was centrally involved in two major stories in the 1980s that raised questions of journalism ethics. He was 79.`\
 https://www.nytimes.com/2026/11/08/obituaries/milton-coleman-washington-post-dead.html
 
-**Book Review: ‘The Telephone,’ by James Gleick**\
-`James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
-https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
-
 **How an Intern and a Biologist Rescued an Orphaned Walrus in Alaska**\
 `An injured five-month-old walrus huddled next to carcasses in remote Alaska after it became separated from its mother. Humans came to its rescue.`\
 https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
+
+**Book Review: ‘The Telephone,’ by James Gleick**\
+`James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
+https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
 
 **Medicare Advantage vs. Traditional Medicare, Explained**\
 `When you sign up for the retiree health plan, the two options can present a financial puzzle. But cost is just one factor.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/arts/music/phil-collins-knew-he-was-lucky-if-
 **TikTok Diamond Auctions Are Instant. Are They Any Good?**\
 `In recent months, piles of lab-grown sparkly diamonds have been available for bidding and purchase on the app.`\
 https://www.nytimes.com/2026/11/08/style/tiktok-shop-diamond-auctions.html
-
-**The New Luxury Wedding Trend? Keeping It Off Social Media.**\
-`Even content creators are drawing the line at sharing their weddings online as privacy becomes a true luxury.`\
-https://www.nytimes.com/2026/11/08/style/weddings-social-media-privacy.html
 
