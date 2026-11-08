@@ -1,3 +1,7 @@
+**The Memory Card That Could Upend a State House Race in Georgia**\
+`The Democrat was leading the race for a district when officials realized there were missing votes from a single memory card. Now the Republican has the edge.`\
+https://www.nytimes.com/2026/11/08/us/georgia-state-house-race-memory-card.html
+
 **Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
 `The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by last spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
 **Book Review: ‘The Telephone,’ by James Gleick**\
 `James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
 https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
-
-**Medicare Advantage vs. Traditional Medicare, Explained**\
-`When you sign up for the retiree health plan, the two options can present a financial puzzle. But cost is just one factor.`\
-https://www.nytimes.com/2026/11/08/business/original-medicare-advantage.html
 
