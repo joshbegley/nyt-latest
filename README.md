@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/11/08/us/tesla-cybertruck-culture-war.html
 https://www.nytimes.com/2026/11/08/theater/the-charioteer-review.html
 
 **Trains Collide Near Cairo, Killing 4**\
-`The crash between two passenger trains was the latest in a long history of deadly rail accidents in Egypt, despite billions of dollars spent modernizing the network.`\
+`The crash between two passenger trains was the latest in a history of deadly rail accidents in Egypt, despite billions spent modernizing the network.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
 
 **10 Best Looks From the LACMA Art+Film Gala**\
