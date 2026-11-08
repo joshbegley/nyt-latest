@@ -1,3 +1,7 @@
+**Corrections: Nov. 7, 2026**\
+`Corrections that appeared in print on Sunday, Nov. 8, 2026.`\
+https://www.nytimes.com/2026/11/07/pageoneplus/corrections-nov-8-2026.html
+
 **A Year in Money: Four People Share How They Spend, Save and Pay Off Debt**\
 `For a year, The New York Times followed along as they tried to get a handle on their money. It wasn’t easy for any of them.`\
 https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-money.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/07/us/politics/midterm-ads-republicans-democrats
 **From Powerhouse to Punchline: The North Carolina G.O.P. Implosion**\
 `Republicans in North Carolina saw their state as a firewall, gerrymandered to protect incumbents even if Democrats kept winning the governorship. This week, the wall shattered.`\
 https://www.nytimes.com/2026/11/07/us/elections/north-carolina-republicans.html
-
-**He’ll Be Clerk of One of the Country’s Largest Counties. He’s 19.**\
-`Sebastian Matta, a sophomore at Arizona State University, was elected on Tuesday as Superior Court clerk in Maricopa County, Ariz.`\
-https://www.nytimes.com/2026/11/07/us/politics/asu-student-maricopa-county-clerk-election.html
 
