@@ -1,3 +1,27 @@
+**South Africa’s Politics May Never Be the Same Again**\
+`The African National Congress lost big in local elections, turning a once-dominant force credited with overturning apartheid into “any other political party.”`\
+https://www.nytimes.com/2026/11/08/world/africa/south-africa-election-african-national-congress.html
+
+**Quote of the Day: Crossing an Ocean so She Can Continue Studying the Sky**\
+`Quotation of the Day for Sunday, November 8.`\
+https://www.nytimes.com/2026/11/08/pageoneplus/quote-of-the-day-crossing-an-ocean-so-she-can-continue-studying-the-sky.html
+
+**Polluted Delhi Tries ‘Green’ Fireworks to Clear the Air at Diwali**\
+`India’s top court decreed that only more environmentally friendly fireworks could be set off this weekend, citing air quality concerns. But environmental activists call it a “green wash.”`\
+https://www.nytimes.com/2026/11/08/world/asia/delhi-pollution-green-fireworks-diwali.html
+
+**Samoan Chef Brings Flavors of Home to New Zealand’s Fine-Dining Scene**\
+`Food was at the heart of Henry Onesemo’s South Pacific island upbringing. Now, he’s bringing flavors of home to his Michelin-starred restaurant in New Zealand.`\
+https://www.nytimes.com/2026/11/08/world/asia/onesemo-new-zealand-chef-samoa.html
+
+**The Small-Town Colossus Faces the End of the Road**\
+`Giant roadside attractions have helped put hundreds of communities on the map. What happens when their novelty fades and costs pile up?`\
+https://www.nytimes.com/2026/11/08/world/canada/roadside-attractions-giant-dinosaur.html
+
+**From the Front Page: Kennedy Is Elected President on Nov. 8, 1960**\
+`Senator John F. Kennedy of Massachusetts defeated Vice President Richard M. Nixon in the presidential election.`\
+https://www.nytimes.com/2026/11/08/learning/from-the-front-page-kennedy-is-elected-president-on-nov-8-1960.html
+
 **Read the Text Messages at the Center of the Cornell Rape Inquiry**\
 `After a Cornell student said fraternity members had sexually assaulted her, university investigators amassed a trove of communications from the student and the men she accused.`\
 https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-messages.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/07/opinion/children-screens.html
 **Hunkering Down**\
 `The urge to hibernate comes on strong as the days get shorter. But there are good reasons to resist, at least a little.`\
 https://www.nytimes.com/2026/11/07/briefing/hunkering-down.html
-
-**Can I Have an A.I. Chatbot Field My Mother’s Endless Complaints?**\
-`It could serve as an infinitely patient sounding board and source of practical help.`\
-https://www.nytimes.com/2026/11/07/magazine/chatbot-elderly-mother-ethics.html
-
-**Today’s Wordle Hints for November 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
-https://www.nytimes.com/2026/11/07/crosswords/wordle-review-1968.html
-
-**America’s Rebuke of Trump Won’t Swiftly Restore Canada-U.S. Harmony**\
-`While U.S. voters largely oppose the trade war with Canada, many Democrats and their supporters have protectionist leanings.`\
-https://www.nytimes.com/2026/11/07/world/canada/carney-trump-canada-us-relations-midterm-elections.html
-
-**NYT Strands Hints for November 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
-https://www.nytimes.com/2026/11/07/crosswords/strands-sidekick-980.html
-
-**NYT Connections Answers for November 8, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 8, 2026.`\
-https://www.nytimes.com/2026/11/07/crosswords/connections-companion-1246.html
-
-**Still on the President’s Agenda: Daylight Saving Time**\
-`Following an election-year rout for Republicans, Trump castigated lawmakers for not passing the Sunshine Protection Act. Some scientists have warned against the change.`\
-https://www.nytimes.com/2026/11/07/science/donald-trump-daylight-saving-time.html
 
