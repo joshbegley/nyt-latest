@@ -1,3 +1,27 @@
+**A Stake Through the Heart of Trump’s Red Map**\
+`Realignment is so 2024.`\
+https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
+
+**No Party Owns Young Men**\
+`There’s an opportunity for the side that takes the time to understand young men and helps them achieve their American dreams.`\
+https://www.nytimes.com/2026/11/08/opinion/midterm-elections-young-men.html
+
+**The Netflix ‘East of Eden’ Adaptation Came Just in Time**\
+`The Netflix adaptation offers a seven-part meditation on an extreme, unchecked expression of — specifically female — anger.`\
+https://www.nytimes.com/2026/11/08/opinion/east-of-eden-netflix-women.html
+
+**Today’s Wordle Hints for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/wordle-review-1969.html
+
+**NYT Strands Hints for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/strands-sidekick-981.html
+
+**NYT Connections Answers for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/connections-companion-1247.html
+
 **Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
 `The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
 https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html

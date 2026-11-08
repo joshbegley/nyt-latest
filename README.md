@@ -1,3 +1,7 @@
+**Republicans Don’t Understand Men, Either**\
+`For the most part, young men want to be good men.`\
+https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
+
 **A Stake Through the Heart of Trump’s Red Map**\
 `Realignment is so 2024.`\
 https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-message
 **Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
 `Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
 https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html
-
-**Corrections: Nov. 7, 2026**\
-`Corrections that appeared in print on Sunday, Nov. 8, 2026.`\
-https://www.nytimes.com/2026/11/07/pageoneplus/corrections-nov-8-2026.html
 

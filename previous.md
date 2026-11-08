@@ -1,3 +1,27 @@
+**A Stake Through the Heart of Trump’s Red Map**\
+`Realignment is so 2024.`\
+https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
+
+**No Party Owns Young Men**\
+`There’s an opportunity for the side that takes the time to understand young men and helps them achieve their American dreams.`\
+https://www.nytimes.com/2026/11/08/opinion/midterm-elections-young-men.html
+
+**The Netflix ‘East of Eden’ Adaptation Came Just in Time**\
+`The Netflix adaptation offers a seven-part meditation on an extreme, unchecked expression of — specifically female — anger.`\
+https://www.nytimes.com/2026/11/08/opinion/east-of-eden-netflix-women.html
+
+**Today’s Wordle Hints for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/wordle-review-1969.html
+
+**NYT Strands Hints for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/strands-sidekick-981.html
+
+**NYT Connections Answers for November 9, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
+https://www.nytimes.com/2026/11/08/crosswords/connections-companion-1247.html
+
 **Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
 `The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
 https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicis
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Sunday, Nov. 8, 2026.`\
 https://www.nytimes.com/2026/11/07/pageoneplus/corrections-nov-8-2026.html
-
-**A Year in Money: Four People Share How They Spend, Save and Pay Off Debt**\
-`For a year, The New York Times followed along as they tried to get a handle on their money. It wasn’t easy for any of them.`\
-https://www.nytimes.com/interactive/2026/11/07/your-money/personal-finance-debt-money.html
-
-**Mixed Results**\
-`Don’t fear Simeon Seigel’s delightful construction — it all comes together in the end.`\
-https://www.nytimes.com/2026/11/07/crosswords/daily-puzzle-2026-11-08.html
-
-**NASA Is Selecting Future Astronauts. Here’s How to Apply.**\
-`The space agency is recruiting its next class of space travelers for missions to low-Earth orbit and the moon. Applications are due Dec. 3.`\
-https://www.nytimes.com/2026/11/07/science/nasa-recruiting-astronauts.html
-
-**Gunman Kills at Least 6 in Poland, Police Say**\
-`A gunman opened fire at a main market square in Krakow, Poland, killing at least six people and wounding several others, the police said.`\
-https://www.nytimes.com/video/world/europe/100000011269861/gunman-krakow-poland-shooting.html
-
-**Trump Asks Dana White of U.F.C. to Be His Press Secretary**\
-`On social media, the president offered the now-vacant job of White House press secretary to Dana White, the organization’s C.E.O., and told him to bring along fighters as aides.`\
-https://www.nytimes.com/2026/11/07/us/politics/trump-dana-white-ufc-press-secretary.html
-
-**Alien Throne, a Unique Rock Formation in New Mexico, Collapses Amid Heavy Rains**\
-`The oddly shaped 15-foot-tall pillar collapsed after a torrent of rain. It was the second loss of a striking rock formation in the region in less than a month.`\
-https://www.nytimes.com/2026/11/07/us/alien-throne-king-of-wings-new-mexico.html
 
