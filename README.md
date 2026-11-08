@@ -1,3 +1,7 @@
+**Republican Congressman Says He Will “Hear” Debate Over Hegseth Impeachment**\
+`Democrats have said they will hold Trump officials accountable when they take control of Congress after huge wins in the midterms. Secretary of Defense Pete Hegseth’s impeachment may be on the agenda.`\
+https://www.nytimes.com/video/us/politics/100000011271001/us-politics-midterms-hegseth-impeachment.html
+
 **NYT Crossword Answers for Nov. 9, 2026**\
 `Leslie Benson means well.`\
 https://www.nytimes.com/2026/11/08/crosswords/daily-puzzle-2026-11-09.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011266220/georgias-governor-elect-o
 **Gina Hinojosa on Data Centers, Immigration and a Blue Texas**\
 `After a sweeping Democratic victory, Texas governor-elect Gina Hinojosa will try to reshape state politics and deliver on a series of campaign promises. She says the changes won’t happen overnight.`\
 https://www.nytimes.com/video/us/politics/100000011266333/gina-hinojosa-data-centers-immigration-texas.html
-
-**Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
-`The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
-https://www.nytimes.com/video/podcasts/100000011266230/keisha-lance-bottoms-on-what-democrats-can-do-to-make-their-victory-last.html
 
