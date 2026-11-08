@@ -1,3 +1,7 @@
+**Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
+`The secretary of state’s role in drafting a secret memo highlights how top officials were concerned this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
+
 **What to Know About Nvidia’s Investigation of Its C.E.O.**\
 `Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
 https://www.nytimes.com/2026/11/08/technology/nvidias-investigation-jensen-huang.html

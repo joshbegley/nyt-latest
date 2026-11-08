@@ -1,3 +1,7 @@
+**Targeted by U.S., Armed Group Strikes Back in Colombia**\
+`American forces are helping Colombia and Venezuela hunt the ELN. This weekend, the group attacked a Colombian military base with drones, officials said.`\
+https://www.nytimes.com/2026/11/08/world/americas/colombia-drone-attack-eln.html
+
 **What to Know About Nvidia’s Investigation of Its C.E.O.**\
 `Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
 https://www.nytimes.com/2026/11/08/technology/nvidias-investigation-jensen-huang.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011266230/keisha-lance-bottoms-on-w
 **Republicans Point Fingers, but Trump Does Not Appear to Be Listening**\
 `After last week’s midterm losses, the Republican Party entered its most uncertain moment in years. Some Republicans called for moderation and cleaning house, but that will be difficult with President Trump still in the White House.`\
 https://www.nytimes.com/2026/11/08/us/politics/republican-blame-trump-midterms.html
-
-**A Guide to COP31 Climate Talks in Antalya, Turkey**\
-`Negotiators and leaders are gathering for annual United Nations climate talks. They come as global temperatures are set to breach a key threshold.`\
-https://www.nytimes.com/2026/11/08/climate/what-is-cop31-climate.html
 
