@@ -1,3 +1,7 @@
+**Justice Dept. Mulled Naming The Times as Conspirator in Comey Leak Case**\
+`It remains unclear how the Justice Department might proceed. The move would be a major escalation of the Trump administration’s recent attacks against the news media.`\
+https://www.nytimes.com/2026/11/08/us/politics/justice-dept-new-york-times-comey-leak.html
+
 **The Election Brought Lots of Change. Test Your Knowledge.**\
 `(No description)`\
 https://www.nytimes.com/quiz/2026/11/08/us/quiz-midterm-elections-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/nyregion/kathy-hochul-2028-ny.html
 **NYT Spelling Bee Answers for November 8, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/08/crosswords/spelling-bee-forum.html
-
-**This Century-Old Sewing Circle Ties New Yorkers Together**\
-`Older New Yorkers forge connections while chatting in three languages, sharing homemade cakes and crafting garments, as well as the occasional “weird-looking” doll.`\
-https://www.nytimes.com/2026/11/08/nyregion/sewing-knitting-group-nyc.html
 
