@@ -1,3 +1,7 @@
+**The Price of Child Stardom**\
+`We look at the dark side of K-pop.`\
+https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
+
 **Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
 `The Saudi authorities said no one was injured and that “falling shrapnel” from an intercepted missile had hit the building in the capital’s financial district.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/world/asia/delhi-pollution-green-fireworks-di
 **Samoan Chef Brings Flavors of Home to New Zealand’s Fine-Dining Scene**\
 `Food was at the heart of Henry Onesemo’s South Pacific island upbringing. Now, he’s bringing flavors of home to his Michelin-starred restaurant in New Zealand.`\
 https://www.nytimes.com/2026/11/08/world/asia/onesemo-new-zealand-chef-samoa.html
-
-**The Small-Town Colossus Faces the End of the Road**\
-`Giant roadside attractions have helped put hundreds of communities on the map. What happens when their novelty fades and costs pile up?`\
-https://www.nytimes.com/2026/11/08/world/canada/roadside-attractions-giant-dinosaur.html
 
