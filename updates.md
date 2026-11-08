@@ -1,3 +1,7 @@
+**The Bible Chapter That Helps Explain the New Christian Left**\
+`A few verses calling people to care for the hungry, the sick and the stranger have become a rallying cry for a new wave of Democrats.`\
+https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
+
 **Midterm Elections Live Updates: Talk of Hegseth Impeachment Grows After Democratic Sweep**\
 `Republicans faced questions about the future of Defense Secretary Pete Hegseth while Hakeem Jeffries, the House Democratic leader, said he was a “hard yes” on a vote expected this week. Attorney General Todd Blanche promised to staunchly defend cabinet officials.`\
 https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
