@@ -1,3 +1,7 @@
+**10 Best Looks From the LACMA Art+Film Gala**\
+`At LACMA’s Art+Film Gala, guests flaunted sequins and tulle, and some bared their bums in front of the museum’s famous lamppost installation.`\
+https://www.nytimes.com/2026/11/08/style/lacma-gala-best-dressed-gucci.html
+
 **Michael Ward Stout, Lawyer Who Ran Mapplethorpe’s Foundation, Has Died**\
 `He became immersed in the art world through Salvador Dalí and worked with several artists’ foundations and estates. He was 83.`\
 https://www.nytimes.com/2026/11/08/arts/design/michael-stout-dead.html
@@ -158,13 +162,13 @@ https://www.nytimes.com/2026/11/08/world/americas/pope-leo-argentina-milei.html
 `Milton Coleman was centrally involved in two major stories in the 1980s that raised questions of journalism ethics. He was 79.`\
 https://www.nytimes.com/2026/11/08/obituaries/milton-coleman-washington-post-dead.html
 
-**How an Intern and a Biologist Rescued an Orphaned Walrus in Alaska**\
-`An injured five-month-old walrus huddled next to carcasses in remote Alaska after it became separated from its mother. Humans came to its rescue.`\
-https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
-
 **Book Review: ‘The Telephone,’ by James Gleick**\
 `James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
 https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
+
+**How an Intern and a Biologist Rescued an Orphaned Walrus in Alaska**\
+`An injured five-month-old walrus huddled next to carcasses in remote Alaska after it became separated from its mother. Humans came to its rescue.`\
+https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
 
 **Medicare Advantage vs. Traditional Medicare, Explained**\
 `When you sign up for the retiree health plan, the two options can present a financial puzzle. But cost is just one factor.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/books/review/no-such-thing-as-monday-sian-hug
 **Hakeem Jeffries, in Line to Become House Speaker, Promises Bold Agenda**\
 `The man in line to be the first Black speaker is a reserved moderate seen by activists on the left as too timid to take on President Trump. He says he’s “strongly positioned” to get things done.`\
 https://www.nytimes.com/2026/11/08/us/politics/hakeem-jeffries-house-democrats-speaker.html
-
-**Partying with Ashlie Atkinson, the Cattiest Hostess of ‘The Gilded Age’**\
-`The actress Ashlie Atkinson, who plays the society fixture Mamie Fish on the HBO series, also loves to throw a bash — “the weirder the better.”`\
-https://www.nytimes.com/2026/11/08/style/ashlie-atkinson-mrs-fish-gilded-age.html
 

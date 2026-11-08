@@ -1,3 +1,7 @@
+**10 Best Looks From the LACMA Art+Film Gala**\
+`At LACMA’s Art+Film Gala, guests flaunted sequins and tulle, and some bared their bums in front of the museum’s famous lamppost installation.`\
+https://www.nytimes.com/2026/11/08/style/lacma-gala-best-dressed-gucci.html
+
 **Michael Ward Stout, Lawyer Who Ran Mapplethorpe’s Foundation, Has Died**\
 `He became immersed in the art world through Salvador Dalí and worked with several artists’ foundations and estates. He was 83.`\
 https://www.nytimes.com/2026/11/08/arts/design/michael-stout-dead.html
