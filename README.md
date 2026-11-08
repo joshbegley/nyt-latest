@@ -1,3 +1,7 @@
+**Michael Ward Stout, Lawyer Who Ran Mapplethorpe’s Foundation, Has Died**\
+`He became immersed in the art world through Salvador Dalí and worked with several artists’ foundations and estates. He was 83.`\
+https://www.nytimes.com/2026/11/08/arts/design/michael-stout-dead.html
+
 **Why the Iran War Has Spurred Both Clean Energy and Fossil Fuels**\
 `The shock to global oil prices has caused a surge in demand for electric vehicles while propelling a race for immediate, secure power supplies.`\
 https://www.nytimes.com/2026/11/08/business/cop-31-iran-war-oil.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/politics/hakeem-jeffries-house-democrats-s
 **Partying with Ashlie Atkinson, the Cattiest Hostess of ‘The Gilded Age’**\
 `The actress Ashlie Atkinson, who plays the society fixture Mamie Fish on the HBO series, also loves to throw a bash — “the weirder the better.”`\
 https://www.nytimes.com/2026/11/08/style/ashlie-atkinson-mrs-fish-gilded-age.html
-
-**In High-Wattage New York, Hochul Stays in the Shadows Despite a Big Win**\
-`Gov. Kathy Hochul scored a convincing victory over her Republican rival, the kind of win that can get people talking about higher office. But few are talking, not even her.`\
-https://www.nytimes.com/2026/11/08/nyregion/kathy-hochul-2028-ny.html
 

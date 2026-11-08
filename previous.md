@@ -154,13 +154,13 @@ https://www.nytimes.com/2026/11/08/world/americas/pope-leo-argentina-milei.html
 `Milton Coleman was centrally involved in two major stories in the 1980s that raised questions of journalism ethics. He was 79.`\
 https://www.nytimes.com/2026/11/08/obituaries/milton-coleman-washington-post-dead.html
 
-**Book Review: ‘The Telephone,’ by James Gleick**\
-`James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
-https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
-
 **How an Intern and a Biologist Rescued an Orphaned Walrus in Alaska**\
 `An injured five-month-old walrus huddled next to carcasses in remote Alaska after it became separated from its mother. Humans came to its rescue.`\
 https://www.nytimes.com/2026/11/08/us/walrus-alaska-rescue.html
+
+**Book Review: ‘The Telephone,’ by James Gleick**\
+`James Gleick’s latest book is an encyclopedic homage to the technology that dominated life, romantic and otherwise, in the last century.`\
+https://www.nytimes.com/2026/11/08/books/review/the-telephone-james-gleick.html
 
 **Medicare Advantage vs. Traditional Medicare, Explained**\
 `When you sign up for the retiree health plan, the two options can present a financial puzzle. But cost is just one factor.`\
