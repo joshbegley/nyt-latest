@@ -1,3 +1,7 @@
+**What to Know About Nvidia’s Investigation of Its C.E.O.**\
+`Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
+https://www.nytimes.com/2026/11/08/technology/nvidias-investigation-jensen-huang.html
+
 **Reeling From Rare Mass Shooting, Poles Ask What Set Off Young Suspect**\
 `Officials say that a 24-year-old killed his family and then six people during a rampage in Krakow. Now they are trying to determine the motive.`\
 https://www.nytimes.com/2026/11/08/world/europe/poland-shooting-suspect-family.html

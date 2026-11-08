@@ -1,3 +1,7 @@
+**What to Know About Nvidia’s Investigation of Its C.E.O.**\
+`Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
+https://www.nytimes.com/2026/11/08/technology/nvidias-investigation-jensen-huang.html
+
 **Eisenkot Tasked With Forming Next Israeli Government**\
 `Gadi Eisenkot, the leading rival of Prime Minister Benjamin Netanyahu of Israel, was tapped to try to form a new government, but the path remains complicated.`\
 https://www.nytimes.com/video/world/middleeast/100000011270513/israel-eisenkot-government.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/politics/republican-blame-trump-midterms.h
 **A Guide to COP31 Climate Talks in Antalya, Turkey**\
 `Negotiators and leaders are gathering for annual United Nations climate talks. They come as global temperatures are set to breach a key threshold.`\
 https://www.nytimes.com/2026/11/08/climate/what-is-cop31-climate.html
-
-**Democrats Now Have a Path to Sidestep the Electoral College. Would It Work?**\
-`Midterm victories have given states the opportunity to elevate the national popular vote, but obstacles like legal challenges would loom.`\
-https://www.nytimes.com/2026/11/08/upshot/democrats-electoral-college.html
 
