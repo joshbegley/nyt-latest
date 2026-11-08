@@ -1,3 +1,7 @@
+**Inside Kim Kardashian and Nicole Kidman’s Night at the LACMA Gala**\
+`The Los Angeles County Museum of Art’s annual gala, which drew a crowd of artists, actors and musicians, was its own eclectic mix of curiosities.`\
+https://www.nytimes.com/2026/11/08/style/lacma-gala-kim-kardashian-nicole-kidman.html
+
 **Trains Collide Near Cairo, Killing 4**\
 `The crash between two passenger trains was the latest in a history of deadly rail accidents in Egypt, despite billions spent modernizing the network.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
