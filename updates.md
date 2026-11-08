@@ -1,3 +1,7 @@
+**Republicans Don’t Understand Men, Either**\
+`For the most part, young men want to be good men.`\
+https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
+
 **A Stake Through the Heart of Trump’s Red Map**\
 `Realignment is so 2024.`\
 https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
