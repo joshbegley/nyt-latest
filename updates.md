@@ -1,3 +1,7 @@
+**Jeffries Backs Impeaching Hegseth as Democrats Push for Accountability**\
+`Democrats have begun laying the groundwork for an aggressive oversight agenda aimed at the Trump administration. But a political reckoning could come before the new Congress begins.`\
+https://www.nytimes.com/2026/11/08/us/politics/pete-hegseth-impeachment-hakeem-jeffries.html
+
 **Tesla Announces It Will Discontinue the Cybertruck, a Culture War on Wheels**\
 `Feelings about the angular, stainless steel pickup run deep.`\
 https://www.nytimes.com/2026/11/08/us/tesla-cybertruck-culture-war.html
