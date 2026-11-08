@@ -1,3 +1,7 @@
+**The Price of Child Stardom**\
+`We look at the dark side of K-pop.`\
+https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
+
 **Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
 `The Saudi authorities said no one was injured and that “falling shrapnel” from an intercepted missile had hit the building in the capital’s financial district.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html

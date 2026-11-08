@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
+`Sunday morning news shows will be dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
+https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
+
 **The Price of Child Stardom**\
 `We look at the dark side of K-pop.`\
 https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/pageoneplus/quote-of-the-day-crossing-an-ocea
 **Polluted Delhi Tries ‘Green’ Fireworks to Clear the Air at Diwali**\
 `India’s top court decreed that only more environmentally friendly fireworks could be set off this weekend, citing air quality concerns. But environmental activists call it a “green wash.”`\
 https://www.nytimes.com/2026/11/08/world/asia/delhi-pollution-green-fireworks-diwali.html
-
-**Samoan Chef Brings Flavors of Home to New Zealand’s Fine-Dining Scene**\
-`Food was at the heart of Henry Onesemo’s South Pacific island upbringing. Now, he’s bringing flavors of home to his Michelin-starred restaurant in New Zealand.`\
-https://www.nytimes.com/2026/11/08/world/asia/onesemo-new-zealand-chef-samoa.html
 
