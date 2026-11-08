@@ -1,3 +1,7 @@
+**Why the Iran War Has Spurred Both Clean Energy and Fossil Fuels**\
+`The shock to global oil prices has caused a surge in demand for electric vehicles while propelling a race for immediate, secure power supplies.`\
+https://www.nytimes.com/2026/11/08/business/cop-31-iran-war-oil.html
+
 **Justice Dept. Mulled Naming The Times as Conspirator in Comey Leak Case**\
 `It remains unclear how the Justice Department might proceed. The move would be a major escalation of the Trump administration’s recent attacks against the news media.`\
 https://www.nytimes.com/2026/11/08/us/politics/justice-dept-new-york-times-comey-leak.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/style/ashlie-atkinson-mrs-fish-gilded-age.htm
 **In High-Wattage New York, Hochul Stays in the Shadows Despite a Big Win**\
 `Gov. Kathy Hochul scored a convincing victory over her Republican rival, the kind of win that can get people talking about higher office. But few are talking, not even her.`\
 https://www.nytimes.com/2026/11/08/nyregion/kathy-hochul-2028-ny.html
-
-**NYT Spelling Bee Answers for November 8, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/08/crosswords/spelling-bee-forum.html
 

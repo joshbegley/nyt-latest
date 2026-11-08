@@ -1,3 +1,7 @@
+**Why the Iran War Has Spurred Both Clean Energy and Fossil Fuels**\
+`The shock to global oil prices has caused a surge in demand for electric vehicles while propelling a race for immediate, secure power supplies.`\
+https://www.nytimes.com/2026/11/08/business/cop-31-iran-war-oil.html
+
 **Midterm Elections Live Updates: After Democratic Sweep, Partisan Clashes Erupt on Sunday Shows**\
 `Representative Hakeem Jeffries, the Democratic leader, said he was a “hard yes” on a vote to impeach Defense Secretary Pete Hegseth that is expected to come to the House floor this week.`\
 https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
