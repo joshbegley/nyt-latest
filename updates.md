@@ -1,3 +1,11 @@
+**Eisenkot Tasked With Forming Next Israeli Government**\
+`Gadi Eisenkot, the leading rival of Prime Minister Benjamin Netanyahu of Israel, was tapped to try to form a new government, but the path remains complicated.`\
+https://www.nytimes.com/video/world/middleeast/100000011270513/israel-eisenkot-government.html
+
+**Reeling From Rare Mass Shooting, Poles Ask What Set Off Young Suspect**\
+`Officials say that a 24-year-old killed his family and then six people during a rampage in Krakow. Now they are trying to determine the motive.`\
+https://www.nytimes.com/2026/11/08/world/europe/poland-shooting-family.html
+
 **Why Winning Big Matters**\
 `The midterm elections in the United States and recent votes in Europe show how blowout victories can make results impossible to deny.`\
 https://www.nytimes.com/2026/11/08/world/election-win-pete-hegseth-poland.html
