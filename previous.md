@@ -1,3 +1,7 @@
+**The Bible Chapter that Helps Explain the New Christian Left**\
+`A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
+https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
+
 **Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
 `Sunday morning news shows will be dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
 https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/11/08/crosswords/strands-sidekick-981.html
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
 https://www.nytimes.com/2026/11/08/crosswords/connections-companion-1247.html
 
-**Keisha Lance Bottoms on What Democrats Can Do to Make Their Victory Last**\
-`The governor-elect of Georgia is elated about her party’s wins in the South, but knows realignment is far from secure.`\
+**Keisha Lance Bottoms on What Democrats Have to Do to Not Squander the Win**\
+`The governor-elect of Georgia is elated about her party’s victories in the South, but knows realignment is far from secure.`\
 https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
 
 **Keisha Lance Bottoms on a Civil Rights Leader’s Reaction to Her Historic Win**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/world/africa/south-africa-election-african-na
 **Quote of the Day: Crossing an Ocean so She Can Continue Studying the Sky**\
 `Quotation of the Day for Sunday, November 8.`\
 https://www.nytimes.com/2026/11/08/pageoneplus/quote-of-the-day-crossing-an-ocean-so-she-can-continue-studying-the-sky.html
-
-**Polluted Delhi Tries ‘Green’ Fireworks to Clear the Air at Diwali**\
-`India’s top court decreed that only more environmentally friendly fireworks could be set off this weekend, citing air quality concerns. But environmental activists call it a “green wash.”`\
-https://www.nytimes.com/2026/11/08/world/asia/delhi-pollution-green-fireworks-diwali.html
 

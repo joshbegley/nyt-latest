@@ -1,3 +1,11 @@
+**The Bible Chapter that Helps Explain the New Christian Left**\
+`A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
+https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
+
+**Keisha Lance Bottoms on What Democrats Have to Do to Not Squander the Win**\
+`The governor-elect of Georgia is elated about her party’s victories in the South, but knows realignment is far from secure.`\
+https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
+
 **Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
 `Sunday morning news shows will be dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
 https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
