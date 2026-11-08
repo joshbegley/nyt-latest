@@ -1,3 +1,7 @@
+**The Election Brought Lots of Change. Test Your Knowledge.**\
+`(No description)`\
+https://www.nytimes.com/quiz/2026/11/08/us/quiz-midterm-elections-democrats.html
+
 **How a Duck Named Olivia Helped Pass D.C.’s Foie Gras Ban**\
 `Initiative 86, which bars the force-feeding of birds and the sale of foie gras, passed handily but restaurateurs and prominent chefs are preparing for a fight.`\
 https://www.nytimes.com/2026/11/08/us/dc-foie-gras-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/crosswords/spelling-bee-forum.html
 **This Century-Old Sewing Circle Ties New Yorkers Together**\
 `Older New Yorkers forge connections while chatting in three languages, sharing homemade cakes and crafting garments, as well as the occasional “weird-looking” doll.`\
 https://www.nytimes.com/2026/11/08/nyregion/sewing-knitting-group-nyc.html
-
-**‘He Poured Me a Draft, Put It in Front of Me and Looked at His Watch’**\
-`This week is the column’s 50th anniversary. It first appeared on Nov. 10, 1976. To mark the occasion, we’re featuring tales of New York City from contributors who answered our special Metropolitan Diary challenge.`\
-https://www.nytimes.com/2026/11/08/nyregion/metropolitan-diary.html
 
