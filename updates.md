@@ -1,3 +1,11 @@
+**Maduro Studies Religion and Meets Clergy Behind Bars**\
+`The jailed Venezuelan autocrat studies religious texts and meets with diverse clergy, including a rabbi, as he awaits trial. He has also lost weight.`\
+https://www.nytimes.com/2026/11/08/nyregion/maduro-prision-life.html
+
+**Deadly Train Collision in Egypt Kills At Least 7**\
+`A deadly train collision near Cairo has killed at least seven people and injured dozens more, officials said.`\
+https://www.nytimes.com/video/world/africa/100000011270867/egypt-train-collision-crash.html
+
 **What Talarico’s Win Reveals About Christianity in Texas**\
 `Senator-elect James Talarico’s progressive Christianity seemed to resonate for many in a state whose politics and culture have been dominated by conservative evangelicalism.`\
 https://www.nytimes.com/2026/11/08/us/james-talarico-christianity-texas.html
