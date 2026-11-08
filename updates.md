@@ -1,3 +1,7 @@
+**Targeted by U.S., Armed Group Strikes Back in Colombia**\
+`American forces are helping Colombia and Venezuela hunt the ELN. This weekend, the group attacked a Colombian military base with drones, officials said.`\
+https://www.nytimes.com/2026/11/08/world/americas/colombia-drone-attack-eln.html
+
 **Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
 `The secretary of state’s role in drafting a secret memo highlights how top officials were concerned this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
