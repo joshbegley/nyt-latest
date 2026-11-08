@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/11/08/arts/television/saturday-night-live-druski-th
 `A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
 https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
 
-**Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
-`Sunday morning news shows are dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
+**Midterm Elections Live Updates: After Democratic Sweep, Partisan Clashes Erupt on Sunday Shows**\
+`Representative Hakeem Jeffries, the Democratic leader, said he was a “hard yes” on a vote to impeach Defense Secretary Pete Hegseth that is expected to come to the House floor this week.`\
 https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
 
 **The Price of Child Stardom**\
