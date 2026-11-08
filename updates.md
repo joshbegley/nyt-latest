@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: Talk of Hegseth Impeachment Grows After Democratic Sweep**\
+`Republicans faced questions about the future of Defense Secretary Pete Hegseth while Hakeem Jeffries, the House Democratic leader, said he was a “hard yes” on a vote expected this week. Attorney General Todd Blanche promised to staunchly defend cabinet officials.`\
+https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
+
 **The Small but Hefty ‘Charioteer’ Is a Bewitchingly Realized Parable**\
 `In this confident and delicate new play by Dan Giles, a brother and sister give anticapitalist absolutism the old college try.`\
 https://www.nytimes.com/2026/11/08/theater/the-charioteer-review.html
