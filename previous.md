@@ -28,7 +28,7 @@ https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain
 
 **Midterm Elections Live Updates: After Democratic Sweep, Partisan Clashes Erupt on Sunday Shows**\
 `Representative Hakeem Jeffries, the Democratic leader, said he was a “hard yes” on a vote to impeach Defense Secretary Pete Hegseth that is expected to come to the House floor this week.`\
-https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
+https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
 
 **The Price of Child Stardom**\
 `We look at the dark side of K-pop.`\
