@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/11/08/arts/television/saturday-night-live-druski-th
 https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
 
 **Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
-`Sunday morning news shows will be dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
+`Sunday morning news shows are dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
 https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
 
 **The Price of Child Stardom**\

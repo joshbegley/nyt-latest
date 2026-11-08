@@ -1,3 +1,7 @@
+**Midterm Elections Live Updates: After Democratic Sweep, Victorious Candidates Discuss What Comes Next**\
+`Sunday morning news shows are dominated by the winners of Tuesday’s election, while ballots continue to be counted in Alaska and Mississippi.`\
+https://www.nytimes.com/live/2026/11/08/us/election-reactions-tv-broadcast
+
 **How a Duck Named Olivia Helped Pass D.C.’s Foie Gras Ban**\
 `Initiative 86, which bars the force-feeding of birds and the sale of foie gras, passed handily but restaurateurs and prominent chefs are preparing for a fight.`\
 https://www.nytimes.com/2026/11/08/us/dc-foie-gras-ban.html
