@@ -1,3 +1,7 @@
+**The Small but Hefty ‘Charioteer’ Is a Bewitchingly Realized Parable**\
+`In this confident and delicate new play by Dan Giles, a brother and sister give anticapitalist absolutism the old college try.`\
+https://www.nytimes.com/2026/11/08/theater/the-charioteer-review.html
+
 **Trains Collide Near Cairo, Killing 4**\
 `The crash between two passenger trains was the latest in a long history of deadly rail accidents in Egypt, despite billions of dollars spent modernizing the network.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
@@ -38,7 +42,7 @@ https://www.nytimes.com/2026/11/08/opinion/trump-science.html
 `The Democratic senator-elect from Texas popped up to turn the tables on the show’s Trump impersonator, James Austin Johnson, in an episode hosted by the comedian Druski.`\
 https://www.nytimes.com/2026/11/08/arts/television/saturday-night-live-druski-the-strokes.html
 
-**The Bible Chapter that Helps Explain the New Christian Left**\
+**The Bible Chapter That Helps Explain the New Christian Left**\
 `A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
 https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/style/weddings-social-media-privacy.html
 **The World Can’t Get Enough Anime. Can Japan Cash In on Its Success?**\
 `Sony is building an anime empire, betting that global fandom can fuel growth for both the company and the country as foreign rivals and A.I. swarm the scene.`\
 https://www.nytimes.com/2026/11/08/business/anime-japan-sony-demonslayer.html
-
-**Book Review: ‘No Such Thing as Monday,’ by Sian Hughes**\
-`The British novelist Siân Hughes smartly excavates one woman’s messy past and midlife crash-out in “No Such Thing as Monday.”`\
-https://www.nytimes.com/2026/11/08/books/review/no-such-thing-as-monday-sian-hughes.html
 

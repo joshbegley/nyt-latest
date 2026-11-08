@@ -1,3 +1,11 @@
+**The Small but Hefty ‘Charioteer’ Is a Bewitchingly Realized Parable**\
+`In this confident and delicate new play by Dan Giles, a brother and sister give anticapitalist absolutism the old college try.`\
+https://www.nytimes.com/2026/11/08/theater/the-charioteer-review.html
+
+**The Bible Chapter That Helps Explain the New Christian Left**\
+`A few verses calling people to care for the hungry, the sick and the stranger has become a rallying cry for a new wave of Democrats.`\
+https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
+
 **Trains Collide Near Cairo, Killing 4**\
 `The crash between two passenger trains was the latest in a long history of deadly rail accidents in Egypt, despite billions of dollars spent modernizing the network.`\
 https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
