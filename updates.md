@@ -1,3 +1,11 @@
+**‘This Recipe Is Amazing’**\
+`That was me, to my editor, about this stir-fried cabbage and pork in fish sauce butter.`\
+https://www.nytimes.com/2026/11/08/dining/this-recipe-is-amazing.html
+
+**The Many Costs of Trump’s Attack on Science**\
+`Readers respond to a report on the administration’s campaign to defund and eliminate crucial scientific research.`\
+https://www.nytimes.com/2026/11/08/opinion/trump-science.html
+
 **On ‘S.N.L.,’ James Talarico Gets to Interrupt Trump**\
 `The Democratic senator-elect from Texas popped up to turn the tables on the show’s Trump impersonator, James Austin Johnson, in an episode hosted by the comedian Druski.`\
 https://www.nytimes.com/2026/11/08/arts/television/saturday-night-live-druski-the-strokes.html
