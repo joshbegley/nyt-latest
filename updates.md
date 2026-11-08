@@ -1,3 +1,7 @@
+**Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
+`The Saudi authorities said no one was injured and that “falling shrapnel” from an intercepted missile had hit the building in the capital’s financial district.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
+
 **What to Know About the Mass Shooting in Krakow, Poland**\
 `At least nine people were dead and at least 16 injured after shootings in Krakow and another town, the police said. The motive remains unclear.`\
 https://www.nytimes.com/2026/11/08/world/europe/poland-krakow-mass-shooting.html
