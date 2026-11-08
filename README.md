@@ -1,3 +1,19 @@
+**In High-Wattage New York, Hochul Stays in the Shadows Despite a Big Win**\
+`Gov. Kathy Hochul scored a convincing victory over her Republican rival, the kind of win that can get people talking about higher office. But few are talking, not even her.`\
+https://www.nytimes.com/2026/11/08/nyregion/kathy-hochul-2028-ny.html
+
+**NYT Spelling Bee Answers for November 8, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/08/crosswords/spelling-bee-forum.html
+
+**This Century-Old Sewing Circle Ties New Yorkers Together**\
+`Older New Yorkers forge connections while chatting in three languages, sharing homemade cakes and crafting garments, as well as the occasional “weird-looking” doll.`\
+https://www.nytimes.com/2026/11/08/nyregion/sewing-knitting-group-nyc.html
+
+**‘He Poured Me a Draft, Put It in Front of Me and Looked at His Watch’**\
+`This week is the column’s 50th anniversary. It first appeared on Nov. 10, 1976. To mark the occasion, we’re featuring tales of New York City from contributors who answered our special Metropolitan Diary challenge.`\
+https://www.nytimes.com/2026/11/08/nyregion/metropolitan-diary.html
+
 **America Called. It Wants Its Government Back.**\
 `The midterm election can be understood as a plea for a government that actually cares about people.`\
 https://www.nytimes.com/2026/11/08/opinion/midterms-america-government.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/video/opinion/100000011267051/talaricos-politics-of-love
 **Vance Was Wrong About Ossoff’s Campaign**\
 `After the 2024 election, JD Vance suggested that Senator Jon Ossoff would have to cozy up to President Trump to win a Senate seat. On “The Ezra Klein Show,” Michelle Goldberg and Ezra Klein discuss what actually happened — and how Ossoff channelled a “popular revulsion.”`\
 https://www.nytimes.com/video/opinion/100000011267049/vance-was-wrong-about-ossoffs-campaign.html
-
-**8 Bold Ideas for the New Democratic Congress**\
-`8 writers and experts on the legislation Democrats should consider.`\
-https://www.nytimes.com/interactive/2026/11/07/opinion/democrats-congress-trump.html
-
-**Democrats Can’t Whiff This. The Stakes Are Too High.**\
-`If Democrats rise to this moment, they can turn a single night’s victory into a new American promise.`\
-https://www.nytimes.com/2026/11/07/opinion/midterms-democrats-won-agenda.html
-
-**We the People Finally Turn on Trump**\
-`A Norma Desmond crash-out to end all crash-outs.`\
-https://www.nytimes.com/2026/11/07/opinion/trump-midterms-maga-base.html
-
-**‘NAZA’ Is a Window Into a World Even Gazans Can’t Reach**\
-`A Gazan journalist watches the controversial documentary from inside the war zone the film is about.`\
-https://www.nytimes.com/2026/11/07/opinion/naza-documentary-gaza-israel.html
 
