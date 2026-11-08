@@ -1,3 +1,7 @@
+**Who Is Gadi Eisenkot, Israel’s Opposition Leader?**\
+`Mr. Eisenkot, a career general and the leading rival of Prime Minister Benjamin Netanyahu of Israel, will now have up to six weeks to form a coalition.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/israel-eisenkot-netanyahu-what-to-know.html
+
 **Republicans Don’t Understand Men, Either**\
 `For the most part, young men want to be good men.`\
 https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/learning/from-the-front-page-kennedy-is-elect
 **Read the Text Messages at the Center of the Cornell Rape Inquiry**\
 `After a Cornell student said fraternity members had sexually assaulted her, university investigators amassed a trove of communications from the student and the men she accused.`\
 https://www.nytimes.com/interactive/2026/11/07/nyregion/cornell-jane-doe-messages.html
-
-**Top Astrophysicist Leaves U.S. After Trump Policies Affect Her Work**\
-`Kelly Holley-Bockelmann was one of the top astrophysicists in the country until President Trump’s policies affected every part of her work.`\
-https://www.nytimes.com/2026/11/07/science/space/holley-bockelmann-astrophysicist-space-trump.html
 
