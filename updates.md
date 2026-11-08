@@ -1,3 +1,7 @@
+**How a Duck Named Olivia Helped Pass D.C.’s Foie Gras Ban**\
+`Initiative 86, which bars the force-feeding of birds and the sale of foie gras, passed handily but restaurateurs and prominent chefs are preparing for a fight.`\
+https://www.nytimes.com/2026/11/08/us/dc-foie-gras-ban.html
+
 **‘This Recipe Is Amazing’**\
 `That was me, to my editor, about this stir-fried cabbage and pork in fish sauce butter.`\
 https://www.nytimes.com/2026/11/08/dining/this-recipe-is-amazing.html

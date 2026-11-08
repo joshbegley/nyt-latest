@@ -1,3 +1,7 @@
+**How a Duck Named Olivia Helped Pass D.C.’s Foie Gras Ban**\
+`Initiative 86, which bars the force-feeding of birds and the sale of foie gras, passed handily but restaurateurs and prominent chefs are preparing for a fight.`\
+https://www.nytimes.com/2026/11/08/us/dc-foie-gras-ban.html
+
 **‘This Recipe Is Amazing’**\
 `That was me, to my editor, about this stir-fried cabbage and pork in fish sauce butter.`\
 https://www.nytimes.com/2026/11/08/dining/this-recipe-is-amazing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/nyregion/sewing-knitting-group-nyc.html
 **‘He Poured Me a Draft, Put It in Front of Me and Looked at His Watch’**\
 `This week is the column’s 50th anniversary. It first appeared on Nov. 10, 1976. To mark the occasion, we’re featuring tales of New York City from contributors who answered our special Metropolitan Diary challenge.`\
 https://www.nytimes.com/2026/11/08/nyregion/metropolitan-diary.html
-
-**America Called. It Wants Its Government Back.**\
-`The midterm election can be understood as a plea for a government that actually cares about people.`\
-https://www.nytimes.com/2026/11/08/opinion/midterms-america-government.html
 
