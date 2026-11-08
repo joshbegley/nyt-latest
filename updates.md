@@ -1,3 +1,7 @@
+**More Than 3,000 Tarantulas Found in Smugglers’ Socks at Peru Airport**\
+`The National Forest and Wildlife Service of Peru said three people had tried to smuggle the tarantulas, which included a threatened species, into Germany.`\
+https://www.nytimes.com/2026/11/08/world/americas/tarantulas-spiders-airport-peru.html
+
 **Talk of Hegseth Impeachment Grows After Democratic Midterm Sweep**\
 `Republicans faced questions about the future of Defense Secretary Pete Hegseth while Hakeem Jeffries, the House Democratic leader, said he was a “hard yes” on a vote expected this week. Attorney General Todd Blanche promised to staunchly defend cabinet officials.`\
 https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news

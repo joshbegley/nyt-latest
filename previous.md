@@ -1,3 +1,7 @@
+**More Than 3,000 Tarantulas Found in Smugglers’ Socks at Peru Airport**\
+`The National Forest and Wildlife Service of Peru said three people had tried to smuggle the tarantulas, which included a threatened species, into Germany.`\
+https://www.nytimes.com/2026/11/08/world/americas/tarantulas-spiders-airport-peru.html
+
 **Jeffries Backs Impeaching Hegseth as Democrats Push for Accountability**\
 `Democrats have begun laying the groundwork for an aggressive oversight agenda aimed at the Trump administration. But a political reckoning could come before the new Congress begins.`\
 https://www.nytimes.com/2026/11/08/us/politics/pete-hegseth-impeachment-hakeem-jeffries.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/business/original-medicare-advantage.html
 **Phil Collins Knew He Was ‘Lucky,’ if Not Cool**\
 `When the Rock & Roll Hall of Fame inducts Collins as a solo artist this month, it will recognize a hitmaker whose popularity often overshadowed his intensity.`\
 https://www.nytimes.com/2026/11/08/arts/music/phil-collins-knew-he-was-lucky-if-not-cool.html
-
-**TikTok Diamond Auctions Are Instant. Are They Any Good?**\
-`In recent months, piles of lab-grown sparkly diamonds have been available for bidding and purchase on the app.`\
-https://www.nytimes.com/2026/11/08/style/tiktok-shop-diamond-auctions.html
 
