@@ -1,3 +1,7 @@
+**Trains Collide Near Cairo, Killing 4**\
+`The crash between two passenger trains was the latest in a history of deadly rail accidents in Egypt, despite billions spent modernizing the network.`\
+https://www.nytimes.com/2026/11/08/world/middleeast/egypt-train-collision-al-ayyat-district.html
+
 **The Memory Card That Could Upend a State House Race in Georgia**\
 `The Democrat was leading the race for a district when officials realized there were missing votes from a single memory card. Now the Republican has the edge.`\
 https://www.nytimes.com/2026/11/08/us/georgia-state-house-race-memory-card.html
