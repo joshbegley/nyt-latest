@@ -1,3 +1,7 @@
+**Tesla Announces It Will Discontinue the Cybertruck, a Culture War on Wheels**\
+`Feelings about the angular, stainless steel pickup run deep.`\
+https://www.nytimes.com/2026/11/08/us/tesla-cybertruck-culture-war.html
+
 **The Small but Hefty ‘Charioteer’ Is a Bewitchingly Realized Parable**\
 `In this confident and delicate new play by Dan Giles, a brother and sister give anticapitalist absolutism the old college try.`\
 https://www.nytimes.com/2026/11/08/theater/the-charioteer-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/style/tiktok-shop-diamond-auctions.html
 **The New Luxury Wedding Trend? Keeping It Off Social Media.**\
 `Even content creators are drawing the line at sharing their weddings online as privacy becomes a true luxury.`\
 https://www.nytimes.com/2026/11/08/style/weddings-social-media-privacy.html
-
-**The World Can’t Get Enough Anime. Can Japan Cash In on Its Success?**\
-`Sony is building an anime empire, betting that global fandom can fuel growth for both the company and the country as foreign rivals and A.I. swarm the scene.`\
-https://www.nytimes.com/2026/11/08/business/anime-japan-sony-demonslayer.html
 

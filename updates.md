@@ -1,3 +1,7 @@
+**Tesla Announces It Will Discontinue the Cybertruck, a Culture War on Wheels**\
+`Feelings about the angular, stainless steel pickup run deep.`\
+https://www.nytimes.com/2026/11/08/us/tesla-cybertruck-culture-war.html
+
 **The Bible Chapter That Helps Explain the New Christian Left**\
 `A few verses calling people to care for the hungry, the sick and the stranger have become a rallying cry for a new wave of Democrats.`\
 https://www.nytimes.com/2026/11/08/briefing/the-bible-chapter-that-helps-explain-the-new-christian-left.html
