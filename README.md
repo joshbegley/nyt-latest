@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
 https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
 
 **Nvidia’s Stock Price Drops After Investigation Into CEO Jensen Huang**\
-`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a businesswoman suspected of spying for China could reverberate across Wall Street.`\
 https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
 
 **Is Jensen Huang Too Powerful to Be Punished by Nvidia?**\
