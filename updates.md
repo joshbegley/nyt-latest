@@ -1,4 +1,16 @@
 **The Clergy in Congress**\
+`Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
+https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
+
+**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Stephen Miller Takes the Reins**\
+`Plus, R.I.P. Cybertruck.`\
+https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
+
+**Nvidia’s Stock Price Set to Drop After Investigation Into CEO Jensen Huang**\
+`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
+
+**The Clergy in Congress**\
 `A wave of religious Democrats are entering the chambers.`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
 

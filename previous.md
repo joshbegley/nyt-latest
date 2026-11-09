@@ -1,5 +1,5 @@
 **The Clergy in Congress**\
-`A wave of religious Democrats are entering the chambers.`\
+`Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
 
 **Read the Memo Jensen Huang Sent to Nvidia Employees**\
@@ -10,7 +10,7 @@ https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
 https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
 
-**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Miller Takes the Reins**\
+**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Stephen Miller Takes the Reins**\
 `Plus, R.I.P. Cybertruck.`\
 https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
 
@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
 https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
 
 **Nvidia’s Stock Price Set to Drop After Investigation Into CEO Jensen Huang**\
-`The chipmaker’s size and significance to the A.I trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
 https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
 
 **Is Jensen Huang too Powerful to Be Punished by Nvidia?**\
