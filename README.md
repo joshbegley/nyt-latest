@@ -1,3 +1,7 @@
+**In a Democratic Wave, Even the Long Shots Defied the Odds**\
+`A handful of Democrats scored improbable victories in races against Republican incumbents who were favored to win.`\
+https://www.nytimes.com/2026/11/09/us/politics/congress-democratic-long-shots.html
+
 **The Oldest Person to Complete New York City Marathon Has Died at 104**\
 `Jonathan de Sola Mendes, a decorated Marine Corps aviator, was 96 when he crossed the finish line in 2016. Then he sipped some Johnnie Walker Black Label.`\
 https://www.nytimes.com/2026/11/09/sports/jonathan-de-sola-mendes-dead.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
 **I Am a Silicon Valley Veteran. We Are Sabotaging Ourselves.**\
 `Artificial intelligence is the latest example of how Silicon Valley ruins great innovations with ridiculous theories about them.`\
 https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
-
-**‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
-`To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
-https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
 

@@ -1,3 +1,11 @@
+**The Oldest Person to Complete New York City Marathon Has Died at 104**\
+`Jonathan de Sola Mendes, a decorated Marine Corps aviator, was 96 when he crossed the finish line in 2016. Then he sipped some Johnnie Walker Black Label.`\
+https://www.nytimes.com/2026/11/09/sports/jonathan-de-sola-mendes-dead.html
+
+**The First House Democrat From Montana in Over 30 Years**\
+`Natalie Kitroeff calls Representative-elect Sam Forstag, the first Democrat from Montana to be elected to the House in over 30 years. On this episode of “The Call,” Forstag shares what he thinks being a freshman in Congress will look like and tells us what direction the Democratic Party should go in after winning the midterms.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011273438/the-first-house-democrat-from-montana-in-over-30-years.html
+
 **M. John Harrison’s ‘The End of Everything’ Wins Booker Prize**\
 `M. John Harrison’s dystopian tale “The End of Everything” beat out higher profile books by Marlon James, Elizabeth Strout and Douglas Stuart.`\
 https://www.nytimes.com/2026/11/09/books/booker-prize-winner-2026-science-fiction.html
