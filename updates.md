@@ -1,3 +1,7 @@
+**Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
+`The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
+
 **Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
 `State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
