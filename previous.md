@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Interview an Elder**\
+`Is there a relative, mentor or older friend you admire? What would you like to ask them about their life?`\
+https://www.nytimes.com/2026/11/09/learning/15-minute-lesson-plan-interview-an-elder.html
+
 **Jeffries and Schumer Face Blowback at Home as They Ascend in Washington**\
 `Even as Senator Chuck Schumer and Representative Hakeem Jeffries prepare to lead Congress, primary challenges scenarios in 2028 are already emerging in New York.`\
 https://www.nytimes.com/2026/11/09/nyregion/jeffries-schumer-democrats-puerto-rico-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/11/08/us/election-democrats-trump-news
 **The Price of Child Stardom**\
 `We look at the dark side of K-pop.`\
 https://www.nytimes.com/2026/11/08/briefing/the-price-of-child-stardom.html
-
-**Saudi Aramco Tower Damaged as Yemen’s Houthis Attack Riyadh**\
-`The Saudi authorities said no one was hurt after “falling shrapnel” hit the building in Riyadh’s financial district — one of the highest-profile areas targeted by the Houthis.`\
-https://www.nytimes.com/2026/11/08/world/middleeast/saudi-aramco-tower-riyadh-hit.html
 

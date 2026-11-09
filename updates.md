@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Interview an Elder**\
+`Is there a relative, mentor or older friend you admire? What would you like to ask them about their life?`\
+https://www.nytimes.com/2026/11/09/learning/15-minute-lesson-plan-interview-an-elder.html
+
 **What to Know About Nvidia’s Investigation of Its C.E.O.**\
 `Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
 https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang.html
