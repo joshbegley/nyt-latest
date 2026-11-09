@@ -1,3 +1,15 @@
+**Jeffries and Schumer Face Blowback at Home as They Ascend in Washington**\
+`Even as Senator Chuck Schumer and Representative Hakeem Jeffries prepare to lead Congress, primary challenges scenarios in 2028 are already emerging in New York.`\
+https://www.nytimes.com/2026/11/09/nyregion/jeffries-schumer-democrats-puerto-rico-protests.html
+
+**Costly Groceries Make Dinner More Complicated. That Goes for Pets Too.**\
+`New York City is providing $500,000 to some pantries to provide pet food during an affordability crisis that is affecting humans, but could also be a problem for their pets.`\
+https://www.nytimes.com/2026/11/09/nyregion/nyc-pet-food-pantries.html
+
+**NYT Spelling Bee Answers for November 9, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/09/crosswords/spelling-bee-forum.html
+
 **How Europe’s Trash Ends Up on Turkey’s Beaches**\
 `Turkey wants to promote its “zero waste” program while hosting the U.N.’s global climate conference. Its own recycling industry is oozing plastic.`\
 https://www.nytimes.com/interactive/2026/11/09/world/europe/turkey-plastic-waste.html
