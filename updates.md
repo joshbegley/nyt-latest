@@ -1,3 +1,15 @@
+**Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
+`A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
+https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
+
+**Nvidia’s Stock Price Drops After Investigation Into CEO Jensen Huang**\
+`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
+
+**A Country’s President Led to a Bank’s Stunning Rise, and Its Fall**\
+`Prosecutors accused President Santiago Peña of Paraguay of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
+https://www.nytimes.com/2026/11/09/world/americas/paraguay-bank-president-ueno.html
+
 **Megyn Kelly, Elon Musk and Others Defend Russell Brand After Rape Conviction**\
 `The former star, whom a British judge sentenced to 10 and a half years in prison on Monday, became an anti-establishment flag-bearer through conspiracy-minded commentary.`\
 https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html

@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
 
 **Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
 `A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
-https://www.nytimes.com/2026/11/09/arts/russell-brand-sentencing.html
+https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
 
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
 `He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
 https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
 
-**Nvidia’s Stock Price Set to Drop After Investigation Into CEO Jensen Huang**\
+**Nvidia’s Stock Price Drops After Investigation Into CEO Jensen Huang**\
 `The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
 https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
 
@@ -118,8 +118,8 @@ https://www.nytimes.com/2026/11/09/obituaries/lloyd-geering-dead.html
 `In the past, Americans were infected with dengue after being bitten by mosquitoes while traveling. But now, most of the current transmission is from local mosquitoes.`\
 https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.html
 
-**How a Bank Implosion in Paraguay Ensnared a President**\
-`Prosecutors accused President Santiago Peña of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
+**A Country’s President Led to a Bank’s Stunning Rise, and Its Fall**\
+`Prosecutors accused President Santiago Peña of Paraguay of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
 https://www.nytimes.com/2026/11/09/world/americas/paraguay-bank-president-ueno.html
 
 **A.I.-Generated Celebrity Ads Get an Assist From Terry Crews**\
