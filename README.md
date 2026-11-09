@@ -1,3 +1,7 @@
+**Trump Was ‘Only Kidding’ in Asking Dana White to Be His Press Secretary**\
+`The president said on Sunday that the U.F.C. chief executive “loves the idea” of being the White House spokesman but that his public offer of the job was “just a little fun.”`\
+https://www.nytimes.com/2026/11/08/us/politics/trump-joke-dana-white-press-secretary.html
+
 **Here Are the Difficult Options Trump Is Weighing to Resolve the War in Iran**\
 `There are no good choices facing President Trump as he tries to find a way out of the deeply unpopular conflict. But there are choices.`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-iran-options.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/us/politics/trump-midterm-election-america-fu
 **How Mississippi Reached the Verge of Electing a Black Senator**\
 `The echoes of history surround Scott Colom’s final push toward victory, but assembling the coalition that propelled him took hard work after many Democratic misses.`\
 https://www.nytimes.com/2026/11/08/us/elections/mississippi-black-senator.html
-
-**Gina Hinojosa Takes on the Texas Government Republicans Built**\
-`In her first interview with The New York Times since her victory, the governor-elect talked about tackling data centers, abortion restrictions and Elon Musk.`\
-https://www.nytimes.com/2026/11/08/us/gina-hinojosa-texas-priorities.html
 
