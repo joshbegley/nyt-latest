@@ -1,3 +1,7 @@
+**What Democrats Plan to Investigate After Election Victory**\
+`Following their midterm victories, Democrats are preparing to open wide-ranging investigations into President Trump, his family and his administration. Michael Gold, a Times congressional reporter, identifies the Democrats’ biggest targets.`\
+https://www.nytimes.com/video/us/politics/100000011266496/democrats-plan-corruption-investigations-after-election-victory.html
+
 **Cruise Ship Worker Rescued in Pacific Ocean Off California Coast After Going Overboard**\
 `He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
 https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html

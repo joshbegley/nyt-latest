@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html
 `The Democrats still have a long way to go before they can govern the country productively. But the victors of 2026 have started to point the way.`\
 https://www.nytimes.com/2026/11/09/opinion/democrats-midterms-populism.html
 
-**Democrats Plan Corruption Investigations After Election Victory**\
+**What Democrats Plan to Investigate After Election Victory**\
 `Following their midterm victories, Democrats are preparing to open wide-ranging investigations into President Trump, his family and his administration. Michael Gold, a Times congressional reporter, identifies the Democrats’ biggest targets.`\
 https://www.nytimes.com/video/us/politics/100000011266496/democrats-plan-corruption-investigations-after-election-victory.html
 
