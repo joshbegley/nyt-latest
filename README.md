@@ -1,3 +1,19 @@
+**Commerce Dept. Chip Inquiry Was Halted After Nvidia Intervention**\
+`An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
+https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
+
+**The Cornell Texts**\
+`We look at the messages at the center of the rape inquiry.`\
+https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
+
+**‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
+`To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
+https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
+
+**I Am a Silicon Valley Veteran. We Are Sabotaging Ourselves.**\
+`Artificial intelligence is the latest example of how Silicon Valley ruins great innovations with ridiculous theories about them.`\
+https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
+
 **Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
 `The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/09/arts/design/the-geezer-of-graffiti-art-barry-
 **The Inspired Transformation of a Rundown Barn in Bucks County, Pa.**\
 `A property for sale had both a historic house and a barn. For one couple, the choice was clear.`\
 https://www.nytimes.com/2026/11/09/realestate/bucks-county-barn-home-renovation.html
-
-**Martin Luther King’s Lost Draft of ‘I Have a Dream’ Speech Surfaces**\
-`The document, hand written by Martin Luther King Jr., will be auctioned in January at Christie’s, which expects it to fetch more than $10 million.`\
-https://www.nytimes.com/2026/11/09/arts/martin-luther-king-i-have-a-dream-speech-draft.html
-
-**Will Congress Finally Rein in the Presidency?**\
-`History tells us that constitutional oversight can be a powerful tool — if wielded correctly.`\
-https://www.nytimes.com/2026/11/09/magazine/congress-trump-oversight-investigations-presidency.html
-
-**Still Here Is the Denim Brand of the Moment. Have You Seen Their Jeans?**\
-`The denim brand Still Here has been spotted on many young women in downtown Manhattan and beyond.`\
-https://www.nytimes.com/2026/11/09/style/still-here-jeans-new-york.html
-
-**Why Colorado Is at the Epicenter of So Many Supreme Court Clashes**\
-`In three recent cases, the conservative-dominated bench has ruled against the state and in favor of the rights of Christian business owners.`\
-https://www.nytimes.com/2026/11/09/us/politics/supreme-court-colorado.html
 
