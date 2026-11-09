@@ -1,3 +1,11 @@
+**How indispensable is Jensen Huang?**\
+`The fate of Nvidia’s chief executive, who was romantically involved with an accused Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
+https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
+
+**Is Jensen Huang Too Powerful to Be Punished by Nvidia?**\
+`The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
+
 **China Rejects Espionage Claims Involving Nvidia C.E.O. Jensen Huang**\
 `The controversy has intensified scrutiny of Mr. Huang’s ties to Beijing and sparked mixed reactions across Asia, where he is widely popular.`\
 https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
