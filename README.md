@@ -6,11 +6,11 @@ https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
 `Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
 https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
 
-**As the Country Swung Left, Independent Senate Candidates Stalled**\
+**Independent Senate Candidates Ran in Deep-Red States and Lost Despite Democratic Support**\
 `The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
 https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
 
-**Commerce Dept. Chip Inquiry Was Halted After Nvidia Intervention**\
+**U.S. Commerce Dept. Inquiry Into Megaspeed Was Halted After Nvidia Intervention**\
 `An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
 https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
 
@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-tr
 https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
 
 **An Anti-Trump Protest. Police Threats. Inside a Rift in Diabetes Research.**\
-`It began with an incident at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
+`It began with a protest at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
 https://www.nytimes.com/2026/11/09/science/american-diabetes-association-turmoil.html
 
 **Do You Know Where These Novels Are Set?**\
