@@ -1,3 +1,7 @@
+**M. John Harrison’s ‘The End of Everything’ Wins Booker Prize**\
+`M. John Harrison’s dystopian tale “The End of Everything” beat out higher profile books by Marlon James, Elizabeth Strout and Douglas Stuart.`\
+https://www.nytimes.com/2026/11/09/books/booker-prize-winner-2026-science-fiction.html
+
 **Guns on Amtrak Trains? A Workers Union Is Up in Arms.**\
 `A new policy would allow firearms to be brought on passenger cars, as opposed to being locked in baggage cars. A union leader called it “sheer lunacy.”`\
 https://www.nytimes.com/2026/11/09/travel/amtrak-guns-workers-union.html

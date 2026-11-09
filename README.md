@@ -1,3 +1,11 @@
+**The Oldest Person to Complete New York City Marathon Has Died at 104**\
+`Jonathan de Sola Mendes, a decorated Marine Corps aviator, was 96 when he crossed the finish line in 2016. Then he sipped some Johnnie Walker Black Label.`\
+https://www.nytimes.com/2026/11/09/sports/jonathan-de-sola-mendes-dead.html
+
+**The First House Democrat From Montana in Over 30 Years**\
+`Natalie Kitroeff calls Representative-elect Sam Forstag, the first Democrat from Montana to be elected to the House in over 30 years. On this episode of “The Call,” Forstag shares what he thinks being a freshman in Congress will look like and tells us what direction the Democratic Party should go in after winning the midterms.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011273438/the-first-house-democrat-from-montana-in-over-30-years.html
+
 **M. John Harrison’s ‘The End of Everything’ Wins Booker Prize**\
 `M. John Harrison’s dystopian tale “The End of Everything” beat out higher profile books by Marlon James, Elizabeth Strout and Douglas Stuart.`\
 https://www.nytimes.com/2026/11/09/books/booker-prize-winner-2026-science-fiction.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
 **‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
 `To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
 https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
-
-**Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
-`The global benchmark price is down roughly $20 a barrel since late October, when it traded for around $113.`\
-https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
-
-**Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
-`State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
-https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
 

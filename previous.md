@@ -1,3 +1,7 @@
+**M. John Harrison’s ‘The End of Everything’ Wins Booker Prize**\
+`M. John Harrison’s dystopian tale “The End of Everything” beat out higher profile books by Marlon James, Elizabeth Strout and Douglas Stuart.`\
+https://www.nytimes.com/2026/11/09/books/booker-prize-winner-2026-science-fiction.html
+
 **Guns on Amtrak Trains? A Workers Union Is Up in Arms.**\
 `A new policy would allow firearms to be brought on passenger cars, as opposed to being locked in baggage cars. A union leader called it “sheer lunacy.”`\
 https://www.nytimes.com/2026/11/09/travel/amtrak-guns-workers-union.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-tr
 **Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
 `State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
-
-**An Anti-Trump Protest. Police Threats. Inside a Rift in Diabetes Research.**\
-`It began with a protest at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
-https://www.nytimes.com/2026/11/09/science/american-diabetes-association-turmoil.html
 
