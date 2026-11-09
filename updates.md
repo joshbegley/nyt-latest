@@ -1,3 +1,15 @@
+**France Blames Iran for Cyberattack on Refrigeration Systems**\
+`The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
+https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
+
+**Poland in Shock After Mass Shooting in Krakow**\
+`Residents and tourists in Poland mourned the victims of a mass shooting that left at least six people dead in Krakow. The bodies of the suspect’s parents and sister were later found at his home in another town.`\
+https://www.nytimes.com/video/world/europe/100000011272018/poland-shooting-krakow-suspect-victims.html
+
+**After the Rout, Trump and Miller Are Unbowed**\
+`Readers react to the appointment of Stephen Miller as the White House chief of staff. Also: President Trump’s arch; a wish for success, not failure.`\
+https://www.nytimes.com/2026/11/09/opinion/letters/trump-stephen-miller.html
+
 **A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
 `As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
 https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html

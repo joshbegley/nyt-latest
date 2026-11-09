@@ -1,3 +1,15 @@
+**France Blames Iran for Cyberattack on Refrigeration Systems**\
+`The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
+https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
+
+**Poland in Shock After Mass Shooting in Krakow**\
+`Residents and tourists in Poland mourned the victims of a mass shooting that left at least six people dead in Krakow. The bodies of the suspect’s parents and sister were later found at his home in another town.`\
+https://www.nytimes.com/video/world/europe/100000011272018/poland-shooting-krakow-suspect-victims.html
+
+**After the Rout, Trump and Miller Are Unbowed**\
+`Readers react to the appointment of Stephen Miller as the White House chief of staff. Also: President Trump’s arch; a wish for success, not failure.`\
+https://www.nytimes.com/2026/11/09/opinion/letters/trump-stephen-miller.html
+
 **A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
 `As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
 https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
@@ -138,13 +150,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Congress Returns to a Reordered Washington With a Hazy Agenda**\
-`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
-https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
-
 **Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
 `A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
 https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
+
+**Congress Returns to a Reordered Washington With a Hazy Agenda**\
+`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
+https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.htm
 **A Country’s President Led to a Bank’s Stunning Rise, and Its Fall**\
 `Prosecutors accused President Santiago Peña of Paraguay of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
 https://www.nytimes.com/2026/11/09/world/americas/paraguay-bank-president-ueno.html
-
-**A.I.-Generated Celebrity Ads Get an Assist From Terry Crews**\
-`The Ogilvy ad agency and the CAA talent agency introduced a partnership to create promotions featuring digital replicas of celebrities.`\
-https://www.nytimes.com/2026/11/09/business/media/ogilvy-caa-ai-ads.html
-
-**How ICE Raids Helped Flip a Kansas County Blue**\
-`Seward County, Kansas, swung 52 points to the Democratic Senate candidate Adam Hamilton in last week’s midterm elections. After ICE agents raided areas near meatpacking plants and dairy farms in the region in late September, voter registration increased. Many say their vote was a rebuke of Trump’s immigration policies.`\
-https://www.nytimes.com/video/us/100000011262780/how-ice-raids-helped-flip-a-kansas-county-blue.html
-
-**Shoppers to Use Black Friday Sales to Stock Up on Essentials**\
-`Shoppers strained by high costs of living are expected to put a priority on value this season, whether they’re buying gifts or everyday items for themselves.`\
-https://www.nytimes.com/2026/11/09/business/holiday-shopping-deals-essentials.html
 
