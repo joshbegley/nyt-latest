@@ -1,3 +1,7 @@
+**How Europe’s Trash Ends Up on Turkey’s Beaches**\
+`Turkey wants to promote its “zero waste” program while hosting the U.N.’s global climate conference. Its own recycling industry is oozing plastic.`\
+https://www.nytimes.com/interactive/2026/11/09/world/europe/turkey-plastic-waste.html
+
 **What if Europe Rearms at Exactly the Wrong Time?**\
 `If a far-right party in Paris or Berlin were determined to burn bridges with its neighbors, it could.`\
 https://www.nytimes.com/2026/11/09/opinion/europe-defense-far-right.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/world/middleeast/israel-eisenkot-netanyahu-wh
 **Republicans Don’t Understand Men, Either**\
 `For the most part, young men want to be good men.`\
 https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
-
-**A Stake Through the Heart of Trump’s Red Map**\
-`Realignment is so 2024.`\
-https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
 
