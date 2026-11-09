@@ -1,3 +1,11 @@
+**Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
+`The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
+https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
+
+**Massie Calls Up Impeachment Charges Against Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must be taken within two days.`\
+https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html
+
 **The Local: Remembering the Edmund Fitzgerald**\
 `Family members of one sailor share their experiences.`\
 https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
 **Trump Has Found His New Roy Cohn in Stephen Miller**\
 `Stephen Miller is the wartime consigliere Trump always wanted.`\
 https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
-
-**Senator Tells Google to Let Schools Disable A.I. Features in Search**\
-`The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
-https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
-
-**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
-`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
-https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
 

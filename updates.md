@@ -1,3 +1,11 @@
+**Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
+`The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
+https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
+
+**Massie Calls Up Impeachment Charges Against Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must be taken within two days.`\
+https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html
+
 **The Local: Remembering the Edmund Fitzgerald**\
 `Family members of one sailor share their experiences.`\
 https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
