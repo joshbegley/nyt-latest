@@ -1,3 +1,7 @@
+**Man Accused of Murdering Charlie Kirk to Go on Trial in 2028**\
+`Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
+https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
+
 **Scientists Sue to Block Trump Administration Changes at National Science Foundation**\
 `Researchers say the administration’s actions would “devastate” social science.`\
 https://www.nytimes.com/2026/11/09/us/politics/national-science-foundation-funding-lawsuit.html

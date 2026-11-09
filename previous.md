@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-bran
 https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
 
 **Man Accused of Murdering Charlie Kirk to Go on Trial in 2028**\
-`Tyler Robinson, the 23-year-old man whom prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
+`Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
 https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
 
 **James Gunn and Peter Safran Are Out as Heads of DC Studios**\
