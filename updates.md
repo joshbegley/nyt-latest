@@ -1,3 +1,7 @@
+**How Indispensable Is Jensen Huang?**\
+`The fate of Nvidia’s chief executive, who was romantically involved with a suspected Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
+https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
+
 **How indispensable is Jensen Huang?**\
 `The fate of Nvidia’s chief executive, who was romantically involved with an accused Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
 https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
