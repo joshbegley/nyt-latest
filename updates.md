@@ -1,3 +1,7 @@
+**Read the Memo Jensen Huang Sent to Nvidia Employees**\
+`Nvidia’s chief executive sent a memo to employees apologizing for his relationship with a businesswoman that U.S. intelligence agencies determined was a Chinese spy.`\
+https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.html
+
 **NYT Connections Answers for November 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
 https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
