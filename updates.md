@@ -1,3 +1,7 @@
+**What to Know About Nvidia’s Investigation of Its C.E.O.**\
+`Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
+https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang.html
+
 **Jeffries and Schumer Face Blowback at Home as They Ascend in Washington**\
 `Even as Senator Chuck Schumer and Representative Hakeem Jeffries prepare to lead Congress, primary challenges scenarios in 2028 are already emerging in New York.`\
 https://www.nytimes.com/2026/11/09/nyregion/jeffries-schumer-democrats-puerto-rico-protests.html
