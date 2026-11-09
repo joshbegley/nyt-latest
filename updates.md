@@ -1,3 +1,7 @@
+**Trump Says Immigration Crackdown May Have ‘Hurt’ Republicans in Midterms**\
+`The president was asked in a “60 Minutes” interview that aired on Sunday whether his deportation policies went too far. “I think it might be too tough,” he said.`\
+https://www.nytimes.com/2026/11/08/us/politics/trump-immigration-crackdown-republicans-midterms.html
+
 **Diners Support Jewish-Owned Eateries in Philadelphia After Boycott Call**\
 `A protest calling for a boycott of restaurants that organizers said supported Israel was overwhelmed by counterprotesters, who came to buy food from the targeted businesses.`\
 https://www.nytimes.com/2026/11/08/us/protest-bike-ride-jewish-restaurants-philadelphia.html
