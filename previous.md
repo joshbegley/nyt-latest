@@ -1,3 +1,7 @@
+**Biden Says Health to Limit Book Promotion as Cancer ‘Slows Me Down’**\
+`Former President Joseph R. Biden Jr. said his aggressive prostate cancer meant he “won’t be able to do as many conversations” to promote his forthcoming memoir as he had hoped.`\
+https://www.nytimes.com/2026/11/08/us/politics/biden-cancer-health-memoir.html
+
 **Trump Was ‘Only Kidding’ in Asking Dana White to Be His Press Secretary**\
 `The president said on Sunday that the U.F.C. chief executive “loves the idea” of being the White House spokesman but that his public offer of the job was “just a little fun.”`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-joke-dana-white-press-secretary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011269166/georgias-governor-elect-o
 **For Trump and America, a Clear Election Verdict but a Murky Future**\
 `As Americans absorb a stunning new political reality, they face a gap between the time they effectively decided to be done with the president and the time he is actually done.`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-midterm-election-america-future.html
-
-**How Mississippi Reached the Verge of Electing a Black Senator**\
-`The echoes of history surround Scott Colom’s final push toward victory, but assembling the coalition that propelled him took hard work after many Democratic misses.`\
-https://www.nytimes.com/2026/11/08/us/elections/mississippi-black-senator.html
 
