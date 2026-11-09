@@ -1,3 +1,7 @@
+**使用人工智能和激光灭蚊的设备**\
+`一家中国初创企业研发出了一种利用人工智能和激光灭蚊的设备。然而，该设备运行时对周围的人员和其他生物存在安全隐患。`\
+https://www.nytimes.com/video/chinese/100000011266800/ai-lasers-mosquitoes-chinese.html
+
 **Trump Says Immigration Crackdown May Have ‘Hurt’ Republicans in Midterms**\
 `The president was asked in a “60 Minutes” interview that aired on Sunday whether his deportation policies went too far. “I think it might be too tough,” he said.`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-immigration-crackdown-republicans-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/crosswords/strands-sidekick-981.html
 **NYT Connections Answers for November 9, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 9, 2026.`\
 https://www.nytimes.com/2026/11/08/crosswords/connections-companion-1247.html
-
-**Keisha Lance Bottoms on What Democrats Have to Do to Not Squander the Win**\
-`The governor-elect of Georgia is elated about her party’s victories in the South, but knows realignment is far from secure.`\
-https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
 
