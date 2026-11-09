@@ -1,3 +1,7 @@
+**Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
+`Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
+https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
+
 **Nvidia Inquiry Focuses on Relationship Between Jensen Huang and Suspected Chinese Spy**\
 `Jensen Huang, chief executive of the powerhouse chipmaker Nvidia, told its board of his intimate relationship with a business executive who U.S. officials suspect provided information to Chinese intelligence.`\
 https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-investigation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/us/politics/us-israel-midterm-elections.html
 **How a Personal Finance Entrepreneur Lives on $130,000 a Year in Brooklyn**\
 `Aaliyah Duah, 23, has made profitable investments in the stock market, and is trying to teach even younger people how to do the same.`\
 https://www.nytimes.com/interactive/2026/11/09/nyregion/nyc-budgeting-affordability-duah.html
-
-**Lloyd Geering, Pastor Who Disputed Christ’s Resurrection, Dies at 108**\
-`“It is faith that man needs, not past doctrines,” he said in defense of his views, which became a cause célèbre for many but were condemned by others.`\
-https://www.nytimes.com/2026/11/09/obituaries/lloyd-geering-dead.html
 

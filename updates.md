@@ -1,3 +1,7 @@
+**Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
+`Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
+https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
+
 **Nvidia Inquiry Focuses on Relationship Between Jensen Huang and Suspected Chinese Spy**\
 `Jensen Huang, chief executive of the powerhouse chipmaker Nvidia, told its board of his intimate relationship with a business executive who U.S. officials suspect provided information to Chinese intelligence.`\
 https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-investigation.html
