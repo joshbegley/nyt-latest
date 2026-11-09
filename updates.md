@@ -1,3 +1,7 @@
+**Democrats Demand Answers on Trump’s A.I. Policy Amid Spy Plot**\
+`Congressional leaders raise concerns in a letter as Nvidia investigates its chief executive’s affair with a suspected Chinese spy.`\
+https://www.nytimes.com/2026/11/09/us/politics/democrats-trump-ai-nvidia.html
+
 **Progressives Defied Their Party and Won Big. They Still Feel Ignored.**\
 `As Democrats prepare to take power in Congress, some centrists are brushing off the victories of left-wing candidates. The left is pushing back.`\
 https://www.nytimes.com/2026/11/09/us/politics/progressive-wins-midterms.html
