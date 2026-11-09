@@ -1,3 +1,7 @@
+**A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
+`As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
+
 **Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
 `Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
 https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/09/arts/music/talafreako-lil-texxan-viral-song.h
 `The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
 https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
 
-**Trump Veers Back Into Claims of Rigged Election**\
+**Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
 `“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
 https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
 
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
-`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
-https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
-
 **Congress Returns to a Reordered Washington With a Hazy Agenda**\
 `An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
+
+**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
+`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
+https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011262780/how-ice-raids-helped-flip-a-kan
 **Shoppers to Use Black Friday Sales to Stock Up on Essentials**\
 `Shoppers strained by high costs of living are expected to put a priority on value this season, whether they’re buying gifts or everyday items for themselves.`\
 https://www.nytimes.com/2026/11/09/business/holiday-shopping-deals-essentials.html
-
-**Paulina Porizkova: Why I Now Call Myself a Feminist**\
-`The former model looks back at what she wrote in The Times about feminism nine years ago.`\
-https://www.nytimes.com/2026/11/09/opinion/paulina-porizkova-nyt-175.html
 

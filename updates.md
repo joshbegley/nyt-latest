@@ -1,3 +1,11 @@
+**A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
+`As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
+
+**Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
+`“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
+https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
+
 **Trump Has Found His New Roy Cohn in Stephen Miller**\
 `Stephen Miller is the wartime consigliere Trump always wanted.`\
 https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
