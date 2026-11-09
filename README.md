@@ -1,3 +1,27 @@
+**Dark Chocolate Mousse With Orange Whipped Cream**\
+`Even a simple dessert can make a big statement. This rich chocolate mousse, topped with a cloud of citrusy cream, doesn’t require you to make a custard or use any gelatin.`\
+https://www.nytimes.com/video/dining/100000011272584/dark-chocolate-mousse-with-orange-whipped-cream.html
+
+**Potato Chip Mashed Potatoes**\
+`Potato lovers will rejoice at the creamy and crunchy potato textures within the same dish.`\
+https://www.nytimes.com/video/dining/100000011272606/potato-chip-mashed-potatoes.html
+
+**Salted Caramel and Pecan Cream Slice**\
+`Cream slice — also known as cremeschnitte, cremeș or krempita — is a beloved dessert in many European countries and beyond, but no matter what it’s called, the essence of the dessert is the same: a sturdy, sliceable vanilla custard sandwiched between flaky puff pastry layers.`\
+https://www.nytimes.com/video/dining/100000011272635/salted-caramel-and-pecan-cream-slice.html
+
+**Bacon, Egg and Cheese Fried Rice**\
+`Bacon, egg and cheese sandwiches and fried rice are each beloved for their simplicity and affordability, but also because they deliver great comfort and satisfaction. In this playful weeknight meal, the two come together.`\
+https://www.nytimes.com/video/dining/100000011272649/bacon-egg-and-cheese-fried-rice.html
+
+**Sweet Potato and Cranberry Layer Cake**\
+`This towering showstopper combines a few key flavor profiles of the Thanksgiving table into one celebration-worthy centerpiece: tender, spiced sweet potato cake layered with a tart cranberry filling and finished with a torched, marshmallow-like meringue frosting.`\
+https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-layer-cake.html
+
+**Mango Pie**\
+`Salty, crumbly graham cracker crust is the perfect foundation for the golden cloud of custard that sits atop it, made tangy and rich with the addition of cream cheese and whipped cream.`\
+https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
+
 **Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
 `The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/2026/11/09/climate/max-worsley-antarctic-expedition.html
 **After a Crushing Defeat, Trump Doubles Down**\
 `President Trump has named Stephen Miller, the architect of his administration’s mass deportation effort, as his new chief of staff.`\
 https://www.nytimes.com/2026/11/09/podcasts/the-daily/midterms-defeat-trump-stephen-miller.html
-
-**How to Pack for a Walk Across England**\
-`The writer Aatish Taseer reviews the key items he packed for a 197-mile trek across England.`\
-https://www.nytimes.com/video/t-magazine/100000011242690/how-to-pack-for-a-walk-across-england.html
-
-**NYT Strands Hints for November 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
-https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
-
-**Cruise Ship Worker Rescued in Pacific Ocean Off California Coast After Going Overboard**\
-`He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
-https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
-
-**Nvidia’s Stock Price Drops After Investigation Into CEO Jensen Huang**\
-`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a businesswoman suspected of spying for China could reverberate across Wall Street.`\
-https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
-
-**Is Jensen Huang Too Powerful to Be Punished by Nvidia?**\
-`The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
-https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
-
-**Trump Has Found His New Roy Cohn in Stephen Miller**\
-`Stephen Miller is the wartime consigliere Trump always wanted.`\
-https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 
