@@ -1,3 +1,7 @@
+**Read the Memo Jensen Huang Sent to Nvidia Employees**\
+`Nvidia’s chief executive sent a memo to employees apologizing for his relationship with a businesswoman that U.S. intelligence agencies determined was a Chinese spy.`\
+https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.html
+
 **NYT Connections Answers for November 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
 https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/travel/electric-vehicle-rental-guide.html
 **How Chance the Rapper Reimagined a Hit Mixtape for the Concert Stage**\
 `On the 10-year anniversary of his Grammy-winning “Coloring Book,” the Chicago rapper played the hits, and then some.`\
 https://www.nytimes.com/2026/11/09/arts/music/chance-the-rapper-interview-setlist.html
-
-**Comedian Jordan Jensen’s Comedy Mines the Absurdity of the Awful**\
-`Comedian Jordan Jensen mines the absurdity of the awful. And she has no shortage of material.`\
-https://www.nytimes.com/2026/11/09/style/her-misery-loves-comedy.html
 
