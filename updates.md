@@ -1,3 +1,7 @@
+**‘Wanted’ Review: A Messy Vigilante Story Squanders Its Musical Riches**\
+`The musical, rooted in the writer Angelica Chéri’s family lore, follows Black twin sisters who pass for white and become vigilantes in 1890s Texas.`\
+https://www.nytimes.com/2026/11/08/theater/wanted-review-passing-pfeiffer-ledisi-luke-james.html
+
 **Biden Says Health to Limit Book Promotion as Cancer ‘Slows Me Down’**\
 `Former President Joseph R. Biden Jr. said his aggressive prostate cancer meant he “won’t be able to do as many conversations” to promote his forthcoming memoir as he had hoped.`\
 https://www.nytimes.com/2026/11/08/us/politics/biden-cancer-health-memoir.html

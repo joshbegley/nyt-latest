@@ -1,3 +1,7 @@
+**Diners Support Jewish-Owned Eateries in Philadelphia After Boycott Call**\
+`A protest calling for a boycott of restaurants that organizers said supported Israel was overwhelmed by counterprotesters, who came to buy food from the targeted businesses.`\
+https://www.nytimes.com/2026/11/08/us/protest-bike-ride-jewish-restaurants-philadelphia.html
+
 **‘Wanted’ Review: A Messy Vigilante Story Squanders Its Musical Riches**\
 `The musical, rooted in the writer Angelica Chéri’s family lore, follows Black twin sisters who pass for white and become vigilantes in 1890s Texas.`\
 https://www.nytimes.com/2026/11/08/theater/wanted-review-passing-pfeiffer-ledisi-luke-james.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
 **Keisha Lance Bottoms on a Civil Rights Leader’s Reaction to Her Historic Win**\
 `Andrew Young is a civil rights leader and a former mayor of Atlanta. On “The Interview,” Keisha Lance Bottoms discussed his reaction to her victory in the Georgia governor’s race.`\
 https://www.nytimes.com/video/podcasts/100000011269167/keisha-lance-bottoms-on-a-civil-rights-leaders-reaction-to-her-historic-win.html
-
-**Georgia’s Governor-Elect on How Race Did and Didn’t Matter in the Blue Wave**\
-`Keisha Lance Bottoms is the first Black woman to be elected governor in the U.S. On “The Interview,” she talked about how much identity politics came into play for voters.`\
-https://www.nytimes.com/video/podcasts/100000011269166/georgias-governor-elect-on-how-race-did-and-didnt-matter-in-the-blue-wave.html
 
