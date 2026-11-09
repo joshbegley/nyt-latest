@@ -1,3 +1,7 @@
+**Trump Was ‘Only Kidding’ in Asking Dana White to Be His Press Secretary**\
+`The president said on Sunday that the U.F.C. chief executive “loves the idea” of being the White House spokesman but that his public offer of the job was “just a little fun.”`\
+https://www.nytimes.com/2026/11/08/us/politics/trump-joke-dana-white-press-secretary.html
+
 **Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
 `The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
