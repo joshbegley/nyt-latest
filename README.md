@@ -1,6 +1,14 @@
+**Cruise Ship Worker Rescued in Pacific Ocean Off California Coast After Going Overboard**\
+`He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
+https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
+
+**Nvidia’s Stock Price Set to Drop After Investigation Into CEO Jensen Huang**\
+`The chipmaker’s size and significance to the A.I trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
+
 **Is Jensen Huang too Powerful to Be Punished by Nvidia?**\
 `The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
-https://www.nytimes.com/2026/11/09/technology/jensun-huang-affair-nvidia.html
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
 
 **There’s a New Roy Cohn in Town**\
 `Stephen Miller is the wartime consigliere Trump always wanted.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/09/world/europe/ukraine-russia-peace-talks.html
 **15-Minute Lesson Plan: Interview an Elder**\
 `Is there a relative, mentor or older friend you admire? What would you like to ask them about their life?`\
 https://www.nytimes.com/2026/11/09/learning/15-minute-lesson-plan-interview-an-elder.html
-
-**Jeffries and Schumer Face Blowback at Home as They Ascend in Washington**\
-`Even as Senator Chuck Schumer and Representative Hakeem Jeffries prepare to lead Congress, primary challenges scenarios in 2028 are already emerging in New York.`\
-https://www.nytimes.com/2026/11/09/nyregion/jeffries-schumer-democrats-puerto-rico-protests.html
-
-**Costly Groceries Make Dinner More Complicated. That Goes for Pets Too.**\
-`New York City is providing $500,000 to some pantries to provide pet food during an affordability crisis that is affecting humans, but could also be a problem for their pets.`\
-https://www.nytimes.com/2026/11/09/nyregion/nyc-pet-food-pantries.html
 
