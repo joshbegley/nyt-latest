@@ -1,3 +1,7 @@
+**What Is Congress’s Plan to Speed Up Energy Permits?**\
+`The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
+https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
+
 **$2 Billion Wasn’t Enough to Save Weil Gotshal**\
 `Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
 https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
