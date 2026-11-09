@@ -1,3 +1,7 @@
+**‘Wanted’ Review: A Messy Vigilante Story Squanders Its Musical Riches**\
+`The musical, rooted in the writer Angelica Chéri’s family lore, follows Black twin sisters who pass for white and become vigilantes in 1890s Texas.`\
+https://www.nytimes.com/2026/11/08/theater/wanted-review-passing-pfeiffer-ledisi-luke-james.html
+
 **Biden Says Health to Limit Book Promotion as Cancer ‘Slows Me Down’**\
 `Former President Joseph R. Biden Jr. said his aggressive prostate cancer meant he “won’t be able to do as many conversations” to promote his forthcoming memoir as he had hoped.`\
 https://www.nytimes.com/2026/11/08/us/politics/biden-cancer-health-memoir.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011269167/keisha-lance-bottoms-on-a
 **Georgia’s Governor-Elect on How Race Did and Didn’t Matter in the Blue Wave**\
 `Keisha Lance Bottoms is the first Black woman to be elected governor in the U.S. On “The Interview,” she talked about how much identity politics came into play for voters.`\
 https://www.nytimes.com/video/podcasts/100000011269166/georgias-governor-elect-on-how-race-did-and-didnt-matter-in-the-blue-wave.html
-
-**For Trump and America, a Clear Election Verdict but a Murky Future**\
-`As Americans absorb a stunning new political reality, they face a gap between the time they effectively decided to be done with the president and the time he is actually done.`\
-https://www.nytimes.com/2026/11/08/us/politics/trump-midterm-election-america-future.html
 
