@@ -1,3 +1,7 @@
+**Do You Know Where These Novels Are Set?**\
+`Test your memory of these recent books and the college campuses where the action takes place.`\
+https://www.nytimes.com/quiz/2026/11/09/bookreview/campus-novels-quiz.html
+
 **Megyn Kelly, Elon Musk and Others Defend Russell Brand After Rape Conviction**\
 `The former star, whom a British judge sentenced to 10 and a half years in prison on Monday, became an anti-establishment flag-bearer through conspiracy-minded commentary.`\
 https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/movies/godzilla-minus-zero-ghidorah.html
 **For This Choreographer, After Tragedy, Comes a Dance**\
 `Neil Greenberg, a contemporary choreographer with exacting craft and an indomitable spirit, presents his latest work at the Chocolate Factory Theater.`\
 https://www.nytimes.com/2026/11/09/arts/dance/neil-greenberg-next-dance.html
-
-**How a Tod’s Top-Handle Bag Comes Together**\
-`A behind-the-scenes peek at the creation of a speckled-leather accessory from the Italian house.`\
-https://www.nytimes.com/2026/11/09/t-magazine/how-a-tods-top-handle-bag-comes-together.html
 
