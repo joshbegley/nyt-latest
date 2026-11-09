@@ -1,3 +1,11 @@
+**The Evening: Fallout From Nvidia Revelations Continues**\
+`Plus, the best writer you’ve never heard of. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/09/briefing/nvidia-huang-hegseth.html
+
+**Judge Denies Request to Throw Out Lindsay Clancy’s Murder Charges**\
+`The judge also declined to investigate the lone juror who wanted to convict Ms. Clancy, saying it would invade his privacy and deter others from serving on juries.`\
+https://www.nytimes.com/2026/11/09/us/lindsay-clancy-trial-motions-denied.html
+
 **Man, 80, Killed in Fire at His Harlem Apartment, Officials Say**\
 `The cause of the early-morning fire was under investigation, officials said, noting there was “heavy clutter” in the unit where the blaze broke out.`\
 https://www.nytimes.com/2026/11/09/nyregion/apartment-fire-harlem-death.html
@@ -95,8 +103,8 @@ https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
 
 **Thomas Massie Moves to Force Vote on Impeaching Pete Hegseth**\
-`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must be taken within two days.`\
-https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html
+`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must occur by Wednesday. If the House approves the charges, it will prompt a Senate trial.`\
+https://www.nytimes.com/2026/11/09/us/politics/hegseth-impeachment-massie.html
 
 **The Local: Remembering the Edmund Fitzgerald**\
 `Family members of one sailor share their experiences.`\
@@ -123,7 +131,7 @@ https://www.nytimes.com/2026/11/09/us/politics/progressive-wins-midterms.html
 https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
 
 **At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
-`Senfronia Thompson, of Houston, would also become the first Black lawmaker to serve as speaker.`\
+`At 87, Senfronia Thompson of Houston is poised to become the first woman, and Black lawmaker, to lead the Texas House.`\
 https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
 
 **Every Wedding Has a Budget. What’s the Story Behind Yours?**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms
 **Independent Senate Candidates Ran in Deep-Red States and Lost Despite Democratic Support**\
 `The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
 https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
-
-**U.S. Commerce Dept. Inquiry Into Megaspeed Was Halted After Nvidia Intervention**\
-`An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
-https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
-
-**The Cornell Texts**\
-`We look at the messages at the center of the rape inquiry.`\
-https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
 

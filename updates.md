@@ -1,3 +1,19 @@
+**The Evening: Fallout From Nvidia Revelations Continues**\
+`Plus, the best writer you’ve never heard of. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/09/briefing/nvidia-huang-hegseth.html
+
+**Judge Denies Request to Throw Out Lindsay Clancy’s Murder Charges**\
+`The judge also declined to investigate the lone juror who wanted to convict Ms. Clancy, saying it would invade his privacy and deter others from serving on juries.`\
+https://www.nytimes.com/2026/11/09/us/lindsay-clancy-trial-motions-denied.html
+
+**Thomas Massie Moves to Force Vote on Impeaching Pete Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must occur by Wednesday. If the House approves the charges, it will prompt a Senate trial.`\
+https://www.nytimes.com/2026/11/09/us/politics/hegseth-impeachment-massie.html
+
+**At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
+`At 87, Senfronia Thompson of Houston is poised to become the first woman, and Black lawmaker, to lead the Texas House.`\
+https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
+
 **Man, 80, Killed in Fire at His Harlem Apartment, Officials Say**\
 `The cause of the early-morning fire was under investigation, officials said, noting there was “heavy clutter” in the unit where the blaze broke out.`\
 https://www.nytimes.com/2026/11/09/nyregion/apartment-fire-harlem-death.html
