@@ -1,3 +1,11 @@
+**Trump Veers Back Into Claims of Rigged Election**\
+`“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
+https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
+
+**Would a Democratic Crackdown on A.I. Hurt the Economy or Save It?**\
+`Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
+https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
+
 **As the Country Swung Left, Independent Senate Candidates Stalled**\
 `The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
 https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
@@ -110,13 +118,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Congress Returns to a Reordered Washington With a Hazy Agenda**\
-`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
-https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
-
 **Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
 `A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
 https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
+
+**Congress Returns to a Reordered Washington With a Hazy Agenda**\
+`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
+https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/09/nyregion/unclaimed-homeless-burials.html
 **Mississippi Officer Who Fatally Shot Toddler Had a History of Aggressive Policing**\
 `A new examination of video footage shows that the officer who shot at a fleeing car in a Walmart parking lot, killing a boy, had previously ramped up encounters by punching, cursing and drawing his weapon.`\
 https://www.nytimes.com/2026/11/09/us/mississippi-officer-walmart-shooting-toddler-aggressive-policing.html
-
-**Does Fashion Discriminate Against Short People?**\
-`A reader bemoans the end of the petite department.`\
-https://www.nytimes.com/2026/11/09/style/fashion-petite-sizing.html
-
-**The Geezer of Graffiti Art, Barry McGee, Goes ‘Another Round’ in Los Angeles**\
-`From train yards to Jeffrey Deitch, a luminary of street art cuts “another hole in the fence” bringing his friends to his new exhibition.`\
-https://www.nytimes.com/2026/11/09/arts/design/the-geezer-of-graffiti-art-barry-mcgee-goes-another-round-in-los-angeles.html
 
