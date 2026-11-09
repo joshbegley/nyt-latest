@@ -1,3 +1,11 @@
+**Trump Veers Back Into Claims of Rigged Election**\
+`“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
+https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
+
+**Would a Democratic Crackdown on A.I. Hurt the Economy or Save It?**\
+`Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
+https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
+
 **As the Country Swung Left, Independent Senate Candidates Stalled**\
 `The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
 https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
