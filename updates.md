@@ -1,3 +1,15 @@
+**Cruise Ship Worker Rescued in Pacific Ocean Off California Coast After Going Overboard**\
+`He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
+https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
+
+**Nvidia’s Stock Price Set to Drop After Investigation Into CEO Jensen Huang**\
+`The chipmaker’s size and significance to the A.I trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
+https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
+
+**Is Jensen Huang too Powerful to Be Punished by Nvidia?**\
+`The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
+
 **Is Jensen Huang too Powerful to Be Punished by Nvidia?**\
 `The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
 https://www.nytimes.com/2026/11/09/technology/jensun-huang-affair-nvidia.html
