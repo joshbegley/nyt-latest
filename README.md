@@ -1,3 +1,7 @@
+**James Gunn and Peter Safran Are Out as Heads of DC Studios**\
+`Skydance, which acquired DC Studios’ parent company weeks ago, announced that the duo would step away from their roles after four years.`\
+https://www.nytimes.com/2026/11/09/us/dc-studios-james-gunn-peter-safran-skydance.html
+
 **Dark Chocolate Mousse With Orange Whipped Cream**\
 `Even a simple dessert can make a big statement. This rich chocolate mousse, topped with a cloud of citrusy cream, doesn’t require you to make a custard or use any gelatin.`\
 https://www.nytimes.com/video/dining/100000011272584/dark-chocolate-mousse-with-orange-whipped-cream.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
 `The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
 
-**Massie Calls Up Impeachment Charges Against Hegseth**\
+**Thomas Massie Moves to Force Vote on Impeaching Pete Hegseth**\
 `Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must be taken within two days.`\
 https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/crosswords/wordle-review-1970.html
 **A Decade After Henry Worsley Died in Antarctica, His Son Tries to Reach the South Pole**\
 `A decade after Max Worsley’s father died crossing the continent, he embarks this month on his own journey into the lonely land his father loved.`\
 https://www.nytimes.com/2026/11/09/climate/max-worsley-antarctic-expedition.html
-
-**After a Crushing Defeat, Trump Doubles Down**\
-`President Trump has named Stephen Miller, the architect of his administration’s mass deportation effort, as his new chief of staff.`\
-https://www.nytimes.com/2026/11/09/podcasts/the-daily/midterms-defeat-trump-stephen-miller.html
 
