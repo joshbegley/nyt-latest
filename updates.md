@@ -1,3 +1,11 @@
+**How Much Did Data Centers Influence Election Results?**\
+`In the aftermath of this week’s midterm elections, the New York Times Opinion columnist Ezra Klein spoke on the “Hard Fork” podcast about how data centers might have influenced results.`\
+https://www.nytimes.com/video/technology/100000011273113/how-much-did-data-centers-influence-election-results.html
+
+**The Nvidia Affair**\
+`An illicit relationship between the C.E.O. and an alleged Chinese spy is putting the spotlight on a murky ecosystem of companies smuggling A.I. chips into China.`\
+https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-brand.html
+
 **Michael Bloomberg Marries Diana Taylor**\
 `Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
 https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html

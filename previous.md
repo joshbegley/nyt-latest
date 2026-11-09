@@ -1,3 +1,11 @@
+**How Much Did Data Centers Influence Election Results?**\
+`In the aftermath of this week’s midterm elections, the New York Times Opinion columnist Ezra Klein spoke on the “Hard Fork” podcast about how data centers might have influenced results.`\
+https://www.nytimes.com/video/technology/100000011273113/how-much-did-data-centers-influence-election-results.html
+
+**The Nvidia Affair**\
+`An illicit relationship between the C.E.O. and an alleged Chinese spy is putting the spotlight on a murky ecosystem of companies smuggling A.I. chips into China.`\
+https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-brand.html
+
 **Michael Bloomberg Marries Diana Taylor**\
 `Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
 https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
 **The Clergy in Congress**\
 `Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
-
-**Read the Memo Jensen Huang Sent to Nvidia Employees**\
-`Nvidia’s chief executive sent a memo to employees apologizing for his relationship with a businesswoman that U.S. intelligence agencies determined was a Chinese spy.`\
-https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.html
-
-**NYT Connections Answers for November 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
-https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
 
