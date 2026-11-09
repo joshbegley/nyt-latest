@@ -1,3 +1,7 @@
+**Ukraine Peace Talks Resume This Week in Abu Dhabi**\
+`After a nine-month lull, U.S.-led talks to end the war between Russia and Ukraine will resume this week in Abu Dhabi. A cease-fire won’t be on the table.`\
+https://www.nytimes.com/2026/11/09/world/europe/ukraine-russia-peace-talks.html
+
 **15-Minute Lesson Plan: Interview an Elder**\
 `Is there a relative, mentor or older friend you admire? What would you like to ask them about their life?`\
 https://www.nytimes.com/2026/11/09/learning/15-minute-lesson-plan-interview-an-elder.html
