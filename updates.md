@@ -1,3 +1,7 @@
+**Two People Arrested After Car Crashes Near the White House**\
+`A driver crashed a car into a sign near the White House on Monday. At around the same time, another man jumped a barricade at a nearby park. It was not immediately clear whether these two episodes were related.`\
+https://www.nytimes.com/video/us/politics/100000011273261/white-house-car-crash-arrests.html
+
 **The Evening: Fallout From Nvidia Revelations Continues**\
 `Plus, the best writer you’ve never heard of. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/09/briefing/nvidia-huang-hegseth.html
