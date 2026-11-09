@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.
 `The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
 https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
 
-**There’s a New Roy Cohn in Town**\
+**Trump Has Found His New Roy Cohn in Stephen Miller**\
 `Stephen Miller is the wartime consigliere Trump always wanted.`\
 https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 

@@ -1,3 +1,15 @@
+**Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
+`Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
+https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
+
+**Mass Killing in Poland Becomes Cause for a Political Fight**\
+`The government blames the far right for inspiring the gunman, while the opposition accuses the government of lax security.`\
+https://www.nytimes.com/2026/11/09/world/europe/poland-mass-shooting-krakow-politics.html
+
+**‘Talafreako’ Is, Accidentally, the Campaign Song of the Moment**\
+`An impromptu song by a Texas rapper has helped immortalize the frisky nickname of Senator-elect James Talarico.`\
+https://www.nytimes.com/2026/11/09/arts/music/talafreako-lil-texxan-viral-song.html
+
 **What Is Congress’s Plan to Speed Up Energy Permits?**\
 `The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
 https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
@@ -162,7 +174,7 @@ https://www.nytimes.com/interactive/2026/11/09/nyregion/nyc-budgeting-affordabil
 `“It is faith that man needs, not past doctrines,” he said in defense of his views, which became a cause célèbre for many but were condemned by others.`\
 https://www.nytimes.com/2026/11/09/obituaries/lloyd-geering-dead.html
 
-**As Dengue Cases Rise, a Florida Woman’s Death Raises Alarms**\
+**Florida Woman’s Death From This Mosquito-Borne Disease Raises Alarms**\
 `In the past, Americans were infected with dengue after being bitten by mosquitoes while traveling. But now, most of the current transmission is from local mosquitoes.`\
 https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/09/business/holiday-shopping-deals-essentials.ht
 **Paulina Porizkova: Why I Now Call Myself a Feminist**\
 `The former model looks back at what she wrote in The Times about feminism nine years ago.`\
 https://www.nytimes.com/2026/11/09/opinion/paulina-porizkova-nyt-175.html
-
-**Loew’s Jersey Theater Shines Again After $130 Million Renovation**\
-`The “Wonder Theater” in Jersey City is working out the role of a community group in its programming.`\
-https://www.nytimes.com/2026/11/09/nyregion/loews-jersey-130-million-renovation.html
-
-**$2 Billion Wasn’t Enough to Save Weil Gotshal**\
-`Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
-https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
-
-**A Funeral for 9 New Yorkers Who Died Lonely Deaths in a Brutal Winter**\
-`On All Souls’ Day, a Manhattan church held a requiem Mass to honor the homeless people whose bodies were never claimed after their deaths.`\
-https://www.nytimes.com/2026/11/09/nyregion/unclaimed-homeless-burials.html
 

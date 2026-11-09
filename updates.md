@@ -1,3 +1,19 @@
+**Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
+`Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
+https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
+
+**Mass Killing in Poland Becomes Cause for a Political Fight**\
+`The government blames the far right for inspiring the gunman, while the opposition accuses the government of lax security.`\
+https://www.nytimes.com/2026/11/09/world/europe/poland-mass-shooting-krakow-politics.html
+
+**‘Talafreako’ Is, Accidentally, the Campaign Song of the Moment**\
+`An impromptu song by a Texas rapper has helped immortalize the frisky nickname of Senator-elect James Talarico.`\
+https://www.nytimes.com/2026/11/09/arts/music/talafreako-lil-texxan-viral-song.html
+
+**Florida Woman’s Death From This Mosquito-Borne Disease Raises Alarms**\
+`In the past, Americans were infected with dengue after being bitten by mosquitoes while traveling. But now, most of the current transmission is from local mosquitoes.`\
+https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.html
+
 **What Is Congress’s Plan to Speed Up Energy Permits?**\
 `The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
 https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
