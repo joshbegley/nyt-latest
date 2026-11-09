@@ -1,3 +1,31 @@
+**NYT Connections Answers for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
+
+**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Miller Takes the Reins**\
+`Plus, R.I.P. Cybertruck.`\
+https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
+
+**Today’s Wordle Hints for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/wordle-review-1970.html
+
+**A Decade After Henry Worsley Died in Antarctica, His Son Tries to Reach the South Pole**\
+`A decade after Max Worsley’s father died crossing the continent, he embarks this month on his own journey into the lonely land his father loved.`\
+https://www.nytimes.com/2026/11/09/climate/max-worsley-antarctic-expedition.html
+
+**After a Crushing Defeat, Trump Doubles Down**\
+`President Trump has named Stephen Miller, the architect of his administration’s mass deportation effort, as his new chief of staff.`\
+https://www.nytimes.com/2026/11/09/podcasts/the-daily/midterms-defeat-trump-stephen-miller.html
+
+**How to Pack for a Walk Across England**\
+`The writer Aatish Taseer reviews the key items he packed for a 197-mile trek across England.`\
+https://www.nytimes.com/video/t-magazine/100000011242690/how-to-pack-for-a-walk-across-england.html
+
+**NYT Strands Hints for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
+
 **What Democrats Plan to Investigate After Election Victory**\
 `Following their midterm victories, Democrats are preparing to open wide-ranging investigations into President Trump, his family and his administration. Michael Gold, a Times congressional reporter, identifies the Democrats’ biggest targets.`\
 https://www.nytimes.com/video/us/politics/100000011266496/democrats-plan-corruption-investigations-after-election-victory.html

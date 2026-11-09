@@ -1,3 +1,31 @@
+**NYT Connections Answers for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
+
+**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Miller Takes the Reins**\
+`Plus, R.I.P. Cybertruck.`\
+https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
+
+**Today’s Wordle Hints for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/wordle-review-1970.html
+
+**A Decade After Henry Worsley Died in Antarctica, His Son Tries to Reach the South Pole**\
+`A decade after Max Worsley’s father died crossing the continent, he embarks this month on his own journey into the lonely land his father loved.`\
+https://www.nytimes.com/2026/11/09/climate/max-worsley-antarctic-expedition.html
+
+**After a Crushing Defeat, Trump Doubles Down**\
+`President Trump has named Stephen Miller, the architect of his administration’s mass deportation effort, as his new chief of staff.`\
+https://www.nytimes.com/2026/11/09/podcasts/the-daily/midterms-defeat-trump-stephen-miller.html
+
+**How to Pack for a Walk Across England**\
+`The writer Aatish Taseer reviews the key items he packed for a 197-mile trek across England.`\
+https://www.nytimes.com/video/t-magazine/100000011242690/how-to-pack-for-a-walk-across-england.html
+
+**NYT Strands Hints for November 10, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
+https://www.nytimes.com/2026/11/09/crosswords/strands-sidekick-982.html
+
 **Cruise Ship Worker Rescued in Pacific Ocean Off California Coast After Going Overboard**\
 `He was found about 10 miles from Catalina Island, near Los Angeles. A fisherman involved in his rescue said the man was a pianist on a Royal Caribbean cruise ship.`\
 https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-california-pacific.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/09/arts/music/chance-the-rapper-interview-setlis
 **Comedian Jordan Jensen’s Comedy Mines the Absurdity of the Awful**\
 `Comedian Jordan Jensen mines the absurdity of the awful. And she has no shortage of material.`\
 https://www.nytimes.com/2026/11/09/style/her-misery-loves-comedy.html
-
-**For Years, She Felt Awful. Her Flexible Joints Held a Clue.**\
-`Many people with hypermobility disorders spend years trying to figure out what’s wrong. Online communities are helping them connect the dots.`\
-https://www.nytimes.com/2026/11/09/well/heds-eds-hypermobile.html
-
-**Book Review: ‘Murder in Paris ’68,’ by Edward Chisholm**\
-`In “Murder in Paris ’68,” Edward Chisholm unspools the seedy murder of Alain Delon’s bodyguard with panache and hard-boiled charm.`\
-https://www.nytimes.com/2026/11/09/books/review/edward-chisholm-murder-in-paris-68.html
-
-**‘The Greatest’ Gives a Broad Canvas to an Epic Life**\
-`A new biographical series about Muhammad Ali aims to humanize one of the most consequential figures in American history.`\
-https://www.nytimes.com/2026/11/09/arts/television/the-greatest-muhammad-ali-michael-b-jordan.html
-
-**How Did Greek Fire Work? And 6 Other Lost Inventions.**\
-`Even once-widespread innovations have been forgotten, leaving scholars puzzling over the details.`\
-https://www.nytimes.com/2026/11/09/science/lost-inventions-to-time-greek-fire-antikythera.html
-
-**How Healthy Are Cranberries?**\
-`Let’s talk turkey about this Thanksgiving classic.`\
-https://www.nytimes.com/2026/11/09/well/eat/cranberries-health-benefits-recipes.html
-
-**Ukraine Peace Talks Resume This Week in Abu Dhabi**\
-`U.S.-led talks to end the war between Russia and Ukraine will resume this week in Abu Dhabi. A cease-fire won’t be on the table.`\
-https://www.nytimes.com/2026/11/09/world/europe/ukraine-russia-peace-talks.html
-
-**15-Minute Lesson Plan: Interview an Elder**\
-`Is there a relative, mentor or older friend you admire? What would you like to ask them about their life?`\
-https://www.nytimes.com/2026/11/09/learning/15-minute-lesson-plan-interview-an-elder.html
 
