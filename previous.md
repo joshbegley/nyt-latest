@@ -1,3 +1,11 @@
+**At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
+`Senfronia Thompson, of Houston, would also become the first Black lawmaker to serve as speaker.`\
+https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
+
+**Every Wedding Has a Budget. What’s the Story Behind Yours?**\
+`We want to hear from couples who married in the last five years about how they approached their wedding budget: where they splurged and saved and how they brought their vision to life.`\
+https://www.nytimes.com/2026/11/09/style/wedding-cost-budget.html
+
 **Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
 `Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
 https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
@@ -158,13 +166,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
-`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
-https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
-
 **Congress Returns to a Reordered Washington With a Hazy Agenda**\
 `An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
+
+**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
+`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
+https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/09/opinion/democrats-midterms-populism.html
 **What Democrats Plan to Investigate After Election Victory**\
 `Following their midterm victories, Democrats are preparing to open wide-ranging investigations into President Trump, his family and his administration. Michael Gold, a Times congressional reporter, identifies the Democrats’ biggest targets.`\
 https://www.nytimes.com/video/us/politics/100000011266496/democrats-plan-corruption-investigations-after-election-victory.html
-
-**Bipartisan Support for Israel Erodes as Both Sides Push for New Limits**\
-`Vice President JD Vance is among Republicans calling for change. Many Democratic lawmakers have been driving a campaign to restrict military aid to Israel.`\
-https://www.nytimes.com/2026/11/09/us/politics/us-israel-midterm-elections.html
-
-**How a Personal Finance Entrepreneur Lives on $130,000 a Year in Brooklyn**\
-`Aaliyah Duah, 23, has made profitable investments in the stock market, and is trying to teach even younger people how to do the same.`\
-https://www.nytimes.com/interactive/2026/11/09/nyregion/nyc-budgeting-affordability-duah.html
 

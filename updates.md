@@ -1,3 +1,11 @@
+**At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
+`Senfronia Thompson, of Houston, would also become the first Black lawmaker to serve as speaker.`\
+https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
+
+**Every Wedding Has a Budget. What’s the Story Behind Yours?**\
+`We want to hear from couples who married in the last five years about how they approached their wedding budget: where they splurged and saved and how they brought their vision to life.`\
+https://www.nytimes.com/2026/11/09/style/wedding-cost-budget.html
+
 **Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
 `Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
 https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
