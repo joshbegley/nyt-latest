@@ -1,3 +1,7 @@
+**Republican Lawmaker Forces Impeachment Vote on Pete Hegseth**\
+`Representative Thomas Massie, a Republican of Kentucky, has forced a vote on impeaching Defense Secretary Pete Hegseth.`\
+https://www.nytimes.com/video/us/politics/100000011273236/pete-hegseth-impeachment-vote-massie.html
+
 **Student News Quiz: Blue Wave, Disneyland, Smugglers’ Socks**\
 `Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/11/09/learning/09studentnewsquiz-ln.html
