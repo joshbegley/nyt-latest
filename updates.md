@@ -1,3 +1,11 @@
+**Ohio State Suspends Fraternity After 2 Men Catch Fire at a Chapter Gathering**\
+`The police in Columbus, Ohio, were investigating the Sigma Alpha Epsilon fraternity after a video of the incident drew widespread attention online, according to the university.`\
+https://www.nytimes.com/2026/11/09/us/ohio-state-fraternity-suspended.html
+
+**Democrats’ Fight With Trump Is Just Getting Started**\
+`The party is debating how, and how hard, to push back now that it has power.`\
+https://www.nytimes.com/2026/11/09/us/politics/democrats-trump-impeachment-corruption.html
+
 **Republican Lawmaker Forces Impeachment Vote on Pete Hegseth**\
 `Representative Thomas Massie, a Republican of Kentucky, has forced a vote on impeaching Defense Secretary Pete Hegseth.`\
 https://www.nytimes.com/video/us/politics/100000011273236/pete-hegseth-impeachment-vote-massie.html
