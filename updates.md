@@ -1,3 +1,7 @@
+**Isabel Letelier, a Chilean Voice for Human Rights, Has Died**\
+`Her husband, a prominent figure in the government of Salvador Allende, was assassinated in Washington in 1976. She was 94.`\
+https://www.nytimes.com/2026/11/09/obituaries/isabel-letelier-dead.html
+
 **Dining Beneath the Redwoods at a Former Commune in California**\
 `To celebrate its latest cohort of artists in residence, Salmon Creek Farm hosted an afternoon meal and cider pressing.`\
 https://www.nytimes.com/2026/11/09/t-magazine/salmon-creek-farm-artist-residency-lunch.html
