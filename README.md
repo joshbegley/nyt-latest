@@ -31,8 +31,8 @@ https://www.nytimes.com/2026/11/09/arts/music/talafreako-lil-texxan-viral-song.h
 https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
 
 **Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
-`“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
-https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
+`President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
+https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
 
 **Would a Democratic Crackdown on A.I. Hurt the Economy or Save It?**\
 `Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
