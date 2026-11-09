@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigati
 `We look at the messages at the center of the rape inquiry.`\
 https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
 
-**‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
-`To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
-https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
-
 **I Am a Silicon Valley Veteran. We Are Sabotaging Ourselves.**\
 `Artificial intelligence is the latest example of how Silicon Valley ruins great innovations with ridiculous theories about them.`\
 https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
+
+**‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
+`To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
+https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
 
 **Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
 `The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
