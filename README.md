@@ -1,3 +1,7 @@
+**The Clergy in Congress**\
+`A wave of religious Democrats are entering the chambers.`\
+https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
+
 **Read the Memo Jensen Huang Sent to Nvidia Employees**\
 `Nvidia’s chief executive sent a memo to employees apologizing for his relationship with a businesswoman that U.S. intelligence agencies determined was a Chinese spy.`\
 https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/learning/word-of-the-day-agrarian.html
 **How to Rent an Electric Vehicle: A Guide for Newbies**\
 `What you need to know about booking, driving and charging an E.V. if your travel plans include a getaway from gasoline-powered engines.`\
 https://www.nytimes.com/2026/11/09/travel/electric-vehicle-rental-guide.html
-
-**How Chance the Rapper Reimagined a Hit Mixtape for the Concert Stage**\
-`On the 10-year anniversary of his Grammy-winning “Coloring Book,” the Chicago rapper played the hits, and then some.`\
-https://www.nytimes.com/2026/11/09/arts/music/chance-the-rapper-interview-setlist.html
 
