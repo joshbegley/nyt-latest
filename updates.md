@@ -1,3 +1,7 @@
+**Rubio Warned Officials About Nvidia Chief’s Entanglement With Chinese Spy**\
+`The secretary of state’s role in drafting a secret memo highlights how top officials were concerned by this past spring about Jensen Huang’s relationship with a woman tied to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/08/us/politics/rubio-nvidia-ceo-chinese-spy.html
+
 **Here Are the Difficult Options Trump Is Weighing to Resolve the War in Iran**\
 `There are no good choices facing President Trump as he tries to find a way out of the deeply unpopular conflict. But there are choices.`\
 https://www.nytimes.com/2026/11/08/us/politics/trump-iran-options.html
