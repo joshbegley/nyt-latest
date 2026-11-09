@@ -1,3 +1,7 @@
+**Nvidia Inquiry Focuses on Relationship Between Jensen Huang and Suspected Chinese Spy**\
+`Jensen Huang, chief executive of the powerhouse chipmaker Nvidia, told its board of his intimate relationship with a business executive who U.S. officials suspect provided information to Chinese intelligence.`\
+https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-investigation.html
+
 **Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
 `President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
