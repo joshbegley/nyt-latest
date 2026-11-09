@@ -1,3 +1,19 @@
+**Commerce Dept. Chip Inquiry Was Halted After Nvidia Intervention**\
+`An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
+https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
+
+**The Cornell Texts**\
+`We look at the messages at the center of the rape inquiry.`\
+https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
+
+**‘I’ve Made This Like a Bajillion Times, It’s So Good!’**\
+`To make this five-star pad prik king (red curry chicken with green beans) is to love this five-star pad prik king.`\
+https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
+
+**I Am a Silicon Valley Veteran. We Are Sabotaging Ourselves.**\
+`Artificial intelligence is the latest example of how Silicon Valley ruins great innovations with ridiculous theories about them.`\
+https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
+
 **Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
 `The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
