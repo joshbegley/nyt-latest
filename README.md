@@ -80,7 +80,7 @@ https://www.nytimes.com/2026/11/08/world/americas/colombia-drone-attack-eln.html
 
 **What to Know About Nvidia’s Investigation of Its C.E.O.**\
 `Jensen Huang, the chief executive of the A.I. chip company, admitted to a romantic relationship with a woman who U.S. intelligence says was recruited by China’s top spy agency.`\
-https://www.nytimes.com/2026/11/08/technology/nvidias-investigation-jensen-huang.html
+https://www.nytimes.com/2026/11/08/technology/nvidia-investigation-jensen-huang.html
 
 **Eisenkot Tasked With Forming Next Israeli Government**\
 `Gadi Eisenkot, the leading rival of Prime Minister Benjamin Netanyahu of Israel, was tapped to try to form a new government, but the path remains complicated.`\
