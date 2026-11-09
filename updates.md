@@ -1,3 +1,7 @@
+**Diners Support Jewish-Owned Eateries in Philadelphia After Boycott Call**\
+`A protest calling for a boycott of restaurants that organizers said supported Israel was overwhelmed by counterprotesters, who came to buy food from the targeted businesses.`\
+https://www.nytimes.com/2026/11/08/us/protest-bike-ride-jewish-restaurants-philadelphia.html
+
 **‘Wanted’ Review: A Messy Vigilante Story Squanders Its Musical Riches**\
 `The musical, rooted in the writer Angelica Chéri’s family lore, follows Black twin sisters who pass for white and become vigilantes in 1890s Texas.`\
 https://www.nytimes.com/2026/11/08/theater/wanted-review-passing-pfeiffer-ledisi-luke-james.html
