@@ -1,3 +1,11 @@
+**Michael Bloomberg Marries Diana Taylor**\
+`Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
+https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
+
+**Man Accused of Murdering Charlie Kirk to Go on Trial in 2028**\
+`Tyler Robinson, the 23-year-old man whom prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
+https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
+
 **James Gunn and Peter Safran Are Out as Heads of DC Studios**\
 `Skydance, which acquired DC Studios’ parent company weeks ago, announced that the duo would step away from their roles after four years.`\
 https://www.nytimes.com/2026/11/09/us/dc-studios-james-gunn-peter-safran-skydance.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
 `The company said it needed fewer workers because production was increasing more slowly than previously expected.`\
 https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
 
-**Shipwreck Off Senegal Kills Dozens as Canaries Declare Migrant Emergency**\
+**Shipwreck Off Senegal Kills Dozens as Canary Islands Declare Migrant Emergency**\
 `Migrant arrivals to Europe are down overall but still claiming scores of victims, overwhelming local officials and dominating political debate.`\
 https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-europe.html
 
@@ -181,16 +189,4 @@ https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.
 **NYT Connections Answers for November 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
 https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
-
-**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Stephen Miller Takes the Reins**\
-`Plus, R.I.P. Cybertruck.`\
-https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
-
-**Today’s Wordle Hints for November 10, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
-https://www.nytimes.com/2026/11/09/crosswords/wordle-review-1970.html
-
-**A Decade After Henry Worsley Died in Antarctica, His Son Tries to Reach the South Pole**\
-`A decade after Max Worsley’s father died crossing the continent, he embarks this month on his own journey into the lonely land his father loved.`\
-https://www.nytimes.com/2026/11/09/climate/max-worsley-antarctic-expedition.html
 
