@@ -1,3 +1,7 @@
+**In a Democratic Wave, Even the Long Shots Defied the Odds**\
+`A handful of Democrats scored improbable victories in races against Republican incumbents who were favored to win.`\
+https://www.nytimes.com/2026/11/09/us/politics/congress-democratic-long-shots.html
+
 **The Oldest Person to Complete New York City Marathon Has Died at 104**\
 `Jonathan de Sola Mendes, a decorated Marine Corps aviator, was 96 when he crossed the finish line in 2016. Then he sipped some Johnnie Walker Black Label.`\
 https://www.nytimes.com/2026/11/09/sports/jonathan-de-sola-mendes-dead.html

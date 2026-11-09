@@ -1,3 +1,7 @@
+**Man, 80, Killed in Fire at His Harlem Apartment, Officials Say**\
+`The cause of the early-morning fire was under investigation, officials said, noting there was “heavy clutter” in the unit where the blaze broke out.`\
+https://www.nytimes.com/2026/11/09/nyregion/apartment-fire-harlem-death.html
+
 **In a Democratic Wave, Even the Long Shots Defied the Odds**\
 `A handful of Democrats scored improbable victories in races against Republican incumbents who were favored to win.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-democratic-long-shots.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigati
 **The Cornell Texts**\
 `We look at the messages at the center of the rape inquiry.`\
 https://www.nytimes.com/2026/11/09/briefing/the-cornell-texts.html
-
-**I Am a Silicon Valley Veteran. We Are Sabotaging Ourselves.**\
-`Artificial intelligence is the latest example of how Silicon Valley ruins great innovations with ridiculous theories about them.`\
-https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
 
