@@ -1,3 +1,7 @@
+**Progressives Defied Their Party and Won Big. They Still Feel Ignored.**\
+`As Democrats prepare to take power in Congress, some centrists are brushing off the victories of left-wing candidates. The left is pushing back.`\
+https://www.nytimes.com/2026/11/09/us/politics/progressive-wins-midterms.html
+
 **Two Arrested After Car Crashes Into Sign Near White House**\
 `The driver of a silver sedan was arrested after crashing his car into a placard just north of the White House. The authorities also arrested a second man who jumped a barricade at a nearby park.`\
 https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/arts/you-can-see-everything-amanda-seyfried.h
 **JD Vance Needs to Stop Trying**\
 `Republicans must determine what they stand for other than fealty to an aging, out-of-touch, lame duck.`\
 https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html
-
-**This Is How Democrats Won the Midterms**\
-`The Democrats still have a long way to go before they can govern the country productively. But the victors of 2026 have started to point the way.`\
-https://www.nytimes.com/2026/11/09/opinion/democrats-midterms-populism.html
 
