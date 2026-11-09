@@ -1,3 +1,7 @@
+**Dining Beneath the Redwoods at a Former Commune in California**\
+`To celebrate its latest cohort of artists in residence, Salmon Creek Farm hosted an afternoon meal and cider pressing.`\
+https://www.nytimes.com/2026/11/09/t-magazine/salmon-creek-farm-artist-residency-lunch.html
+
 **Scientists Sue to Block Trump Administration Changes at National Science Foundation**\
 `Researchers say the administration’s actions would “devastate” social science.`\
 https://www.nytimes.com/2026/11/09/us/politics/national-science-foundation-funding-lawsuit.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-bran
 `Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
 https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
 
-**Man Accused of Murdering Charlie Kirk to Go on Trial in 2028**\
+**Murder Trial for Tyler Robinson, Charlie Kirk Shooting Suspect, Scheduled for 2028**\
 `Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
 https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
 https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
-
-**How Indispensable Is Jensen Huang?**\
-`The fate of Nvidia’s chief executive, who was romantically involved with a suspected Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
-https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
 

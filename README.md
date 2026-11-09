@@ -1,3 +1,7 @@
+**Isabel Letelier, a Chilean Voice for Human Rights, Has Died**\
+`Her husband, a prominent figure in the government of Salvador Allende, was assassinated in Washington in 1976. She was 94.`\
+https://www.nytimes.com/2026/11/09/obituaries/isabel-letelier-dead.html
+
 **Dining Beneath the Redwoods at a Former Commune in California**\
 `To celebrate its latest cohort of artists in residence, Salmon Creek Farm hosted an afternoon meal and cider pressing.`\
 https://www.nytimes.com/2026/11/09/t-magazine/salmon-creek-farm-artist-residency-lunch.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
 **Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
 `A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
 https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
-
-**Corrections: Nov. 7, 2026**\
-`Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
-https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
 

@@ -1,3 +1,11 @@
+**Dining Beneath the Redwoods at a Former Commune in California**\
+`To celebrate its latest cohort of artists in residence, Salmon Creek Farm hosted an afternoon meal and cider pressing.`\
+https://www.nytimes.com/2026/11/09/t-magazine/salmon-creek-farm-artist-residency-lunch.html
+
+**Murder Trial for Tyler Robinson, Charlie Kirk Shooting Suspect, Scheduled for 2028**\
+`Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
+https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
+
 **Man Accused of Murdering Charlie Kirk to Go on Trial in 2028**\
 `Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
 https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
