@@ -1,3 +1,7 @@
+**Student News Quiz: Blue Wave, Disneyland, Smugglers’ Socks**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/11/09/learning/09studentnewsquiz-ln.html
+
 **Two People Arrested After Car Crashes Near the White House**\
 `A driver crashed a car into a sign near the White House on Monday. At around the same time, another man jumped a barricade at a nearby park. It was not immediately clear whether these two episodes were related.`\
 https://www.nytimes.com/video/us/politics/100000011273261/white-house-car-crash-arrests.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vot
 **Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
 `President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
-
-**Could the Voter Backlash Against A.I. Actually Help the Economy?**\
-`Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
-https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
 
