@@ -1,3 +1,7 @@
+**Megyn Kelly, Elon Musk and Others Defend Russell Brand After Rape Conviction**\
+`The former star, whom a British judge sentenced to 10 and a half years in prison on Monday, became an anti-establishment flag-bearer through conspiracy-minded commentary.`\
+https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
+
 **Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
 `A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
 https://www.nytimes.com/2026/11/09/arts/russell-brand-sentencing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/arts/dance/neil-greenberg-next-dance.html
 **How a Tod’s Top-Handle Bag Comes Together**\
 `A behind-the-scenes peek at the creation of a speckled-leather accessory from the Italian house.`\
 https://www.nytimes.com/2026/11/09/t-magazine/how-a-tods-top-handle-bag-comes-together.html
-
-**The Truth About Gen Z’s Alcohol Habits**\
-`Young people are consuming less alcohol than older generations. But rumors of a “dry generation” are overstated.`\
-https://www.nytimes.com/2026/11/09/style/alcohol-drinking-gen-z.html
 
