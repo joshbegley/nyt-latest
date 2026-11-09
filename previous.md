@@ -1,3 +1,11 @@
+**Scientists Sue to Block Trump Administration Changes at National Science Foundation**\
+`Researchers say the administration’s actions would “devastate” social science.`\
+https://www.nytimes.com/2026/11/09/us/politics/national-science-foundation-funding-lawsuit.html
+
+**The Biggest Surprise of Election Night**\
+`For the columnist Jamelle Bouie, the story of the midterm elections was a “transformation of the partisan landscape in the Deep South.” In a live conversation for “The Opinions,” he breaks down the most surprising wins across the South and explains how the organizing power of Black voters is reshaping the region’s politics.`\
+https://www.nytimes.com/video/opinion/100000011268016/the-biggest-surprise-of-election-night.html
+
 **How Much Did Data Centers Influence Election Results?**\
 `In the aftermath of this week’s midterm elections, the New York Times Opinion columnist Ezra Klein spoke on the “Hard Fork” podcast about how data centers might have influenced results.`\
 https://www.nytimes.com/video/technology/100000011273113/how-much-did-data-centers-influence-election-results.html
@@ -151,7 +159,7 @@ https://www.nytimes.com/2026/11/09/opinion/ai-anthropic-doom-conscious.html
 https://www.nytimes.com/2026/11/09/dining/ive-made-this-like-a-bajillion-times-its-so-good.html
 
 **Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
-`The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
+`The global benchmark price is down roughly $20 a barrel since late October, when it traded for around $113.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
 
 **Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
 **How Indispensable Is Jensen Huang?**\
 `The fate of Nvidia’s chief executive, who was romantically involved with a suspected Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
 https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
-
-**China Rejects Espionage Claims Involving Nvidia C.E.O. Jensen Huang**\
-`The controversy has intensified scrutiny of Mr. Huang’s ties to Beijing and sparked mixed reactions across Asia, where he is widely popular.`\
-https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
-
-**The Clergy in Congress**\
-`Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
-https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
 

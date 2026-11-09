@@ -1,3 +1,15 @@
+**Scientists Sue to Block Trump Administration Changes at National Science Foundation**\
+`Researchers say the administration’s actions would “devastate” social science.`\
+https://www.nytimes.com/2026/11/09/us/politics/national-science-foundation-funding-lawsuit.html
+
+**The Biggest Surprise of Election Night**\
+`For the columnist Jamelle Bouie, the story of the midterm elections was a “transformation of the partisan landscape in the Deep South.” In a live conversation for “The Opinions,” he breaks down the most surprising wins across the South and explains how the organizing power of Black voters is reshaping the region’s politics.`\
+https://www.nytimes.com/video/opinion/100000011268016/the-biggest-surprise-of-election-night.html
+
+**Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
+`The global benchmark price is down roughly $20 a barrel since late October, when it traded for around $113.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
+
 **How Much Did Data Centers Influence Election Results?**\
 `In the aftermath of this week’s midterm elections, the New York Times Opinion columnist Ezra Klein spoke on the “Hard Fork” podcast about how data centers might have influenced results.`\
 https://www.nytimes.com/video/technology/100000011273113/how-much-did-data-centers-influence-election-results.html
