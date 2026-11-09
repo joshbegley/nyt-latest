@@ -1,3 +1,11 @@
+**Two Arrested After Car Crashes Into Sign Near White House**\
+`The driver of a silver sedan was arrested after crashing his car into a placard just north of the White House. The authorities also arrested a second man who jumped a barricade at a nearby park.`\
+https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
+
+**Could the Voter Backlash Against A.I. Actually Help the Economy?**\
+`Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
+https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
+
 **At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
 `Senfronia Thompson, of Houston, would also become the first Black lawmaker to serve as speaker.`\
 https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html

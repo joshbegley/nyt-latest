@@ -1,3 +1,7 @@
+**Two Arrested After Car Crashes Into Sign Near White House**\
+`The driver of a silver sedan was arrested after crashing his car into a placard just north of the White House. The authorities also arrested a second man who jumped a barricade at a nearby park.`\
+https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
+
 **At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
 `Senfronia Thompson, of Houston, would also become the first Black lawmaker to serve as speaker.`\
 https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vot
 `President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
 
-**Would a Democratic Crackdown on A.I. Hurt the Economy or Save It?**\
+**Could the Voter Backlash Against A.I. Actually Help the Economy?**\
 `Voter backlash could threaten the data center boom. Some economists think that could be a good thing.`\
 https://www.nytimes.com/2026/11/09/business/economy/ai-bubble-democrats-midterms-economy.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html
 **This Is How Democrats Won the Midterms**\
 `The Democrats still have a long way to go before they can govern the country productively. But the victors of 2026 have started to point the way.`\
 https://www.nytimes.com/2026/11/09/opinion/democrats-midterms-populism.html
-
-**What Democrats Plan to Investigate After Election Victory**\
-`Following their midterm victories, Democrats are preparing to open wide-ranging investigations into President Trump, his family and his administration. Michael Gold, a Times congressional reporter, identifies the Democrats’ biggest targets.`\
-https://www.nytimes.com/video/us/politics/100000011266496/democrats-plan-corruption-investigations-after-election-victory.html
 
