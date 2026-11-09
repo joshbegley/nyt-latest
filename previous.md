@@ -1,3 +1,7 @@
+**China Rejects Espionage Claims Involving Nvidia C.E.O. Jensen Huang**\
+`The controversy has intensified scrutiny of Mr. Huang’s ties to Beijing and sparked mixed reactions across Asia, where he is widely popular.`\
+https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
+
 **The Clergy in Congress**\
 `Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/world/africa/trump-deportations-court-orders-
 **Word of the Day: agrarian**\
 `This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/09/learning/word-of-the-day-agrarian.html
-
-**How to Rent an Electric Vehicle: A Guide for Newbies**\
-`What you need to know about booking, driving and charging an E.V. if your travel plans include a getaway from gasoline-powered engines.`\
-https://www.nytimes.com/2026/11/09/travel/electric-vehicle-rental-guide.html
 

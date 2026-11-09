@@ -1,3 +1,7 @@
+**China Rejects Espionage Claims Involving Nvidia C.E.O. Jensen Huang**\
+`The controversy has intensified scrutiny of Mr. Huang’s ties to Beijing and sparked mixed reactions across Asia, where he is widely popular.`\
+https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
+
 **The Clergy in Congress**\
 `Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
