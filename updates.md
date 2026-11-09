@@ -1,3 +1,11 @@
+**Megyn Kelly, Elon Musk and Others Defend Russell Brand After Rape Conviction**\
+`The former star, whom a British judge sentenced to 10 and a half years in prison on Monday, became an anti-establishment flag-bearer through conspiracy-minded commentary.`\
+https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
+
+**Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
+`A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
+https://www.nytimes.com/2026/11/09/arts/russell-brand-sentencing.html
+
 **JD Vance Needs to Stop Trying**\
 `Republicans must determine what they stand for other than fealty to an aging, out-of-touch, lame duck.`\
 https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html

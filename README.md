@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/11/09/arts/russell-brand-megyn-kelly-elon-musk.html
 
 **Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
 `A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
-https://www.nytimes.com/2026/11/09/arts/russell-brand-sentencing.html
+https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
 
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
