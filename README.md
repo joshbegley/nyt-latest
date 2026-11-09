@@ -1,3 +1,7 @@
+**As the Country Swung Left, Independent Senate Candidates Stalled**\
+`The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
+https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
+
 **Commerce Dept. Chip Inquiry Was Halted After Nvidia Intervention**\
 `An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
 https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
-`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
-https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
-
 **Congress Returns to a Reordered Washington With a Hazy Agenda**\
 `An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
+
+**Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
+`A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
+https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/style/fashion-petite-sizing.html
 **The Geezer of Graffiti Art, Barry McGee, Goes ‘Another Round’ in Los Angeles**\
 `From train yards to Jeffrey Deitch, a luminary of street art cuts “another hole in the fence” bringing his friends to his new exhibition.`\
 https://www.nytimes.com/2026/11/09/arts/design/the-geezer-of-graffiti-art-barry-mcgee-goes-another-round-in-los-angeles.html
-
-**The Inspired Transformation of a Rundown Barn in Bucks County, Pa.**\
-`A property for sale had both a historic house and a barn. For one couple, the choice was clear.`\
-https://www.nytimes.com/2026/11/09/realestate/bucks-county-barn-home-renovation.html
 
