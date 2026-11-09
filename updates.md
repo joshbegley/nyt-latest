@@ -1,3 +1,11 @@
+**Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
+`State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
+
+**An Anti-Trump Protest. Police Threats. Inside a Rift in Diabetes Research.**\
+`It began with an incident at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
+https://www.nytimes.com/2026/11/09/science/american-diabetes-association-turmoil.html
+
 **Do You Know Where These Novels Are Set?**\
 `Test your memory of these recent books and the college campuses where the action takes place.`\
 https://www.nytimes.com/quiz/2026/11/09/bookreview/campus-novels-quiz.html

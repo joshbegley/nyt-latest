@@ -1,3 +1,11 @@
+**Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
+`State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
+
+**An Anti-Trump Protest. Police Threats. Inside a Rift in Diabetes Research.**\
+`It began with an incident at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
+https://www.nytimes.com/2026/11/09/science/american-diabetes-association-turmoil.html
+
 **Do You Know Where These Novels Are Set?**\
 `Test your memory of these recent books and the college campuses where the action takes place.`\
 https://www.nytimes.com/quiz/2026/11/09/bookreview/campus-novels-quiz.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/09/us/politics/supreme-court-colorado.html
 **Videos Show Critical Policing Errors in Fatal Shooting of Toddler in Mississippi**\
 `A Times analysis and review by experts found that the police officer who opened fire on a vehicle, killing 1-year-old Kohen Wiley in Senatobia, Miss., violated basic policing protocols and his department’s use-of-force policy.`\
 https://www.nytimes.com/video/us/100000011230906/mississippi-shooting-video-analysis.html
-
-**Ghidorah Brings Gravity to ‘Godzilla Minus Zero’**\
-`The filmmakers behind this sequel reveal how they reimagined King Ghidorah for a brutal, high-stakes battle royale.`\
-https://www.nytimes.com/2026/11/09/movies/godzilla-minus-zero-ghidorah.html
-
-**For This Choreographer, After Tragedy, Comes a Dance**\
-`Neil Greenberg, a contemporary choreographer with exacting craft and an indomitable spirit, presents his latest work at the Chocolate Factory Theater.`\
-https://www.nytimes.com/2026/11/09/arts/dance/neil-greenberg-next-dance.html
 
