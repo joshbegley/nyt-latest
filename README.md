@@ -1,3 +1,7 @@
+**Trump Says Immigration Crackdown May Have ‘Hurt’ Republicans in Midterms**\
+`The president was asked in a “60 Minutes” interview that aired on Sunday whether his deportation policies went too far. “I think it might be too tough,” he said.`\
+https://www.nytimes.com/2026/11/08/us/politics/trump-immigration-crackdown-republicans-midterms.html
+
 **Diners Support Jewish-Owned Eateries in Philadelphia After Boycott Call**\
 `A protest calling for a boycott of restaurants that organizers said supported Israel was overwhelmed by counterprotesters, who came to buy food from the targeted businesses.`\
 https://www.nytimes.com/2026/11/08/us/protest-bike-ride-jewish-restaurants-philadelphia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/08/crosswords/connections-companion-1247.html
 **Keisha Lance Bottoms on What Democrats Have to Do to Not Squander the Win**\
 `The governor-elect of Georgia is elated about her party’s victories in the South, but knows realignment is far from secure.`\
 https://www.nytimes.com/2026/11/08/magazine/keisha-lance-bottoms-interview.html
-
-**Keisha Lance Bottoms on a Civil Rights Leader’s Reaction to Her Historic Win**\
-`Andrew Young is a civil rights leader and a former mayor of Atlanta. On “The Interview,” Keisha Lance Bottoms discussed his reaction to her victory in the Georgia governor’s race.`\
-https://www.nytimes.com/video/podcasts/100000011269167/keisha-lance-bottoms-on-a-civil-rights-leaders-reaction-to-her-historic-win.html
 
