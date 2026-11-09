@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
 `The company said it needed fewer workers because production was increasing more slowly than previously expected.`\
 https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
 
-**Shipwreck Off Senegal Kills Dozens as Canaries Declare Migrant Emergency**\
+**Shipwreck Off Senegal Kills Dozens as Canary Islands Declare Migrant Emergency**\
 `Migrant arrivals to Europe are down overall but still claiming scores of victims, overwhelming local officials and dominating political debate.`\
 https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-europe.html
 
@@ -189,8 +189,4 @@ https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.
 **NYT Connections Answers for November 10, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 10, 2026.`\
 https://www.nytimes.com/2026/11/09/crosswords/connections-companion-1248.html
-
-**Nvidia C.E.O. Admits Relationship With Suspected Chinese Spy, and Stephen Miller Takes the Reins**\
-`Plus, R.I.P. Cybertruck.`\
-https://www.nytimes.com/2026/11/09/podcasts/the-headlines/nvidia-ceo-suspected-chinese-spy-stephen-miller-trump-chief-of-staff.html
 
