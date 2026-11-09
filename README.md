@@ -1,3 +1,7 @@
+**Oil Prices Fall on Hopes for Peace Between U.S. and Iran**\
+`The global benchmark price is now down roughly $20 a barrel since late October, when it traded for around $113.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/oil-price-iran-trump-war.html
+
 **Giant Merger of NextEra and Dominion Could Fail Amid Anger Over Electricity Bills**\
 `State leaders and residents in Virginia have opposed NextEra’s acquisition of Dominion Energy, fearing that it will accelerate rate increases.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/nextera-dominon-energy-virginia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/style/still-here-jeans-new-york.html
 **Why Colorado Is at the Epicenter of So Many Supreme Court Clashes**\
 `In three recent cases, the conservative-dominated bench has ruled against the state and in favor of the rights of Christian business owners.`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-colorado.html
-
-**Videos Show Critical Policing Errors in Fatal Shooting of Toddler in Mississippi**\
-`A Times analysis and review by experts found that the police officer who opened fire on a vehicle, killing 1-year-old Kohen Wiley in Senatobia, Miss., violated basic policing protocols and his department’s use-of-force policy.`\
-https://www.nytimes.com/video/us/100000011230906/mississippi-shooting-video-analysis.html
 
