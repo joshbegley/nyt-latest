@@ -1,3 +1,11 @@
+**Do You Know Where These Novels Are Set?**\
+`Test your memory of these recent books and the college campuses where the action takes place.`\
+https://www.nytimes.com/quiz/2026/11/09/bookreview/campus-novels-quiz.html
+
+**Nvidia’s Stock Price Drops After Investigation Into CEO Jensen Huang**\
+`The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a businesswoman suspected of spying for China could reverberate across Wall Street.`\
+https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
+
 **Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
 `A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
 https://www.nytimes.com/2026/11/09/arts/russell-brand-prison-sentence-rape.html
