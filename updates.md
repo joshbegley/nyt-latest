@@ -1,4 +1,8 @@
 **Ukraine Peace Talks Resume This Week in Abu Dhabi**\
+`U.S.-led talks to end the war between Russia and Ukraine will resume this week in Abu Dhabi. A cease-fire won’t be on the table.`\
+https://www.nytimes.com/2026/11/09/world/europe/ukraine-russia-peace-talks.html
+
+**Ukraine Peace Talks Resume This Week in Abu Dhabi**\
 `After a nine-month lull, U.S.-led talks to end the war between Russia and Ukraine will resume this week in Abu Dhabi. A cease-fire won’t be on the table.`\
 https://www.nytimes.com/2026/11/09/world/europe/ukraine-russia-peace-talks.html
 
