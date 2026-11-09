@@ -1,3 +1,7 @@
+**The Clergy in Congress**\
+`A wave of religious Democrats are entering the chambers.`\
+https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
+
 **Read the Memo Jensen Huang Sent to Nvidia Employees**\
 `Nvidia’s chief executive sent a memo to employees apologizing for his relationship with a businesswoman that U.S. intelligence agencies determined was a Chinese spy.`\
 https://www.nytimes.com/interactive/2026/11/09/business/nvidia-huang-email-memo.html

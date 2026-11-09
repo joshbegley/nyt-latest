@@ -1,5 +1,5 @@
 **The Clergy in Congress**\
-`A wave of religious Democrats are entering the chambers.`\
+`Some religious Democrats campaigned on an old commandment — to love thy neighbor. Is that a new road map for the party?`\
 https://www.nytimes.com/2026/11/09/briefing/religious-democrats.html
 
 **Read the Memo Jensen Huang Sent to Nvidia Employees**\
