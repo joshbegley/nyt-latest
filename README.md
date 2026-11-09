@@ -1,3 +1,7 @@
+**Russell Brand Sentenced to 10 and a Half Years in Prison for Rape**\
+`A London judge said the former comedy star, who was convicted of rape and sexual assault last week, had shown a “casual, arrogant disregard” for women’s wishes.`\
+https://www.nytimes.com/2026/11/09/arts/russell-brand-sentencing.html
+
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
 https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/t-magazine/how-a-tods-top-handle-bag-comes-to
 **The Truth About Gen Z’s Alcohol Habits**\
 `Young people are consuming less alcohol than older generations. But rumors of a “dry generation” are overstated.`\
 https://www.nytimes.com/2026/11/09/style/alcohol-drinking-gen-z.html
-
-**Book Review: ‘Department of Fate,’ by Rachel Maddow**\
-`In “Department of Fate,” the MS NOW pundit Rachel Maddow shows how federal prosecution turned into a political tool.`\
-https://www.nytimes.com/2026/11/09/books/review/department-of-fate-rachel-maddow.html
 
