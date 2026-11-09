@@ -1,3 +1,7 @@
+**Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
+`President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
+https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
+
 **France Blames Iran for Cyberattack on Refrigeration Systems**\
 `The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
 https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html

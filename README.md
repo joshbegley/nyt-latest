@@ -1,3 +1,7 @@
+**Nvidia Inquiry Focuses on Relationship Between Jensen Huang and Suspected Chinese Spy**\
+`Jensen Huang, chief executive of the powerhouse chipmaker Nvidia, told its board of his intimate relationship with a business executive who U.S. officials suspect provided information to Chinese intelligence.`\
+https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-investigation.html
+
 **France Blames Iran for Cyberattack on Refrigeration Systems**\
 `The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
 https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/obituaries/lloyd-geering-dead.html
 **Florida Woman’s Death From This Mosquito-Borne Disease Raises Alarms**\
 `In the past, Americans were infected with dengue after being bitten by mosquitoes while traveling. But now, most of the current transmission is from local mosquitoes.`\
 https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.html
-
-**A Country’s President Led to a Bank’s Stunning Rise, and Its Fall**\
-`Prosecutors accused President Santiago Peña of Paraguay of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
-https://www.nytimes.com/2026/11/09/world/americas/paraguay-bank-president-ueno.html
 
