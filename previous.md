@@ -1,3 +1,11 @@
+**Boeing Will Cut 5% of Commercial Plane Employees**\
+`The company said it needed fewer workers because production was increasing more slowly than previously expected.`\
+https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
+
+**Shipwreck Off Senegal Kills Dozens as Canaries Declare Migrant Emergency**\
+`Migrant arrivals to Europe are down overall but still claiming scores of victims, overwhelming local officials and dominating political debate.`\
+https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-europe.html
+
 **Democrats Demand Answers on Trump’s A.I. Policy Amid Spy Plot**\
 `Congressional leaders raise concerns in a letter as Nvidia investigates its chief executive’s affair with a suspected Chinese spy.`\
 https://www.nytimes.com/2026/11/09/us/politics/democrats-trump-ai-nvidia.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028
 **Congress Returns to a Reordered Washington With a Hazy Agenda**\
 `An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
-
-**Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
-`A premature field guide to the 2028 candidates`\
-https://www.nytimes.com/2026/11/09/opinion/2028-democrats-primary-election.html
-
-**‘You Can See Everything’: Amanda Seyfried Faces ‘The Dropout’**\
-`As they dissect Elizabeth Holmes’s persona, Nathan Fielder and Amanda Seyfried confront the nature of truth.`\
-https://www.nytimes.com/2026/11/09/arts/you-can-see-everything-amanda-seyfried.html
 
