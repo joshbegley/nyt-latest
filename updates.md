@@ -1,3 +1,7 @@
+**$2 Billion Wasn’t Enough to Save Weil Gotshal**\
+`Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
+https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
+
 **Independent Senate Candidates Ran in Deep-Red States and Lost Despite Democratic Support**\
 `The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
 https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html

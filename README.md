@@ -1,3 +1,7 @@
+**What Is Congress’s Plan to Speed Up Energy Permits?**\
+`The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
+https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
+
 **Trump Veers Back Into Claims of Rigged Election**\
 `“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
 https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
 **A Funeral for 9 New Yorkers Who Died Lonely Deaths in a Brutal Winter**\
 `On All Souls’ Day, a Manhattan church held a requiem Mass to honor the homeless people whose bodies were never claimed after their deaths.`\
 https://www.nytimes.com/2026/11/09/nyregion/unclaimed-homeless-burials.html
-
-**Mississippi Officer Who Fatally Shot Toddler Had a History of Aggressive Policing**\
-`A new examination of video footage shows that the officer who shot at a fleeing car in a Walmart parking lot, killing a boy, had previously ramped up encounters by punching, cursing and drawing his weapon.`\
-https://www.nytimes.com/2026/11/09/us/mississippi-officer-walmart-shooting-toddler-aggressive-policing.html
 

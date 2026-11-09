@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/11/09/opinion/paulina-porizkova-nyt-175.html
 `The “Wonder Theater” in Jersey City is working out the role of a community group in its programming.`\
 https://www.nytimes.com/2026/11/09/nyregion/loews-jersey-130-million-renovation.html
 
-**Weil Gotshal Was Profitable. But Not Profitable Enough.**\
+**$2 Billion Wasn’t Enough to Save Weil Gotshal**\
 `Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
 https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
 
