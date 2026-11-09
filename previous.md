@@ -1,3 +1,11 @@
+**What if Europe Rearms at Exactly the Wrong Time?**\
+`If a far-right party in Paris or Berlin were determined to burn bridges with its neighbors, it could.`\
+https://www.nytimes.com/2026/11/09/opinion/europe-defense-far-right.html
+
+**‘The Secret Lives of Mormon Wives: Orange County’ and 5 More Shows to Watch**\
+`The spinoff reality show airs. And three thrillers premiere. Here’s what’s on TV this week.`\
+https://www.nytimes.com/2026/11/09/arts/television/mormon-wives-orange-county-shows-to-watch.html
+
 **Germans Miss Merkel, Their Old Chancellor, Though They Dislike Her Policies**\
 `Crowds have flocked to the stern, but reassuring, face of Angela Merkel in her official portrait, even as a backlash to her legacy roils German politics.`\
 https://www.nytimes.com/2026/11/09/world/europe/germans-angela-merkel-portrait.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/08/opinion/russell-brand-men-republicans.html
 **A Stake Through the Heart of Trump’s Red Map**\
 `Realignment is so 2024.`\
 https://www.nytimes.com/2026/11/08/opinion/midterms-democrats-schumer.html
-
-**No Party Owns Young Men**\
-`There’s an opportunity for the side that takes the time to understand young men and helps them achieve their American dreams.`\
-https://www.nytimes.com/2026/11/08/opinion/midterm-elections-young-men.html
-
-**The Netflix ‘East of Eden’ Adaptation Came Just in Time**\
-`The Netflix adaptation offers a seven-part meditation on an extreme, unchecked expression of — specifically female — anger.`\
-https://www.nytimes.com/2026/11/08/opinion/east-of-eden-netflix-women.html
 
