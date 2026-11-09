@@ -1,3 +1,7 @@
+**Man, 80, Killed in Fire at His Harlem Apartment, Officials Say**\
+`The cause of the early-morning fire was under investigation, officials said, noting there was “heavy clutter” in the unit where the blaze broke out.`\
+https://www.nytimes.com/2026/11/09/nyregion/apartment-fire-harlem-death.html
+
 **In a Democratic Wave, Even the Long Shots Defied the Odds**\
 `A handful of Democrats scored improbable victories in races against Republican incumbents who were favored to win.`\
 https://www.nytimes.com/2026/11/09/us/politics/congress-democratic-long-shots.html
