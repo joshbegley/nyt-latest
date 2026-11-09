@@ -1,3 +1,35 @@
+**James Gunn and Peter Safran Are Out as Heads of DC Studios**\
+`Skydance, which acquired DC Studios’ parent company weeks ago, announced that the duo would step away from their roles after four years.`\
+https://www.nytimes.com/2026/11/09/us/dc-studios-james-gunn-peter-safran-skydance.html
+
+**Dark Chocolate Mousse With Orange Whipped Cream**\
+`Even a simple dessert can make a big statement. This rich chocolate mousse, topped with a cloud of citrusy cream, doesn’t require you to make a custard or use any gelatin.`\
+https://www.nytimes.com/video/dining/100000011272584/dark-chocolate-mousse-with-orange-whipped-cream.html
+
+**Potato Chip Mashed Potatoes**\
+`Potato lovers will rejoice at the creamy and crunchy potato textures within the same dish.`\
+https://www.nytimes.com/video/dining/100000011272606/potato-chip-mashed-potatoes.html
+
+**Salted Caramel and Pecan Cream Slice**\
+`Cream slice — also known as cremeschnitte, cremeș or krempita — is a beloved dessert in many European countries and beyond, but no matter what it’s called, the essence of the dessert is the same: a sturdy, sliceable vanilla custard sandwiched between flaky puff pastry layers.`\
+https://www.nytimes.com/video/dining/100000011272635/salted-caramel-and-pecan-cream-slice.html
+
+**Bacon, Egg and Cheese Fried Rice**\
+`Bacon, egg and cheese sandwiches and fried rice are each beloved for their simplicity and affordability, but also because they deliver great comfort and satisfaction. In this playful weeknight meal, the two come together.`\
+https://www.nytimes.com/video/dining/100000011272649/bacon-egg-and-cheese-fried-rice.html
+
+**Sweet Potato and Cranberry Layer Cake**\
+`This towering showstopper combines a few key flavor profiles of the Thanksgiving table into one celebration-worthy centerpiece: tender, spiced sweet potato cake layered with a tart cranberry filling and finished with a torched, marshmallow-like meringue frosting.`\
+https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-layer-cake.html
+
+**Mango Pie**\
+`Salty, crumbly graham cracker crust is the perfect foundation for the golden cloud of custard that sits atop it, made tangy and rich with the addition of cream cheese and whipped cream.`\
+https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
+
+**Thomas Massie Moves to Force Vote on Impeaching Pete Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, set in motion a vote that must be taken within two days.`\
+https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html
+
 **Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
 `The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
