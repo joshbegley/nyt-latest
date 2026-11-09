@@ -1,3 +1,7 @@
+**A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
+`As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
+https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
+
 **Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
 `Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
 https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011262780/how-ice-raids-helped-flip-a-kan
 **Shoppers to Use Black Friday Sales to Stock Up on Essentials**\
 `Shoppers strained by high costs of living are expected to put a priority on value this season, whether they’re buying gifts or everyday items for themselves.`\
 https://www.nytimes.com/2026/11/09/business/holiday-shopping-deals-essentials.html
-
-**Paulina Porizkova: Why I Now Call Myself a Feminist**\
-`The former model looks back at what she wrote in The Times about feminism nine years ago.`\
-https://www.nytimes.com/2026/11/09/opinion/paulina-porizkova-nyt-175.html
 

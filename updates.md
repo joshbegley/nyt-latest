@@ -1,3 +1,7 @@
+**Trump Has Found His New Roy Cohn in Stephen Miller**\
+`Stephen Miller is the wartime consigliere Trump always wanted.`\
+https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
+
 **Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
 `Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
 https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
