@@ -1,3 +1,7 @@
+**Student News Quiz: Blue Wave, Disneyland, Smugglers’ Socks**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
+https://www.nytimes.com/quiz/2026/11/09/learning/09studentnewsquiz-ln.html
+
 **Two People Arrested After Car Crashes Near the White House**\
 `A driver crashed a car into a sign near the White House on Monday. At around the same time, another man jumped a barricade at a nearby park. It was not immediately clear whether these two episodes were related.`\
 https://www.nytimes.com/video/us/politics/100000011273261/white-house-car-crash-arrests.html
