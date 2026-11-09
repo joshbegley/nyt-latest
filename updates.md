@@ -1,3 +1,15 @@
+**Germans Miss Merkel, Their Old Chancellor, Though They Dislike Her Policies**\
+`Crowds have flocked to the stern, but reassuring, face of Angela Merkel in her official portrait, even as a backlash to her legacy roils German politics.`\
+https://www.nytimes.com/2026/11/09/world/europe/germans-angela-merkel-portrait.html
+
+**Book Review: ‘Secrets,’ by Bob Woodward**\
+`In a new memoir, the veteran investigative reporter gets personal, tallying scoops he missed along with those he ferreted out of politicians and officials.`\
+https://www.nytimes.com/2026/11/09/books/review/secrets-bob-woodward.html
+
+**From the Front Page: The Berlin Wall Falls on Nov. 9, 1989**\
+`East Germany opened its border to the West, and within hours East Berliners streamed through checkpoints, joining West Berliners in celebrations involving tens of thousands of people. The opening paved the way for Germany’s reunification 11 months later.`\
+https://www.nytimes.com/2026/11/09/learning/from-the-front-page-the-berlin-wall-falls-on-nov-9-1989.html
+
 **使用人工智能和激光灭蚊的设备**\
 `一家中国初创企业研发出了一种利用人工智能和激光灭蚊的设备。然而，该设备运行时对周围的人员和其他生物存在安全隐患。`\
 https://www.nytimes.com/video/chinese/100000011266800/ai-lasers-mosquitoes-chinese.html
