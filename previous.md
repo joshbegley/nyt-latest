@@ -1,3 +1,7 @@
+**Corrections: Nov. 7, 2026**\
+`Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
+https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
+
 **How Indispensable Is Jensen Huang?**\
 `The fate of Nvidia’s chief executive, who was romantically involved with a suspected Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
 https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/style/alcohol-drinking-gen-z.html
 **Book Review: ‘Department of Fate,’ by Rachel Maddow**\
 `In “Department of Fate,” the MS NOW pundit Rachel Maddow shows how federal prosecution turned into a political tool.`\
 https://www.nytimes.com/2026/11/09/books/review/department-of-fate-rachel-maddow.html
-
-**Immigrants Are Being Systematically Returned Home Despite Court Orders**\
-`Working with the Trump administration, foreign partners accept deportees, then ship them to nations where the U.S. itself would be prohibited from sending them.`\
-https://www.nytimes.com/2026/11/09/world/africa/trump-deportations-court-orders-refoulement.html
 

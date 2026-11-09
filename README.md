@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/09/opinion/2028-democrats-primary-election.html
 `As they dissect Elizabeth Holmes’s persona, Nathan Fielder and Amanda Seyfried confront the nature of truth.`\
 https://www.nytimes.com/2026/11/09/arts/you-can-see-everything-amanda-seyfried.html
 
-**If Woke 1 Owes Us an Apology, What Does MAGA 1 Owe Us?**\
+**JD Vance Needs to Stop Trying**\
 `Republicans must determine what they stand for other than fealty to an aging, out-of-touch, lame duck.`\
 https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html
 
