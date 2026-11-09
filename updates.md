@@ -1,3 +1,7 @@
+**The Local: Remembering the Edmund Fitzgerald**\
+`Family members of one sailor share their experiences.`\
+https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
+
 **Boeing Will Cut 5% of Commercial Plane Employees**\
 `The company said it needed fewer workers because production was increasing more slowly than previously expected.`\
 https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
