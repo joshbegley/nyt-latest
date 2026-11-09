@@ -130,13 +130,13 @@ https://www.nytimes.com/2026/11/09/business/holiday-shopping-deals-essentials.ht
 `The former model looks back at what she wrote in The Times about feminism nine years ago.`\
 https://www.nytimes.com/2026/11/09/opinion/paulina-porizkova-nyt-175.html
 
-**Weil Gotshal Was Profitable. But Not Profitable Enough.**\
-`Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
-https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
-
 **Loew’s Jersey Theater Shines Again After $130 Million Renovation**\
 `The “Wonder Theater” in Jersey City is working out the role of a community group in its programming.`\
 https://www.nytimes.com/2026/11/09/nyregion/loews-jersey-130-million-renovation.html
+
+**Weil Gotshal Was Profitable. But Not Profitable Enough.**\
+`Among the reasons that the 95-year-old law firm fell apart was a failure to adapt to the eat-or-be-eaten ethos of Big Law.`\
+https://www.nytimes.com/2026/11/09/business/weil-gotshal-law-firm-collapse.html
 
 **A Funeral for 9 New Yorkers Who Died Lonely Deaths in a Brutal Winter**\
 `On All Souls’ Day, a Manhattan church held a requiem Mass to honor the homeless people whose bodies were never claimed after their deaths.`\

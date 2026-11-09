@@ -1,3 +1,7 @@
+**JD Vance Needs to Stop Trying**\
+`Republicans must determine what they stand for other than fealty to an aging, out-of-touch, lame duck.`\
+https://www.nytimes.com/2026/11/09/opinion/trump-republicans-maga-endgame.html
+
 **Corrections: Nov. 7, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 7, 2026.`\
 https://www.nytimes.com/2026/11/09/pageoneplus/corrections-nov-7-2026.html
