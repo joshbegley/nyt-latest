@@ -1,3 +1,7 @@
+**How indispensable is Jensen Huang?**\
+`The fate of Nvidia’s chief executive, who was romantically involved with an accused Chinese spy, has wide implications for Silicon Valley, Washington and beyond.`\
+https://www.nytimes.com/2026/11/09/business/dealbook/nvidia-huang-spy.html
+
 **China Rejects Espionage Claims Involving Nvidia C.E.O. Jensen Huang**\
 `The controversy has intensified scrutiny of Mr. Huang’s ties to Beijing and sparked mixed reactions across Asia, where he is widely popular.`\
 https://www.nytimes.com/2026/11/09/business/jensen-huang-china-spying.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/2026/11/09/us/cruise-ship-worker-pianist-rescued-califor
 `The chipmaker’s size and significance to the A.I. trade means that Jensen Huang’s admission of a relationship with a suspected Chinese spy could reverberate across Wall Street.`\
 https://www.nytimes.com/2026/11/09/business/nvidia-stock-price-jensen-huang-ceo.html
 
-**Is Jensen Huang too Powerful to Be Punished by Nvidia?**\
+**Is Jensen Huang Too Powerful to Be Punished by Nvidia?**\
 `The chief executive has a tight grip on his company, presenting a challenge for Nvidia’s board, which is investigating his affair with a woman believed to be a Chinese spy.`\
 https://www.nytimes.com/2026/11/09/technology/jensen-huang-affair-nvidia.html
 
@@ -58,13 +62,13 @@ https://www.nytimes.com/2026/11/09/opinion/stephen-miller-roy-cohn-trump.html
 `The request came from Senator Edward J. Markey of Massachusetts, after Google said it would not turn off artificial intelligence tools for students using its search engine.`\
 https://www.nytimes.com/2026/11/09/business/google-ai-school-features.html
 
-**Congress Returns to a Reordered Washington With a Hazy Agenda**\
-`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
-https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
-
 **Progressives Launch ‘Ready for AOC’ Ahead of 2028 Presidential Election**\
 `A new political organization aims to encourage Representative Alexandria Ocasio-Cortez to run for president, and to demonstrate that a formidable organizing apparatus is awaiting her.`\
 https://www.nytimes.com/2026/11/09/us/politics/alexandria-ocasio-cortez-aoc-2028-president-group.html
+
+**Congress Returns to a Reordered Washington With a Hazy Agenda**\
+`An impeachment vote on the defense secretary, a spending deal and several major bills are in play in a post-election session that will be shaped by last week’s electoral earthquake.`\
+https://www.nytimes.com/2026/11/09/us/politics/congress-republicans-agenda-lame-duck-session.html
 
 **Who Will Democrats Pick as Their Presidential Candidate in 2028?**\
 `A premature field guide to the 2028 candidates`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/books/review/department-of-fate-rachel-maddow
 **Immigrants Are Being Systematically Returned Home Despite Court Orders**\
 `Working with the Trump administration, foreign partners accept deportees, then ship them to nations where the U.S. itself would be prohibited from sending them.`\
 https://www.nytimes.com/2026/11/09/world/africa/trump-deportations-court-orders-refoulement.html
-
-**Word of the Day: agrarian**\
-`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/09/learning/word-of-the-day-agrarian.html
 
