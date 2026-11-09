@@ -1,3 +1,15 @@
+**Independent Senate Candidates Ran in Deep-Red States and Lost Despite Democratic Support**\
+`The Democratic Party threw its support behind independent Senate candidates in deep-red states, but they came up short.`\
+https://www.nytimes.com/2026/11/09/us/elections/independent-senate-races-candidates-election-results.html
+
+**U.S. Commerce Dept. Inquiry Into Megaspeed Was Halted After Nvidia Intervention**\
+`An investigation into Megaspeed, a Singapore company that was buying advanced Nvidia A.I. chips, was transferred to the Justice Department after a top Nvidia executive reached out to Commerce Department officials.`\
+https://www.nytimes.com/2026/11/09/business/economy/nvidia-megaspeed-investigation-huang.html
+
+**An Anti-Trump Protest. Police Threats. Inside a Rift in Diabetes Research.**\
+`It began with a protest at an American Diabetes Association conference. Now a resulting boycott has caused a scientific slowdown, with no end in sight.`\
+https://www.nytimes.com/2026/11/09/science/american-diabetes-association-turmoil.html
+
 **Trump Veers Back Into Claims of Rigged Election**\
 `“Does anybody really believe that this ‘Election’ was honest,” President Trump asked about last week’s midterms on social media. He had initially said he was willing to accept the results.`\
 https://www.nytimes.com/2026/11/09/us/trump-election-fraud-rigging-midterms.html
