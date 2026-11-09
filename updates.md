@@ -1,3 +1,15 @@
+**Guns on Amtrak Trains? A Workers Union Is Up in Arms.**\
+`A new policy would allow firearms to be brought on passenger cars, as opposed to being locked in baggage cars. A union leader called it “sheer lunacy.”`\
+https://www.nytimes.com/2026/11/09/travel/amtrak-guns-workers-union.html
+
+**Puzzle Mania 2026: Contest Rules, Super Mega Clues and Answers**\
+`Everything you need to know about this year’s special print puzzle section.`\
+https://www.nytimes.com/2026/11/09/crosswords/puzzle-mania-faq-2026.html
+
+**Kim Kardashian’s $150 Skims Advent Calendar Disappoints Customers**\
+`Customers who bought the item from Skims, Kim Kardashian’s brand, were disappointed when they unwrapped what looked like the detritus in their handbags.`\
+https://www.nytimes.com/2026/11/09/style/skims-advent-calendar-refunds.html
+
 **Isabel Letelier, a Chilean Voice for Human Rights, Has Died**\
 `Her husband, a prominent figure in the government of Salvador Allende, was assassinated in Washington in 1976. She was 94.`\
 https://www.nytimes.com/2026/11/09/obituaries/isabel-letelier-dead.html
