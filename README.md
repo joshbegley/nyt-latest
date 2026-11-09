@@ -1,3 +1,7 @@
+**France Blames Iran for Cyberattack on Refrigeration Systems**\
+`The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
+https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
+
 **Poland in Shock After Mass Shooting in Krakow**\
 `Residents and tourists in Poland mourned the victims of a mass shooting that left at least six people dead in Krakow. The bodies of the suspect’s parents and sister were later found at his home in another town.`\
 https://www.nytimes.com/video/world/europe/100000011272018/poland-shooting-krakow-suspect-victims.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/09/us/dengue-united-states-florida-mosquitos.htm
 **A Country’s President Led to a Bank’s Stunning Rise, and Its Fall**\
 `Prosecutors accused President Santiago Peña of Paraguay of funneling nearly a billion dollars of government funds to the Ueno bank as its executives made reckless insider loans.`\
 https://www.nytimes.com/2026/11/09/world/americas/paraguay-bank-president-ueno.html
-
-**A.I.-Generated Celebrity Ads Get an Assist From Terry Crews**\
-`The Ogilvy ad agency and the CAA talent agency introduced a partnership to create promotions featuring digital replicas of celebrities.`\
-https://www.nytimes.com/2026/11/09/business/media/ogilvy-caa-ai-ads.html
 
