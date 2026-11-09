@@ -1,3 +1,7 @@
+**Republican Lawmaker Forces Impeachment Vote on Pete Hegseth**\
+`Representative Thomas Massie, a Republican of Kentucky, has forced a vote on impeaching Defense Secretary Pete Hegseth.`\
+https://www.nytimes.com/video/us/politics/100000011273236/pete-hegseth-impeachment-vote-massie.html
+
 **Student News Quiz: Blue Wave, Disneyland, Smugglers’ Socks**\
 `Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students`\
 https://www.nytimes.com/quiz/2026/11/09/learning/09studentnewsquiz-ln.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/09/arts/music/talafreako-lil-texxan-viral-song.h
 **What Is Congress’s Plan to Speed Up Energy Permits?**\
 `The sprawling bill, which has divided Democrats, would overhaul major environmental laws to streamline the permitting process.`\
 https://www.nytimes.com/2026/11/09/climate/congress-energy-permitting-reform-vote.html
-
-**Trump Veers Back Into Claims of Rigged Election, Questioning Midterm Results**\
-`President Trump, who initially said he would accept the midterm results, renewed his unsubstantiated claims that voting was manipulated.`\
-https://www.nytimes.com/2026/11/09/us/politics/trump-election-fraud-rigging-midterms.html
 
