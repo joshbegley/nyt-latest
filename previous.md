@@ -1,3 +1,11 @@
+**Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
+`The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
+https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
+
+**They Found Love Late in Life, and Then Died Within Days of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
+
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
 https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-nyc.html
@@ -90,7 +98,7 @@ https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is
 `A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
 
-**100000011275105**\
+**Novaya Gazeta, Russia’s Bravest Newspaper, Closes**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
 https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
 
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.
 **America’s Measles Problem Has Reached Endemic Level**\
 `A panel of scientific experts will convene on Tuesday to evaluate the United States’ measles elimination status. But genetic data already shows the virus is once again endemic.`\
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
-
-**In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
-`Many Republican and moderate voters who chose Democratic candidates did not do the same on transgender and other social issues.`\
-https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
-
-**Gaza Floods Kill 4**\
-`At least four people from one family died and thousands lost their shelters when a storm battered overcrowded tent camps. Israel says Gaza will not be rebuilt until Hamas disarms.`\
-https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

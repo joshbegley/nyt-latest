@@ -1,3 +1,15 @@
+**Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
+`The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
+https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
+
+**They Found Love Late in Life, and Then Died Within Days of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
+
+**Novaya Gazeta, Russia’s Bravest Newspaper, Closes**\
+`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
+https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
+
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
 https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-nyc.html
