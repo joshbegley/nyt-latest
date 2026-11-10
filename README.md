@@ -1,3 +1,7 @@
+**Nvidia Hires Wachtell Lipton to Investigate C.E.O.’s Affair With Chinese Executive**\
+`Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
+https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
+
 **Soundtrack to a Modern Dinner Party**\
 `Hear tracks from girlsweetvoiced, This is Lorelei, Friendship and more while assuming host duties.`\
 https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-mis
 **David Walliams, UK Celebrity, Is Accused of Sexual Misconduct**\
 `The Guardian and ITV News published claims from multiple women against the comedian and writer, who fought a weekslong court battle to keep the claims private. He denies the accusations.`\
 https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guardian-itv-uk.html
-
-**Israeli Opposition Pushes for Oct. 7 Inquiry at First Session of New Parliament**\
-`Dozens of first-time lawmakers were sworn into the Knesset, where the opposition, led by Gadi Eisenkot, now has a majority.`\
-https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
