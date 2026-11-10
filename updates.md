@@ -1,3 +1,35 @@
+**Dudamel on Tour: 17 Days, 4 Countries and a Cast of 147**\
+`Performances in six European cities were the capstone of an extravagant welcome to Gustavo Dudamel from the New York Philharmonic.`\
+https://www.nytimes.com/2026/11/10/arts/music/dudamel-on-tour-17-days-4-countries-and-a-cast-of-147.html
+
+**Word of the Day: paraphernalia**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/10/learning/word-of-the-day-paraphernalia.html
+
+**Book Review: ‘The Intangibles,’ by Nick Paumgarten**\
+`In “The Intangibles,” the journalist Nick Paumgarten traces his long love of hockey from childhood to the beer leagues.`\
+https://www.nytimes.com/2026/11/10/books/review/nick-paumgarten-the-intangibles.html
+
+**A Ballet Star on Doing Theater: Same Work, Different Instrument**\
+`Natalia Osipova is playing another ballerina, Lydia Lopokova, in “The Standard of Living” about John Maynard Keynes in London.`\
+https://www.nytimes.com/2026/11/10/arts/dance/natalia-osipova-the-standard-of-living-lydia-lopokova.html
+
+**The Bad Plus Ends Like It Began: ‘Throwing Down’ Every Night**\
+`For more than two decades, the Bad Plus has explored how a jazz group with no leader could sound and what rooms it could play.`\
+https://www.nytimes.com/2026/11/10/arts/music/a-jazz-experiment-ends-like-it-began-throwing-down-every-night.html
+
+**A Guide to the Best Beaches in Vietnam**\
+`A longtime international correspondent and beach connoisseur based in Ho Chi Minh City has scouted the country’s waterfront resorts.`\
+https://www.nytimes.com/2026/11/10/travel/vietnam-coast-beaches-resorts.html
+
+**They Were Married for Decades Before the Parkinson’s Began. Then Came the Visions.**\
+`After 50 years of marriage, John found himself caring for his wife, an art curator grappling with Parkinson’s.`\
+https://www.nytimes.com/2026/11/10/opinion/living-with-a-visionary-parkinsons-animation.html
+
+**Living With a Visionary**\
+`After 50 years of marriage, John found himself caring for his wife, an art curator grappling with Parkinson’s.`\
+https://www.nytimes.com/video/opinion/100000010825547/living-with-a-visionary.html
+
 **Thinking Like a Supermajority**\
 `Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
 https://www.nytimes.com/video/opinion/100000011267106/thinking-like-a-supermajority.html
