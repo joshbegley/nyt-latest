@@ -1,3 +1,15 @@
+**Who Is Alice Huang, the Woman in the Middle of Nvidia’s Spy Scandal?**\
+`Alice Huang, who U.S. intelligence determined is a Chinese asset, emerged from the high-flying world of Shanghai finance to work with tech titans and obtain essential A.I. chips.`\
+https://www.nytimes.com/2026/11/10/technology/alice-huang-megaspeed-nvidia-jensen-huang.html
+
+**Richard Aurelio Has Died. He Helped Re-elect Mayor Lindsay.**\
+`A political and public relations virtuoso and journalist, he also worked for Senator Jacob Javits and brought an all-news cable channel to New York. He was 98.`\
+https://www.nytimes.com/2026/11/10/obituaries/metro-richard-aurelio-dead.html
+
+**What Conditions Russell Brand Can Expect in a U.K. Prison**\
+`The prison where Brand is starting his 10-year sentence is “unsanitary and squalid,” according to a recent report. The former star could also be moved to a prison for sex offenders.`\
+https://www.nytimes.com/2026/11/10/arts/russell-brand-prison.html
+
 **Data Show Households Still Managing to Meet Their Monthly Debts**\
 `The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
 https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/10/world/europe/us-troops-germany-pentagon-revie
 **Secrets, Chips and Spycraft: The Nvidia C.E.O. Scandal**\
 `Despite knowing about the relationship between one of the president’s closest allies and a woman later identified by U.S. officials as a Chinese spy, the Trump administration took no action.`\
 https://www.nytimes.com/2026/11/10/podcasts/the-daily/nvidia-jensen-huang-affair-chinese-spy-trump.html
-
-**The Jensen Huang Affair**\
-`Nvidia’s C.E.O., Jensen Huang, admitted to having an affair with a suspected Chinese corporate spy. Everything that means for him and the A.I. industry, and what happens next.`\
-https://www.nytimes.com/2026/11/10/podcasts/hardfork-jensen-huang-spy-affair.html
-
-**Everything You Need To Know About the Jensen Huang Spy Story**\
-`Nvidia CEO Jensen Huang has admitted to an affair with Alice Huang, a top executive at the data center company Megaspeed, whom the U.S. government alleges is a Chinese spy. In a special midweek Hard Fork, the hosts talk with Stephen Witt, author of the Jensen Huang biography The Thinking Machine, about the scandal and what it could mean for A.I. and the global economy.`\
-https://www.nytimes.com/video/podcasts/100000011274204/everything-you-need-to-know-about-the-jensen-huang-spy-story.html
-
-**NYT Connections Answers for November 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
-https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
