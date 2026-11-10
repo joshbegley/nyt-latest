@@ -1,3 +1,23 @@
+**Late Night Weighs In on Trump’s Hopes for the Afterlife**\
+`The president told “60 Minutes” that he doesn’t want to go to hell. “America was like, ‘Then where have we been living the past three years?’” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/11/10/arts/television/late-night-trump-midterms.html
+
+**Mamdani Has Been a Fierce Opponent of ICE. A Judge Handed Him a Setback.**\
+`A federal judge ordered Mayor Zohran Mamdani to comply with a federal subpoena that seeks information about migrants with serious criminal records at a city shelter.`\
+https://www.nytimes.com/2026/11/10/nyregion/ice-mamdani-migrants-court-ruling.html
+
+**NYT Spelling Bee Answers for November 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/10/crosswords/spelling-bee-forum.html
+
+**It’s a Hip-Hop High School. Can It Help Students Succeed?**\
+`In the South Bronx, the first program of its kind offers the same classes as any high school. Only these classes are dope.`\
+https://www.nytimes.com/2026/11/10/nyregion/bronx-school-hip-hop.html
+
+**NYC Roller Skaters Take Over the Streets on Wednesday Nights**\
+`While New York City focuses its street safety efforts on bikes and cars, a boisterous weekly gathering of roller skaters is expanding its reach.`\
+https://www.nytimes.com/2026/11/10/nyregion/nyc-roller-skating-wednesday-night.html
+
 **Saudi Arabia Sentences Mother to 100 Lashes for Birth Outside Marriage**\
 `The kingdom’s promised reforms don’t always match the realities of its justice system. Unmarried women, particularly foreign workers, face unique perils.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/saudi-arabia-lashing-sentence-kenyan-woman.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
 **James Gunn and Peter Safran Are Out as Heads of DC Studios**\
 `Skydance, which acquired DC Studios’ parent company weeks ago, announced that the duo would step away from their roles after four years.`\
 https://www.nytimes.com/2026/11/09/us/dc-studios-james-gunn-peter-safran-skydance.html
-
-**Dark Chocolate Mousse With Orange Whipped Cream**\
-`Even a simple dessert can make a big statement. This rich chocolate mousse, topped with a cloud of citrusy cream, doesn’t require you to make a custard or use any gelatin.`\
-https://www.nytimes.com/video/dining/100000011272584/dark-chocolate-mousse-with-orange-whipped-cream.html
-
-**Potato Chip Mashed Potatoes**\
-`Potato lovers will rejoice at the creamy and crunchy potato textures within the same dish.`\
-https://www.nytimes.com/video/dining/100000011272606/potato-chip-mashed-potatoes.html
-
-**Salted Caramel and Pecan Cream Slice**\
-`Cream slice — also known as cremeschnitte, cremeș or krempita — is a beloved dessert in many European countries and beyond, but no matter what it’s called, the essence of the dessert is the same: a sturdy, sliceable vanilla custard sandwiched between flaky puff pastry layers.`\
-https://www.nytimes.com/video/dining/100000011272635/salted-caramel-and-pecan-cream-slice.html
-
-**Bacon, Egg and Cheese Fried Rice**\
-`Bacon, egg and cheese sandwiches and fried rice are each beloved for their simplicity and affordability, but also because they deliver great comfort and satisfaction. In this playful weeknight meal, the two come together.`\
-https://www.nytimes.com/video/dining/100000011272649/bacon-egg-and-cheese-fried-rice.html
-
-**Sweet Potato and Cranberry Layer Cake**\
-`This towering showstopper combines a few key flavor profiles of the Thanksgiving table into one celebration-worthy centerpiece: tender, spiced sweet potato cake layered with a tart cranberry filling and finished with a torched, marshmallow-like meringue frosting.`\
-https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-layer-cake.html
 
