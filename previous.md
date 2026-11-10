@@ -1,3 +1,7 @@
+**How to Make Journalism Fun, With Maury Povich**\
+`Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
+https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html
+
 **A New York Times Reporter on El Niño and His California Childhood**\
 `David Gelles, who covers a warming world for The New York Times, recalls natural disasters of his youth as he seeks to make sense of a powerful El Niño.`\
 https://www.nytimes.com/2026/11/10/insider/el-nino-california-climate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/music/dudamel-on-tour-17-days-4-countrie
 **Word of the Day: paraphernalia**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/10/learning/word-of-the-day-paraphernalia.html
-
-**Book Review: ‘The Intangibles,’ by Nick Paumgarten**\
-`In “The Intangibles,” the journalist Nick Paumgarten traces his long love of hockey from childhood to the beer leagues.`\
-https://www.nytimes.com/2026/11/10/books/review/nick-paumgarten-the-intangibles.html
 

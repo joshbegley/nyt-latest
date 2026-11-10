@@ -1,3 +1,7 @@
+**How to Make Journalism Fun, With Maury Povich**\
+`Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
+https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html
+
 **A New York Times Reporter on El Niño and His California Childhood**\
 `David Gelles, who covers a warming world for The New York Times, recalls natural disasters of his youth as he seeks to make sense of a powerful El Niño.`\
 https://www.nytimes.com/2026/11/10/insider/el-nino-california-climate.html
