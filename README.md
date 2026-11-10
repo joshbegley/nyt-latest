@@ -42,7 +42,7 @@ https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
 `A reporter who has traveled on Air Force One with U.S. presidents flew to the Bahamas with the monarch. What was royal travel like?`\
 https://www.nytimes.com/2026/11/10/insider/king-charles-royal-flight-caribbean.html
 
-**Alina Habba Loses $50 Million Contract That Enraged Trump**\
+**Alina Habba Mildon Loses $50 Million Contract That Enraged Trump**\
 `The former Trump lawyer had signed the contract with a family company weeks before the president gave the family’s patriarch a pardon.`\
 https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
 
