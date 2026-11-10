@@ -1,3 +1,7 @@
+**Live Updates: Hegseth to Speak Amid Impeachment Drive**\
+`Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **The A.I. Spy Thriller**\
 `We look into what’s going on at Nvidia.`\
 https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/movies/all-of-a-sudden-fjord-minotaur-the-dre
 **Review: ‘Ms. Blakk for President’ Is a Heightened Fever Dream**\
 `This frustratingly erratic play, by Tarell Alvin McCraney and Tina Landau at Vineyard Theater, revisits a Chicago drag queen’s 1992 presidential bid.`\
 https://www.nytimes.com/2026/11/10/theater/ms-blakk-for-president-review-mccraney-glick-blankson-wood.html
-
-**To Understand My Place in England, I Decided to Walk Across It**\
-`A lone traveler finds fellowship among the ramblers as he hikes 192 miles, moving from coast to coast.`\
-https://www.nytimes.com/2026/11/10/t-magazine/walking-across-england-coast-to-coast.html
 
