@@ -1,3 +1,19 @@
+**Passenger Arrested in Connection to Possible Homicide on Cruise Ship Off Texas Coast**\
+`The F.B.I. is investigating the death of a passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
+https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
+
+**Is Gen Z Drinking Less?**\
+`We look at the numbers.`\
+https://www.nytimes.com/2026/11/10/briefing/is-gen-z-drinking-less.html
+
+**Republicans Lost Everywhere. Except for Stephen Miller.**\
+`No one is safe when Miller is the guiding hand behind the president’s agenda.`\
+https://www.nytimes.com/2026/11/10/opinion/trump-stephen-miller-republicans.html
+
+**A Luscious Egg Dish for Any Time of Day**\
+`Soft, sautéed spinach, turmeric-scented onions and runny fried eggs star in nargesi esfenaj.`\
+https://www.nytimes.com/2026/11/10/dining/a-luscious-egg-dish-for-any-time-of-day.html
+
 **Stolen Picasso Works Are Recovered From Behind Toolboxes in a French House**\
 `The six etchings were missing for over a month after a robbery at a fine-dining restaurant in the French Riviera.`\
 https://www.nytimes.com/2026/11/10/arts/stolen-picassos-recovered-france.html
@@ -142,13 +158,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
+
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/11/10/business/roku-aquatic-life-screensaver-fox.ht
 **As Fresh Air Becomes a Luxury, Many Indonesians Turn on Their Leader**\
 `In Indonesia, support for President Prabowo Subianto has collapsed as his government has failed to contain raging wildfires, compounding quality-of-life woes.`\
 https://www.nytimes.com/2026/11/10/world/asia/indonesia-wildfire-protests-prabowo.html
-
-**They’re Ready for A.O.C. Is She Ready to Run?**\
-`A network of progressives wants Alexandria Ocasio-Cortez to run for president. The field could be crowded.`\
-https://www.nytimes.com/2026/11/10/nyregion/theyre-ready-for-aoc-is-she-ready-to-run.html
-
-**Which $800,000 Home Would You Choose?**\
-`This week’s offerings are in Saugatuck, Mich., Hartford, Vt., and Greenville, S.C.`\
-https://www.nytimes.com/2026/11/10/realestate/which-800000-home-would-you-choose.html
-
-**Many of Trump’s Plans to Remake D.C. Would Push Locals Aside**\
-`If these projects come to fruition, Washingtonians will lose access to sports fields, fishing spots and other tent poles of everyday city life.`\
-https://www.nytimes.com/2026/11/10/arts/design/trump-washington-arch-oval-office.html
-
-**What a Democratic South Would Mean for American Politics**\
-`What happens now that Republicans can’t take the South for granted?`\
-https://www.nytimes.com/2026/11/10/opinion/politics/democrats-south-elections.html
 
