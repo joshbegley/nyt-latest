@@ -1,3 +1,7 @@
+**Exxon Strikes Preliminary Deal to Return to Venezuela**\
+`The agreement brings the biggest U.S. oil company a step closer to pumping oil again in Venezuela, nearly two decades after it left the country.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/exxon-mobil-venezuela-oil-deal.html
+
 **Mayor Orders Review of How Suspect in Jogger’s Death Was Hired by School**\
 `Families were shaken at the school where Sayed Mohassib worked as an aide. He was fired on Monday, days after he was charged in the death of the jogger, Katie Suarez.`\
 https://www.nytimes.com/2026/11/09/nyregion/katie-suarez-sayed-mohassib-nyc.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-inves
 **France Blames Iran for Cyberattack on Refrigeration Systems**\
 `The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
 https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
-
-**Poland in Shock After Mass Shooting in Krakow**\
-`Residents and tourists in Poland mourned the victims of a mass shooting that left at least six people dead in Krakow. The bodies of the suspect’s parents and sister were later found at his home in another town.`\
-https://www.nytimes.com/video/world/europe/100000011272018/poland-shooting-krakow-suspect-victims.html
 
