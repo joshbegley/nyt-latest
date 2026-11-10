@@ -1,3 +1,7 @@
+**Republicans Turn Back Effort to Impeach Hegseth**\
+`The G.O.P. banded together to shelve impeachment articles against the defense secretary, sparing him from a damaging rebuke and potential ouster.`\
+https://www.nytimes.com/2026/11/10/us/politics/house-hegseth-impeachment-vote.html
+
 **Kennedys Move to Block Trump’s Arch, Saying It Would Disturb J.F.K. Gravesite**\
 `The legal filing argues that the arch would cast a shadow on Kennedy family graves and disrupt the sightline from the eternal flame memorializing the former president.`\
 https://www.nytimes.com/2026/11/10/us/politics/kennedy-trump-arch-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
 **Corey Lewandowski, Trump Ally, Is a Top Target for Democrats After the Election**\
 `The former Trump administration adviser has been urged to preserve his records, as part of Democrats’ bid to rein in the Department of Homeland Security.`\
 https://www.nytimes.com/2026/11/10/us/politics/democrats-corey-lewandowski-investigations.html
-
-**Ole Miss Investigates White Students Who Made Racist Gestures in Video**\
-`Two white young women made noises imitating monkeys outside the apartment door of a group of Black students. The university called the video “deeply troubling.”`\
-https://www.nytimes.com/2026/11/10/us/ole-miss-white-students-racist-gestures-video.html
 
