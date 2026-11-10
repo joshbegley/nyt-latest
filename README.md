@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.h
 https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 
 **Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
-`The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment amid fears that the A.I. boom may not be sustainable.`\
+`The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
 **Live Updates: Hegseth Decries ‘Slander’ as He Seeks to Fend Off Impeachment Drive**\
