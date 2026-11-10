@@ -1,3 +1,7 @@
+**Heavy Rain Triggers Deadly Sand Dune Collapse in Gaza**\
+`Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
+https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
+
 **Nvidia Hires Wachtell Lipton to Investigate C.E.O.’s Affair With Chinese Executive**\
 `Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
 https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
@@ -114,8 +118,8 @@ https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 `At least four people from one family were killed and thousands of Palestinians lost their shelters when a storm battered overcrowded tent camps.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
 
-**Passenger Arrested in Connection to Possible Homicide on Cruise Ship Off Texas Coast**\
-`The F.B.I. is investigating the death of a passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
+**Passenger Arrested in Connection to Possible Homicide on Cruise Ship**\
+`The F.B.I. is investigating the death of a female passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
 https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
 
 **Is Gen Z Drinking Less?**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.htm
 **Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
 `The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
 https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
-
-**David Walliams, UK Celebrity, Is Accused of Sexual Misconduct**\
-`The Guardian and ITV News published claims from multiple women against the comedian and writer, who fought a weekslong court battle to keep the claims private. He denies the accusations.`\
-https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guardian-itv-uk.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
