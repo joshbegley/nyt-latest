@@ -1,3 +1,7 @@
+**Trump Says Nvidia Chief Was Unaware Chinese Woman Was Suspected Spy**\
+`President Trump on Monday said the Nvidia C.E.O. Jensen Huang told him he did not know that the businesswoman he was having an affair with was an operative for China’s government.`\
+https://www.nytimes.com/video/technology/100000011274337/nvidia-jensen-huang-affair-spy-trump-china.html
+
 **Failure of Billionaire Tax Strikes Blow to Progressive Agenda**\
 `A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
 https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
@@ -134,13 +138,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
-`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
-
 **JD Vance Trots Out an Old Scapegoat**\
 `Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
+
+**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
+`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.htm
 **Restaurant Review: Ursa in Tucson, Ariz.**\
 `At Ursa, the chef Aaron Lopez exalts the beauty of the Southwest in all its glory.`\
 https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.html
-
-**Martha Stewart Said Sorry. Other Rich People Should, Too.**\
-`It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
-https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
 

@@ -1,3 +1,7 @@
+**Trump Says Nvidia Chief Was Unaware Chinese Woman Was Suspected Spy**\
+`President Trump on Monday said the Nvidia C.E.O. Jensen Huang told him he did not know that the businesswoman he was having an affair with was an operative for China’s government.`\
+https://www.nytimes.com/video/technology/100000011274337/nvidia-jensen-huang-affair-spy-trump-china.html
+
 **What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
 `Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
 https://www.nytimes.com/2026/11/10/us/thomas-massie-impeachment-hegseth.html
