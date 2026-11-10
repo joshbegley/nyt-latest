@@ -1,3 +1,7 @@
+**New Research Compares Long-Term Relief From 21 Antidepressants**\
+`In the meta-analysis, a few drugs stood out for offering greater effectiveness over time.`\
+https://www.nytimes.com/2026/11/10/well/mind/antidepressants-efficacy-work.html
+
 **The Evening: House Republicans Shelve Hegseth Impeachment**\
 `Plus, worrisome inflation numbers. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/10/briefing/hegseth-impeachment-inflation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
 **Pete Hegseth Dismisses Impeachment Efforts**\
 `Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
 https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
-
-**How an Italian Capital of Design Is Coping with Climate Change**\
-`Some of Milan’s best creative minds are working on solutions to floods, drought and 100-degree days.`\
-https://www.nytimes.com/2026/11/10/arts/design/milan-architecture-design-climate-change.html
 
