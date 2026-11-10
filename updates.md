@@ -1,3 +1,7 @@
+**Live Updates: Hegseth Decries ‘Slander’ as He Seeks to Fend Off Impeachment Drive**\
+`Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by a “disgruntled” congressman and rejected accusations of abuse of power.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **Nvidia’s Game of Thrones**\
 `Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
 https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
