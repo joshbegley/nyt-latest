@@ -1,3 +1,11 @@
+**No Good Choices on Iran**\
+`As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
+https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
+
+**How Times’s Reporters Uncovered the Nvidia C.E.O Scandal**\
+`New York Times reporters first began writing stories about Alice Huang, a tech executive who had gained direct, personal access to Nvidia’s chief executive, Jensen Huang, in October 2025. Last month, they reported that she had been identified as a Chinese spy by the U.S. Over the weekend, Mr. Huang admitted to having an affair with her. Tripp Mickle joins Natalie Kitroeff on “The Daily” to unpack the scandal and its implications.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011275758/how-timess-reporters-uncovered-the-nvidia-ceo-scandal.html
+
 **Anthropic’s Giant IPO Will Tie It Closer to Nvidia**\
 `Nvidia planned to invest $10 billion in Anthropic alongside its initial public offering, the largest of the new financial commitments from several giants to the A.I. company.`\
 https://www.nytimes.com/2026/11/10/business/anthropic-ipo-nvidia.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/11/10/weather/noreaster-snow-cold.html
 `William Lawrence, a co-founder of the Sunrise Movement, flipped a seat in Michigan for the Democrats.`\
 https://www.nytimes.com/2026/11/10/climate/william-lawrence-sunrise-congress.html
 
-**On the Defense: Takeaways from Hegseth’s Remarks on Articles of Impeachment**\
+**On the Defense: Takeaways From Hegseth’s Remarks on Articles of Impeachment**\
 `Defense Secretary Pete Hegseth broke a monthslong drought of press briefings to defend his record in office.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-tex
 **Is Gen Z Drinking Less?**\
 `We look at the numbers.`\
 https://www.nytimes.com/2026/11/10/briefing/is-gen-z-drinking-less.html
-
-**Republicans Lost Everywhere. Except for Stephen Miller.**\
-`No one is safe when Miller is the guiding hand behind the president’s agenda.`\
-https://www.nytimes.com/2026/11/10/opinion/trump-stephen-miller-republicans.html
-
-**A Luscious Egg Dish for Any Time of Day**\
-`Soft, sautéed spinach, turmeric-scented onions and runny fried eggs star in nargesi esfenaj.`\
-https://www.nytimes.com/2026/11/10/dining/a-luscious-egg-dish-for-any-time-of-day.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

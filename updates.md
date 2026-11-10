@@ -1,3 +1,15 @@
+**Anthropic’s Giant IPO Will Tie It Closer to Nvidia**\
+`Nvidia planned to invest $10 billion in Anthropic alongside its initial public offering, the largest of the new financial commitments from several giants to the A.I. company.`\
+https://www.nytimes.com/2026/11/10/business/anthropic-ipo-nvidia.html
+
+**Amazon and Google Will See Big Paydays from Anthropic IPO**\
+`Amazon and Google are the largest investors in the A.I. start-up, and their shares could gain hundreds of billions of dollars in value.`\
+https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-google-amazon.html
+
+**Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia’s Jensen Huang**\
+`Before Jensen Huang boarded Air Force One en route to Beijing, the president was reminded of intelligence showing that he was in a relationship with a woman believed to be a Chinese spy.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-china-trip-nvidia.html
+
 **Ask DealBook**\
 `Andrew Ross Sorkin wants to hear your questions`\
 https://www.nytimes.com/2026/11/10/briefing/ask-dealbook.html
