@@ -1,3 +1,7 @@
+**Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
+`Najib Razak, a former prime minister of Malaysia who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
+https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
+
 **Street Style Look of the Week: A Sweatshirt at a Prep Convention**\
 `A university student’s simple ensemble — sweatshirt and bluejeans — stood out among the peacocking fashions on parade outside a Ralph Lauren fan event.`\
 https://www.nytimes.com/2026/11/10/style/street-style-look-dressed-down.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
+
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/us/elephants-honolulu-zoo-hawaii-court.html
 **Advent Calendars Go Beyond Chocolate, From Pickles to Protein Powder**\
 `Snacks, drinks and health foods are helping fuel a $2.6 billion industry that serves up a treat a day, from cheese to booze to dog biscuits.`\
 https://www.nytimes.com/2026/11/10/dining/advent-calendars-food-drinks-snacks.html
-
-**The Blue Wave Washed Across Much of America. But Not Here.**\
-`By some measures, the Republican Party grew even stronger in South Dakota, one of the states that shifted the least toward Democrats in the midterms.`\
-https://www.nytimes.com/2026/11/10/us/south-dakota-republicans.html
 
