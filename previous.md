@@ -1,3 +1,7 @@
+**Trump Officials Drop Threat to Colorado School District Over Transgender Issues**\
+`Trump administration officials had accused the district of allowing boys on girls’ teams, which they said violated a ban on sex discrimination in schools.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-colorado-transgender.html
+
 **Footage Shows Nvidia C.E.O. With Businesswoman Alice Huang**\
 `Photos and videos show multiple meetings between Nvidia’s C.E.O., Jensen Huang, and Alice Huang, a businesswoman who U.S. intelligence identified as a spy for China.`\
 https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-espionage-trump.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
 `The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
 https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
 
-**House Republicans Pick Jim Jordan, a Close Trump Ally, as Their Next Leader**\
-`In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
+**Stung by Losses, G.O.P. Chooses Jordan and Thune as Leaders**\
+`In the House, Republicans signaled a desire for fresh leadership after their biggest election defeat in decades. In the Senate, they re-elected their current leader.`\
 https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
 
 **Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia’s Jensen Huang**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/world/middleeast/syria-weighs-sending-troops-
 **A Belgian-Congolese Designer Finds Her Muse in Music**\
 `“Hearing different kinds of rhythms and tones makes me understand shapes better,” said Kim Mupangilaï.`\
 https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-music.html
-
-**Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
-`Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
-https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
 

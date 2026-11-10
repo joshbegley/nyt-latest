@@ -1,3 +1,11 @@
+**Trump Officials Drop Threat to Colorado School District Over Transgender Issues**\
+`Trump administration officials had accused the district of allowing boys on girls’ teams, which they said violated a ban on sex discrimination in schools.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-colorado-transgender.html
+
+**Stung by Losses, G.O.P. Chooses Jordan and Thune as Leaders**\
+`In the House, Republicans signaled a desire for fresh leadership after their biggest election defeat in decades. In the Senate, they re-elected their current leader.`\
+https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
+
 **Stanley Zabar Has Died. He Managed the Books, and the Slaw, at an N.Y.C. Landmark.**\
 `Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
 https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
