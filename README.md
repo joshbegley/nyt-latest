@@ -1,3 +1,11 @@
+**WASHINGTON**\
+`In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
+https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
+
+**Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia Leader**\
+`Before Jensen Huang boarded Air Force One en route to Beijing, the president was reminded of intelligence showing that he was in a relationship with a woman believed to be a Chinese spy.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-china-trip-nvidia.html
+
 **Bar Cosme Puts the Comal Front and Center**\
 `The space that was Enrique Olvera’s Atla gets a redo with an open kitchen surrounded by a granite bar, and other restaurant news.`\
 https://www.nytimes.com/2026/11/10/dining/nyc-restaurant-news.html
@@ -11,7 +19,7 @@ https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-isr
 https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
 
 **Soundtrack to a Modern Dinner Party**\
-`Hear tracks from girlsweetvoiced, This is Lorelei, Friendship and more while assuming host duties.`\
+`Hear tracks from girlsweetvoiced, This Is Lorelei, Friendship and more while assuming host duties.`\
 https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
 
 **Do I Need to Dress Sexier?**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/10/style/street-style-look-dressed-down.html
 **Trump Administration Moves to Further Limit SNAP Eligibility, Affecting Millions**\
 `The rule would limit a policy that allows states to authorize participation in the program if a person qualifies for a different type of assistance.`\
 https://www.nytimes.com/2026/11/10/us/snap-eligibility-food-stamps-trump.html
-
-**U.S. Received $12 Billion From Venezuela’s Oil, Report Shows**\
-`The workings of a U.S.-controlled bank account shed light on how Washington manages Venezuelan revenue after capturing the country’s president.`\
-https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
-
-**Nvidia’s Game of Thrones**\
-`Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
-https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
