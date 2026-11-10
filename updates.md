@@ -1,3 +1,7 @@
+**What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/11/10/us/thomas-massie-impeachment-hegseth.html
+
 **Failure of Billionaire Tax Strikes Blow to Progressive Agenda**\
 `A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
 https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
