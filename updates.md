@@ -1,3 +1,15 @@
+**Rep. Ken Calvert Wins House Battle Between Two California Republicans**\
+`After redistricting, Mr. Calvert ended up running against and defeating Representative Young Kim.`\
+https://www.nytimes.com/2026/11/09/us/california-house-40-kim-calvert.html
+
+**California Voters Reject Prop. 40 Billionaire Tax Measure**\
+`The outcome could hinder the wealth tax movement in California and across the country in future years.`\
+https://www.nytimes.com/2026/11/09/us/california-billionaire-tax-prop-40.html
+
+**Skims Offers Refunds For $150 ‘Junk’ Advent Calendar After Backlash**\
+`Customers who bought the item from Skims, Kim Kardashian’s brand, were disappointed when they unwrapped what looked like the detritus in their handbags.`\
+https://www.nytimes.com/2026/11/09/style/skims-advent-calendar-refunds.html
+
 **Gary Fisketjon Has Died. He Edited Ellis, Tartt, McInerney and McCarthy.**\
 `A champion of slow, methodical editing and long working relationships with writers, he was regarded as one of the best of his generation. He was 72.`\
 https://www.nytimes.com/2026/11/09/obituaries/gary-fisketjon-dead.html
