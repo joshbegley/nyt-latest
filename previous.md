@@ -1,3 +1,7 @@
+**China’s Trade Surplus Passes $1 Trillion at Record Pace**\
+`China’s exports exceeded imports by $1 trillion in the first 10 months of this year, reaching that milestone one month earlier than last year.`\
+https://www.nytimes.com/2026/11/09/business/china-trade-surplus-trillion.html
+
 **In Trump’s Washington, Prosecutors Can’t Count on Grand Juries to Take Their Side**\
 `In the past two weeks, prosecutors in the capital have failed to secure indictments in at least three cases, an acceleration of the problems the Justice Department has had with grand juries.`\
 https://www.nytimes.com/2026/11/09/us/politics/doj-trump-grand-jury-indictments.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
 **Shipwreck Off Senegal Kills Dozens as Canary Islands Declare Migrant Emergency**\
 `Migrant arrivals to Europe are down overall but still claiming scores of victims, overwhelming local officials and dominating political debate.`\
 https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-europe.html
-
-**Democrats Demand Answers on Trump’s A.I. Policy Amid Spy Plot**\
-`Congressional leaders raise concerns in a letter as Nvidia investigates its chief executive’s affair with a suspected Chinese spy.`\
-https://www.nytimes.com/2026/11/09/us/politics/democrats-trump-ai-nvidia.html
 
