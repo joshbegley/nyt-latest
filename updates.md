@@ -1,3 +1,11 @@
+**Restaurant Review: El Califa de León in New York**\
+`On the bright side, there are more great options than ever in New York.`\
+https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-nyc.html
+
+**Will N.Y. Democrats Use Their Supermajority to Push Hochul to the Left?**\
+`Democratic socialists have expanded their political influence in New York, potentially setting up a showdown with the state’s moderate governor over raising taxes.`\
+https://www.nytimes.com/2026/11/10/nyregion/supermajority-new-york.html
+
 **Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
 `Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
 https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
