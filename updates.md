@@ -1,3 +1,23 @@
+**Passenger Arrested in Connection to Possible Homicide on Cruise Ship Off Texas Coast**\
+`The F.B.I. is investigating the death of a passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
+https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
+
+**Is Gen Z Drinking Less?**\
+`We look at the numbers.`\
+https://www.nytimes.com/2026/11/10/briefing/is-gen-z-drinking-less.html
+
+**Republicans Lost Everywhere. Except for Stephen Miller.**\
+`No one is safe when Miller is the guiding hand behind the president’s agenda.`\
+https://www.nytimes.com/2026/11/10/opinion/trump-stephen-miller-republicans.html
+
+**A Luscious Egg Dish for Any Time of Day**\
+`Soft, sautéed spinach, turmeric-scented onions and runny fried eggs star in nargesi esfenaj.`\
+https://www.nytimes.com/2026/11/10/dining/a-luscious-egg-dish-for-any-time-of-day.html
+
+**Live Updates: Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
+`Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **Stolen Picasso Works Are Recovered From Behind Toolboxes in a French House**\
 `The six etchings were missing for over a month after a robbery at a fine-dining restaurant in the French Riviera.`\
 https://www.nytimes.com/2026/11/10/arts/stolen-picassos-recovered-france.html
