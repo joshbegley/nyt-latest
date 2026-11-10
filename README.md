@@ -1,3 +1,7 @@
+**Thinking Like a Supermajority**\
+`Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
+https://www.nytimes.com/video/opinion/100000011267106/thinking-like-a-supermajority.html
+
 **Lesson Plan for Reacting to the Midterm Election Results**\
 `What do your students think about the outcome of last week’s elections? What predictions can they make? How can they connect this election to global trends?`\
 https://www.nytimes.com/2026/11/10/learning/three-teaching-ideas-for-reacting-to-the-midterm-election-results.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-bran
 **Michael Bloomberg Marries Diana Taylor**\
 `Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
 https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
-
-**Murder Trial for Tyler Robinson, Charlie Kirk Shooting Suspect, Scheduled for 2028**\
-`Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
-https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
 
