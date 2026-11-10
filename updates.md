@@ -1,3 +1,11 @@
+**Nvidia Hires Wachtell Lipton to Investigate C.E.O.’s Affair With Chinese Executive**\
+`Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
+https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
+
+**Soundtrack to a Modern Dinner Party**\
+`Hear tracks from girlsweetvoiced, This is Lorelei, Friendship and more while assuming host duties.`\
+https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
+
 **Do I Need to Dress Sexier?**\
 `A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
