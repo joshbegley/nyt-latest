@@ -1,3 +1,7 @@
+**Did AI Make This NYC Gay Bar?**\
+`Before it can serve its first vodka soda, a Hell’s Kitchen bar has come under snarky and unsparing criticism for what some see as its lack of sidewalk appeal.`\
+https://www.nytimes.com/2026/11/10/style/pride-bar-hells-kitchen-ai.html
+
 **Failed Plot to Attack U.K. Was Directed From New York Jail, U.S. Says**\
 `Prosecutors say Mohammad Baqer Saad Dawood al-Saadi, a leader of an Iranian-backed militia, passed along coded messages that were delivered to operatives working on behalf of Iran.`\
 https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
 **Where to Eat With Broadway Star Jessica Vosk**\
 `When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
 https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
-
-**What Trump Said in His Letter to Biden in 2021**\
-`The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
-https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
 

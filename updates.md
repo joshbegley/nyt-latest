@@ -1,3 +1,7 @@
+**Did AI Make This NYC Gay Bar?**\
+`Before it can serve its first vodka soda, a Hell’s Kitchen bar has come under snarky and unsparing criticism for what some see as its lack of sidewalk appeal.`\
+https://www.nytimes.com/2026/11/10/style/pride-bar-hells-kitchen-ai.html
+
 **Failed Plot to Attack U.K. Was Directed From New York Jail, U.S. Says**\
 `Prosecutors say Mohammad Baqer Saad Dawood al-Saadi, a leader of an Iranian-backed militia, passed along coded messages that were delivered to operatives working on behalf of Iran.`\
 https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html

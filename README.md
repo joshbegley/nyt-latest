@@ -1,3 +1,15 @@
+**The Evening: House Republicans Shelve Hegseth Impeachment**\
+`Plus, worrisome inflation numbers. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/10/briefing/hegseth-impeachment-inflation.html
+
+**Representative María Elvira Salazar Wins Re-Election in Florida**\
+`Ms. Salazar, a Republican, had released an ad in which she said the White House had “gone too far” on immigration amid worries of Hispanic voter backlash within her party.`\
+https://www.nytimes.com/2026/11/10/us/politics/florida-house-27-salazar-rodriguez.html
+
+**Release of Meghan Markle’s Father Is Revoked After Ankle Monitor Removal**\
+`Thomas Markle Sr., who is facing charges of possession of child sexual abuse images, had his house arrest rescinded by a federal judge in Florida.`\
+https://www.nytimes.com/2026/11/10/us/thomas-markle-ankle-monitor-jail.html
+
 **Did AI Make This NYC Gay Bar?**\
 `Before it can serve its first vodka soda, a Hell’s Kitchen bar has come under snarky and unsparing criticism for what some see as its lack of sidewalk appeal.`\
 https://www.nytimes.com/2026/11/10/style/pride-bar-hells-kitchen-ai.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachme
 **How an Italian Capital of Design Is Coping with Climate Change**\
 `Some of Milan’s best creative minds are working on solutions to floods, drought and 100-degree days.`\
 https://www.nytimes.com/2026/11/10/arts/design/milan-architecture-design-climate-change.html
-
-**A Photographer and His Young Son Create a Fresh Take on Still Lifes**\
-`The photographic collection called Nino + Dad represents a multigenerational collaboration that offers a fresh take on still lifes.`\
-https://www.nytimes.com/2026/11/10/arts/design/design-nino-and-son-photographs-still-lifes.html
-
-**How a Villa Near Lake Como Became a Crowd Pleaser**\
-`The family treasure was sumptuous enough to host a pope in the 17th century, but for guests today, air-conditioning would enhance the appeal.`\
-https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
-
-**Where to Eat With Broadway Star Jessica Vosk**\
-`When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
-https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
 
