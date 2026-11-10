@@ -1,3 +1,7 @@
+**Israeli Opposition Pushes for Oct. 7 Inquiry at First Session of New Parliament**\
+`Dozens of first-time lawmakers were sworn into the Knesset, where the opposition, led by Gadi Eisenkot, now has a majority.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.html
+
 **Data Show Households Still Managing to Meet Their Monthly Debts**\
 `The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
 https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
