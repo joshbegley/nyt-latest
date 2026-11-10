@@ -1,3 +1,27 @@
+**A Photographer and His Young Son Create a Fresh Take on Still Lifes**\
+`The photographic collection called Nino + Dad represents a multigenerational collaboration that offers a fresh take on still lifes.`\
+https://www.nytimes.com/2026/11/10/arts/design/design-nino-and-son-photographs-still-lifes.html
+
+**How a Villa Near Lake Como Became a Crowd Pleaser**\
+`The family treasure was sumptuous enough to host a pope in the 17th century, but for guests today, air-conditioning would enhance the appeal.`\
+https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
+
+**Where to Eat With Broadway Star Jessica Vosk**\
+`When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
+https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
+
+**Trump Told Biden in a 2021 Letter, ‘I Know How Much You Love the American People’**\
+`The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
+https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
+
+**Corey Lewandowski, Trump Ally, Is a Top Target for Democrats After the Election**\
+`The former Trump administration adviser has been urged to preserve his records, as part of Democrats’ bid to rein in the Department of Homeland Security.`\
+https://www.nytimes.com/2026/11/10/us/politics/democrats-corey-lewandowski-investigations.html
+
+**Ole Miss Investigates White Students Who Made Racist Gestures in Video**\
+`Two white young women made noises imitating monkeys outside the apartment door of a group of Black students. The university called the video “deeply troubling.”`\
+https://www.nytimes.com/2026/11/10/us/ole-miss-white-students-racist-gestures-video.html
+
 **Syria Weighs Sending Troops to Aid Saudi War With Houthis**\
 `Syrian reconnaissance teams have visited Saudi Arabia and Yemen ahead of a potential deployment, but a final decision has not been made, officials said.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/syria-weighs-sending-troops-to-aid-saudi-war-with-houthis.html
