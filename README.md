@@ -1,3 +1,11 @@
+**Nvidia Chief Told Trump He Did Not Know Chinese Woman Was Suspected Spy**\
+`President Trump told reporters Monday that he believed Jensen Huang’s account and said he did not recall receiving a briefing warning him about Mr. Huang’s liaison.`\
+https://www.nytimes.com/2026/11/09/us/politics/trump-jensen-huang-spy.html
+
+**Lawsuit Accuses Former Trump Campaign Aide of Taking Money From Qatar**\
+`The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated the Foreign Agent Registration Act. He has denied ever taking such funds.`\
+https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
+
 **Ohio State Suspends Fraternity After 2 Men Catch Fire at a Chapter Gathering**\
 `The police in Columbus, Ohio, were investigating the Sigma Alpha Epsilon fraternity after a video of the incident drew widespread attention online, according to the university.`\
 https://www.nytimes.com/2026/11/09/us/ohio-state-fraternity-suspended.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/opinion/letters/trump-stephen-miller.html
 **A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
 `As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
 https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
-
-**Russell Brand Sentenced to Over 10 Years in Prison for Rape**\
-`Russel Brand, the former actor, comedian and YouTuber, was sentenced to 10 and a half years in prison for rape and sexual assault.`\
-https://www.nytimes.com/video/world/europe/100000011272098/russell-brand-sentencing-prison-uk.html
-
-**Mass Killing in Poland Becomes Cause for a Political Fight**\
-`The government blames the far right for inspiring the gunman, while the opposition accuses the government of lax security.`\
-https://www.nytimes.com/2026/11/09/world/europe/poland-mass-shooting-krakow-politics.html
 
