@@ -1,3 +1,7 @@
+**Soundtrack to a Modern Dinner Party**\
+`Hear tracks from girlsweetvoiced, This is Lorelei, Friendship and more while assuming host duties.`\
+https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
+
 **Do I Need to Dress Sexier?**\
 `A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guard
 **Israeli Opposition Pushes for Oct. 7 Inquiry at First Session of New Parliament**\
 `Dozens of first-time lawmakers were sworn into the Knesset, where the opposition, led by Gadi Eisenkot, now has a majority.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.html
-
-**What Trump Has Said About the Hegseth Impeachment Effort**\
-`The president has defended his defense secretary and called the impeachment drive the effort of “a stone cold loser.”`\
-https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
