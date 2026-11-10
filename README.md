@@ -1,3 +1,7 @@
+**Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
+`The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
+https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html
+
 **What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
 `Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
 https://www.nytimes.com/2026/11/10/world/thomas-massie-impeachment-hegseth.html
@@ -114,13 +118,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
+
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.
 `It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
 https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
 
-**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
-`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
-https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
-
 **ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
 `A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
 https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
+
+**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
+`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
+https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
 
 **What Do You Think Life Will Look Like in the Year 2050?**\
 `Robot butlers. Underwater homes. Root beer perfume. The Times asked kids across the nation to weigh in with their predictions for the future. What are yours?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/learning/what-do-you-think-life-will-look-lik
 **The Man Who Helped the C.I.A. Secretly Operate in Mexico**\
 `President Claudia Sheinbaum drew a firm line barring U.S. forces from operating on Mexican soil. But in a northern border state, one local partner quietly helped the agency build a foothold.`\
 https://www.nytimes.com/2026/11/10/world/americas/mexico-chihuahua-cia.html
-
-**Zoo Elephants Have a Right to Liberty, Group Tells Hawaii’s Top Court**\
-`At a private school that counts Barack Obama as an alumnus, the State Supreme Court heard arguments about whether two elephants in the Honolulu Zoo should be released to an animal sanctuary.`\
-https://www.nytimes.com/2026/11/10/us/elephants-honolulu-zoo-hawaii-court.html
 
