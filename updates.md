@@ -1,3 +1,7 @@
+**Footage Shows Nvidia C.E.O. With Businesswoman Alice Huang**\
+`Photos and videos show multiple meetings between Nvidia’s C.E.O., Jensen Huang, and Alice Huang, a businesswoman who U.S. intelligence identified as a spy for China.`\
+https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-espionage-trump.html
+
 **It’s Time for Israelis to Throw Out Their Trump**\
 `The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
 https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html

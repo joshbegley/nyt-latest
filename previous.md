@@ -1,3 +1,7 @@
+**Footage Shows Nvidia C.E.O. With Businesswoman Alice Huang**\
+`Photos and videos show multiple meetings between Nvidia’s C.E.O., Jensen Huang, and Alice Huang, a businesswoman who U.S. intelligence identified as a spy for China.`\
+https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-espionage-trump.html
+
 **It’s Time for Israelis to Throw Out Their Trump**\
 `The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
 https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-
 **Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
 `Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
 https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
-
-**He’s From ‘Blexas,’ I Can Tell**\
-`Ahead of last week’s midterm elections, Dallas rapper Lil Texxan released “Talafreako (Ken Paxton Diss),” a shouty freestyle celebrating the Texas Democrat James Talarico, who defeated the Trump-backed Republican Ken Paxton in the state’s Senate race. Our music critic Jon Caramanica unpacks how the track captures grassroots political sentiment in a novel way.`\
-https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tell.html
 
