@@ -1,3 +1,7 @@
+**Lawsuit Says Republican Strategist Alex Bruesewitz Took Money From Qatari Interests**\
+`The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated federal law. He has denied ever taking such funds.`\
+https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
+
 **Nvidia CEO Jensen Huang Told Trump He Did Not Know Chinese Woman Was Suspected Spy**\
 `President Trump told reporters Monday that he believed Jensen Huang’s account and said he did not recall receiving a briefing warning him about Mr. Huang’s liaison.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-jensen-huang-spy.html
