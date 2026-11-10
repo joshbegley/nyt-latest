@@ -1,3 +1,23 @@
+**WASHINGTON**\
+`In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
+https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
+
+**Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia Leader**\
+`Before Jensen Huang boarded Air Force One en route to Beijing, the president was reminded of intelligence showing that he was in a relationship with a woman believed to be a Chinese spy.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-china-trip-nvidia.html
+
+**Bar Cosme Puts the Comal Front and Center**\
+`The space that was Enrique Olvera’s Atla gets a redo with an open kitchen surrounded by a granite bar, and other restaurant news.`\
+https://www.nytimes.com/2026/11/10/dining/nyc-restaurant-news.html
+
+**Soundtrack to a Modern Dinner Party**\
+`Hear tracks from girlsweetvoiced, This Is Lorelei, Friendship and more while assuming host duties.`\
+https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
+
+**Gaza Floods Kill 4**\
+`At least four people from one family died and thousands lost their shelters when a storm battered overcrowded tent camps. Israel says Gaza will not be rebuilt until Hamas disarms.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
+
 **Heavy Rain Triggers Deadly Sand Dune Collapse in Gaza**\
 `Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
 https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
