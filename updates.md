@@ -1,3 +1,15 @@
+**The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
+`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
+https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
+
+**Is Your Chatbot Conscious, or Just Code?**\
+`Readers respond to an Opinion guest essay about whether artificial intelligence can be conscious. Also: Justice in California; the White House ballroom.`\
+https://www.nytimes.com/2026/11/10/opinion/ai-consciousness.html
+
+**America’s Measles Problem Has Reached Endemic Level**\
+`A panel of scientific experts will convene on Tuesday to evaluate the United States’ measles elimination status. But genetic data already shows the virus is once again endemic.`\
+https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
+
 **Tony Butala, Member of the Lettermen, Has Died**\
 `His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
 https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
