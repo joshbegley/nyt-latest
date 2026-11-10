@@ -1,3 +1,7 @@
+**The Path to a Democratic Supermajority**\
+`Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
+https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.html
+
 **JD Vance Trots Out an Old Scapegoat**\
 `Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
