@@ -1,3 +1,7 @@
+**Bar Cosme Puts the Comal Front and Center**\
+`The space that was Enrique Olvera’s Atla gets a redo with an open kitchen surrounded by a granite bar, and other restaurant news.`\
+https://www.nytimes.com/2026/11/10/dining/nyc-restaurant-news.html
+
 **Heavy Rain Triggers Deadly Sand Dune Collapse in Gaza**\
 `Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
 https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
@@ -115,7 +119,7 @@ https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.
 https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 
 **Gaza Floods Kill 4**\
-`At least four people from one family were killed and thousands of Palestinians lost their shelters when a storm battered overcrowded tent camps.`\
+`At least four people from one family died and thousands lost their shelters when a storm battered overcrowded tent camps. Israel says Gaza will not be rebuilt until Hamas disarms.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
 
 **Passenger Arrested in Connection to Possible Homicide on Cruise Ship**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
 **Nvidia’s Game of Thrones**\
 `Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
 https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
-
-**Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
-`The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
-https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
