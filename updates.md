@@ -1,4 +1,12 @@
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
+`Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
+https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
+
+**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
+`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
+https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
+
+**Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, a former prime minister of Malaysia who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
 https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
 

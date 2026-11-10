@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
 
 **Live Updates: Inflation Continues to Challenge U.S. Economy**\
-`The Consumer Price Index for October showed costs continue to increase across the U.S. economy.`\
+`An official comparison with last year was missing because of the government shutdown, but calculations by The New York Times showed consumer prices rose around 4 percent annually.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
 
 **Americans Aren’t Left or Right. They’re Heterodox.**\
