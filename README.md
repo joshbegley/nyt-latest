@@ -1,3 +1,7 @@
+**Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
+`The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment amid fears that the A.I. boom may not be sustainable.`\
+https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
+
 **Live Updates: Hegseth to Speak Amid Impeachment Drive**\
 `Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/realestate/this-family-vacation-home-was-buil
 **4 Auteurs, 4 Experiments Outside the Countries They’re Best Known for**\
 `This season, filmmakers from Japan, Russia, Romania and Germany have chosen to venture abroad for a variety of creative and political reasons.`\
 https://www.nytimes.com/2026/11/10/movies/all-of-a-sudden-fjord-minotaur-the-dreamed-adventure.html
-
-**Review: ‘Ms. Blakk for President’ Is a Heightened Fever Dream**\
-`This frustratingly erratic play, by Tarell Alvin McCraney and Tina Landau at Vineyard Theater, revisits a Chicago drag queen’s 1992 presidential bid.`\
-https://www.nytimes.com/2026/11/10/theater/ms-blakk-for-president-review-mccraney-glick-blankson-wood.html
 
