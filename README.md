@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
-**Live Updates: Hegseth Decries ‘Slander’ as He Seeks to Fend Off Impeachment Drive**\
-`Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by a “disgruntled” congressman and rejected accusations of abuse of power.`\
+**Live Updates: Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
+`Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
 **The A.I. Spy Thriller**\
