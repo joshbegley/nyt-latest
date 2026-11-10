@@ -1,3 +1,7 @@
+**Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
+`Despite its win, the administration signaled it had adjusted construction plans in the national park with an aim to “preserving the unique landscape and public access.”`\
+https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
+
 **Trump-Era Funding Cuts Driving Young Scientists From U.S. Research**\
 `Under Trump, new Ph.D. enrollments are down, funding is on the decline and many budding researchers are reconsidering their careers.`\
 https://www.nytimes.com/interactive/2026/11/09/science/trump-funding-cuts-young-scientists-phd-research.html

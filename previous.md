@@ -147,7 +147,7 @@ https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-
 https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
 
 **Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
-`The administration had asked the court to permit construction of a border wall in southwestern Texas, including areas within a national park.`\
+`Despite its win, the administration signaled it had adjusted construction plans in the national park with an aim to “preserving the unique landscape and public access.”`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
 
 **Thomas Massie Moves to Force Vote on Impeaching Pete Hegseth**\
