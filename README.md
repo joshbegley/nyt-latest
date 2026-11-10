@@ -1,3 +1,7 @@
+**Hegseth Faces Impeachment Charges, and Why Dead Birds Are Washing Up in California**\
+`Plus, “the best writer you’ve never heard of.”`\
+https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
+
 **Live Updates: Status Check on Inflation’s Trajectory**\
 `The Consumer Price Index for October will show how price pressures are trickling through the U.S. economy.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/arts/design/our-critic-calls-fish-story-the-g
 **El Niño Is Hitting California Hard**\
 `Rising sea levels and violent weather are testing residents in some of the most picturesque cities along the Pacific Coast.`\
 https://www.nytimes.com/2026/11/10/climate/el-nino-california-flooding-fires-kelvin-wave.html
-
-**A Brain Teaser of an Obituary**\
-`Steve Selvin has died. To understand his significance, try to wrap your head around the Monty Hall Problem.`\
-https://www.nytimes.com/2026/11/10/obituaries/steve-selvin-dead.html
 
