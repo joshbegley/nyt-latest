@@ -126,13 +126,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
+
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
