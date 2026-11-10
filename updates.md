@@ -1,3 +1,7 @@
+**Syria Weighs Sending Troops to Aid Saudi War With Houthis**\
+`Syrian reconnaissance teams have visited Saudi Arabia and Yemen ahead of a potential deployment, but a final decision has not been made, officials said.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/syria-weighs-sending-troops-to-aid-saudi-war-with-houthis.html
+
 **A Belgian-Congolese Designer Finds Her Muse in Music**\
 `“Hearing different kinds of rhythms and tones makes me understand shapes better,” said Kim Mupangilaï.`\
 https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-music.html

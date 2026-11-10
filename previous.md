@@ -1,3 +1,7 @@
+**Syria Weighs Sending Troops to Aid Saudi War With Houthis**\
+`Syrian reconnaissance teams have visited Saudi Arabia and Yemen ahead of a potential deployment, but a final decision has not been made, officials said.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/syria-weighs-sending-troops-to-aid-saudi-war-with-houthis.html
+
 **A Belgian-Congolese Designer Finds Her Muse in Music**\
 `“Hearing different kinds of rhythms and tones makes me understand shapes better,” said Kim Mupangilaï.`\
 https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-music.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/10/insider/el-nino-california-climate.html
 **Nvidia’s Board Has a History of Letting Jensen Huang Get His Way**\
 `Governance experts question whether the board, which is investigating Mr. Huang’s conduct, has been too deferential as he has turned Nvidia into a global giant.`\
 https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
-
-**Should Chuck Schumer Be Majority Leader?**\
-`Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
-https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
