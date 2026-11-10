@@ -1,3 +1,11 @@
+**Failed Plot to Attack U.K. Was Directed From New York Jail, U.S. Says**\
+`Prosecutors say Mohammad Baqer Saad Dawood al-Saadi, a leader of an Iranian-backed militia, passed along coded messages that were delivered to operatives working on behalf of Iran.`\
+https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html
+
+**Republicans Turn Back Effort to Impeach Hegseth**\
+`The G.O.P. banded together to shelve impeachment articles against the defense secretary, sparing him from a damaging rebuke and potential ouster.`\
+https://www.nytimes.com/2026/11/10/us/politics/house-hegseth-impeachment-vote.html
+
 **Animating ‘Living With a Visionary’**\
 `The animator and director Stephen P. Neary spent three years working in a shed in his backyard to animate the Op-Docs film “Living With a Visionary.” The film is based on the poet John Mathias’s memoir, which tells the story of how, after 50 years of marriage, he found himself caring for his wife, an art curator grappling with Parkinson’s disease. Stephen reached out to John in 2022 about adapting his words into an animated short film inspired by the work of the Canadian animator Frédéric Back. As artists worry about the impact of A.I. on the animation industry, Stephen found it extremely satisfying to hand-render the thousands of drawings on overlapping layers of vellum and watercolor paper. Watch the full film.`\
 https://www.nytimes.com/video/opinion/100000011274893/animating-living-with-a-visionary.html
