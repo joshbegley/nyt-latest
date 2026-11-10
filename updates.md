@@ -1,3 +1,7 @@
+**Lesson Plan for Reacting to the Midterm Election Results**\
+`What do your students think about the outcome of last week’s elections? What predictions can they make? How can they connect this election to global trends?`\
+https://www.nytimes.com/2026/11/10/learning/three-teaching-ideas-for-reacting-to-the-midterm-election-results.html
+
 **Late Night Weighs In on Trump’s Hopes for the Afterlife**\
 `The president told “60 Minutes” that he doesn’t want to go to hell. “America was like, ‘Then where have we been living the past three years?’” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/11/10/arts/television/late-night-trump-midterms.html

@@ -1,3 +1,7 @@
+**Lesson Plan for Reacting to the Midterm Election Results**\
+`What do your students think about the outcome of last week’s elections? What predictions can they make? How can they connect this election to global trends?`\
+https://www.nytimes.com/2026/11/10/learning/three-teaching-ideas-for-reacting-to-the-midterm-election-results.html
+
 **Late Night Weighs In on Trump’s Hopes for the Afterlife**\
 `The president told “60 Minutes” that he doesn’t want to go to hell. “America was like, ‘Then where have we been living the past three years?’” Jimmy Fallon said.`\
 https://www.nytimes.com/2026/11/10/arts/television/late-night-trump-midterms.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-tayl
 **Murder Trial for Tyler Robinson, Charlie Kirk Shooting Suspect, Scheduled for 2028**\
 `Tyler Robinson, the 23-year-old man who prosecutors say assassinated Mr. Kirk last year in Utah, faces a potential death penalty if he is convicted.`\
 https://www.nytimes.com/2026/11/09/us/charlie-kirk-murder-trial-date.html
-
-**James Gunn and Peter Safran Are Out as Heads of DC Studios**\
-`Skydance, which acquired DC Studios’ parent company weeks ago, announced that the duo would step away from their roles after four years.`\
-https://www.nytimes.com/2026/11/09/us/dc-studios-james-gunn-peter-safran-skydance.html
 
