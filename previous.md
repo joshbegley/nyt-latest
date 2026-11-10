@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/10/opinion/politics/democrats-south-elections.ht
 `Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
 https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.html
 
-**Restaurant Review: Ursa in Tucson, Ariz.**\
-`At Ursa, the chef Aaron Lopez exalts the beauty of the Southwest in all its glory.`\
-https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.html
-
