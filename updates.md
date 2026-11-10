@@ -1,3 +1,7 @@
+**Live Updates: Hegseth to Speak Amid Impeachment Drive**\
+`Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **The A.I. Spy Thriller**\
 `We look into what’s going on at Nvidia.`\
 https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
