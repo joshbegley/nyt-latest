@@ -1,3 +1,11 @@
+**Restaurant Review: El Califa de León in New York**\
+`On the bright side, there are more great options than ever in New York.`\
+https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-nyc.html
+
+**Will N.Y. Democrats Use Their Supermajority to Push Hochul to the Left?**\
+`Democratic socialists have expanded their political influence in New York, potentially setting up a showdown with the state’s moderate governor over raising taxes.`\
+https://www.nytimes.com/2026/11/10/nyregion/supermajority-new-york.html
+
 **Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
 `Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
 https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 **Gaza Floods Kill 4**\
 `At least four people from one family died and thousands lost their shelters when a storm battered overcrowded tent camps. Israel says Gaza will not be rebuilt until Hamas disarms.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
-
-**Passenger Arrested in Connection to Possible Homicide on Cruise Ship**\
-`The F.B.I. is investigating the death of a female passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
-https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
