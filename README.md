@@ -2,7 +2,7 @@
 `Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
 https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
 
-**Nvidia Hires Wachtell Lipton to Investigate C.E.O.’s Affair With Chinese Executive**\
+**Nvidia Hires Wachtell Lipton to Investigate CEO Jensen Huang’s Affair With Chinese Executive**\
 `Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
 https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
 
