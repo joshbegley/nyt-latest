@@ -1,3 +1,19 @@
+**New Research Compares Long-Term Relief From 21 Antidepressants**\
+`In the meta-analysis, a few drugs stood out for offering greater effectiveness over time.`\
+https://www.nytimes.com/2026/11/10/well/mind/antidepressants-efficacy-work.html
+
+**The Evening: House Republicans Shelve Hegseth Impeachment**\
+`Plus, worrisome inflation numbers. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/10/briefing/hegseth-impeachment-inflation.html
+
+**Representative María Elvira Salazar Wins Re-Election in Florida**\
+`Ms. Salazar, a Republican, had released an ad in which she said the White House had “gone too far” on immigration amid worries of Hispanic voter backlash within her party.`\
+https://www.nytimes.com/2026/11/10/us/politics/florida-house-27-salazar-rodriguez.html
+
+**Release of Meghan Markle’s Father Is Revoked After Ankle Monitor Removal**\
+`Thomas Markle Sr., who is facing charges of possession of child sexual abuse images, had his house arrest rescinded by a federal judge in Florida.`\
+https://www.nytimes.com/2026/11/10/us/thomas-markle-ankle-monitor-jail.html
+
 **Did AI Make This NYC Gay Bar?**\
 `Before it can serve its first vodka soda, a Hell’s Kitchen bar has come under snarky and unsparing criticism for what some see as its lack of sidewalk appeal.`\
 https://www.nytimes.com/2026/11/10/style/pride-bar-hells-kitchen-ai.html
