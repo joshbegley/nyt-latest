@@ -1,3 +1,7 @@
+**Data Show Households Still Managing to Meet Their Monthly Debts**\
+`The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
+https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
+
 **Designers Find Inspiration in Folklore, Symbols and Rituals**\
 `Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
 https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/video/podcasts/100000011274204/everything-you-need-to-kn
 **NYT Connections Answers for November 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
 https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
-
-**Today’s Wordle Hints for November 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
-https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
