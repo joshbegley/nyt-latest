@@ -1,3 +1,7 @@
+**Data Show Households Still Managing to Meet Their Monthly Debts**\
+`The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
+https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
+
 **Designers Find Inspiration in Folklore, Symbols and Rituals**\
 `Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
 https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
