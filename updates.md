@@ -1,3 +1,11 @@
+**It’s Time for Israelis to Throw Out Their Trump**\
+`The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
+https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html
+
+**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at a N.Y.C. Landmark.**\
+`Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
+https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
+
 **Firing of Voice of America Chief Was Illegal, Appeals Court Rules**\
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html

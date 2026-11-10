@@ -1,3 +1,11 @@
+**It’s Time for Israelis to Throw Out Their Trump**\
+`The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
+https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html
+
+**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at a N.Y.C. Landmark.**\
+`Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
+https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
+
 **Firing of Voice of America Chief Was Illegal, Appeals Court Rules**\
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-a
 **He’s From ‘Blexas,’ I Can Tell**\
 `Ahead of last week’s midterm elections, Dallas rapper Lil Texxan released “Talafreako (Ken Paxton Diss),” a shouty freestyle celebrating the Texas Democrat James Talarico, who defeated the Trump-backed Republican Ken Paxton in the state’s Senate race. Our music critic Jon Caramanica unpacks how the track captures grassroots political sentiment in a novel way.`\
 https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tell.html
-
-**Fired by Hegseth, New Member of Congress Supports His Ouster**\
-`Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
-https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
-
-**Inflation Continues to Challenge U.S. Economy**\
-`An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
-https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
 
