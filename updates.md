@@ -1,3 +1,7 @@
+**Live Updates: Hegseth Speaks Amid Impeachment Drive**\
+`Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
 `The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
 https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
