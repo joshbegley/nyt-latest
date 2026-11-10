@@ -1,3 +1,39 @@
+**Australia Unveils New A.I. Regulator After OpenAI Breach**\
+`The government is also considering changes to criminal law to penalize companies that develop models that “engage in harmful conduct.”`\
+https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medicare.html
+
+**U.S. Forces in Europe Face Uncertainty as Pentagon Reviews Troop Levels**\
+`A U.S. Army unit in Germany is not sure what’s next as the Pentagon considers a major drawdown of forces in Europe.`\
+https://www.nytimes.com/2026/11/10/world/europe/us-troops-germany-pentagon-review-army.html
+
+**Secrets, Chips and Spycraft: The Nvidia C.E.O. Scandal**\
+`Despite knowing about the relationship between one of the president’s closest allies and a woman later identified by U.S. officials as a Chinese spy, the Trump administration took no action.`\
+https://www.nytimes.com/2026/11/10/podcasts/the-daily/nvidia-jensen-huang-affair-chinese-spy-trump.html
+
+**The Jensen Huang Affair**\
+`Nvidia’s C.E.O., Jensen Huang, admitted to having an affair with a suspected Chinese corporate spy. Everything that means for him and the A.I. industry, and what happens next.`\
+https://www.nytimes.com/2026/11/10/podcasts/hardfork-jensen-huang-spy-affair.html
+
+**Everything You Need To Know About the Jensen Huang Spy Story**\
+`Nvidia CEO Jensen Huang has admitted to an affair with Alice Huang, a top executive at the data center company Megaspeed, whom the U.S. government alleges is a Chinese spy. In a special midweek Hard Fork, the hosts talk with Stephen Witt, author of the Jensen Huang biography The Thinking Machine, about the scandal and what it could mean for A.I. and the global economy.`\
+https://www.nytimes.com/video/podcasts/100000011274204/everything-you-need-to-know-about-the-jensen-huang-spy-story.html
+
+**NYT Connections Answers for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
+
+**Today’s Wordle Hints for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
+
+**138,000 New York City Students Were Homeless Last School Year**\
+`The number of children without permanent homes dropped from a record high, but advocates warned that the crisis had probably not eased.`\
+https://www.nytimes.com/2026/11/10/nyregion/new-york-city-students-homeless.html
+
+**NYT Strands Hints for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
+
 **Hegseth Faces Impeachment Charges, and Why Dead Birds Are Washing Up in California**\
 `Plus, “the best writer you’ve never heard of.”`\
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
