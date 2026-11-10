@@ -1,3 +1,35 @@
+**Dudamel on Tour: 17 Days, 4 Countries and a Cast of 147**\
+`Performances in six European cities were the capstone of an extravagant welcome to Gustavo Dudamel from the New York Philharmonic.`\
+https://www.nytimes.com/2026/11/10/arts/music/dudamel-on-tour-17-days-4-countries-and-a-cast-of-147.html
+
+**Word of the Day: paraphernalia**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/10/learning/word-of-the-day-paraphernalia.html
+
+**Book Review: ‘The Intangibles,’ by Nick Paumgarten**\
+`In “The Intangibles,” the journalist Nick Paumgarten traces his long love of hockey from childhood to the beer leagues.`\
+https://www.nytimes.com/2026/11/10/books/review/nick-paumgarten-the-intangibles.html
+
+**A Ballet Star on Doing Theater: Same Work, Different Instrument**\
+`Natalia Osipova is playing another ballerina, Lydia Lopokova, in “The Standard of Living” about John Maynard Keynes in London.`\
+https://www.nytimes.com/2026/11/10/arts/dance/natalia-osipova-the-standard-of-living-lydia-lopokova.html
+
+**The Bad Plus Ends Like It Began: ‘Throwing Down’ Every Night**\
+`For more than two decades, the Bad Plus has explored how a jazz group with no leader could sound and what rooms it could play.`\
+https://www.nytimes.com/2026/11/10/arts/music/a-jazz-experiment-ends-like-it-began-throwing-down-every-night.html
+
+**A Guide to the Best Beaches in Vietnam**\
+`A longtime international correspondent and beach connoisseur based in Ho Chi Minh City has scouted the country’s waterfront resorts.`\
+https://www.nytimes.com/2026/11/10/travel/vietnam-coast-beaches-resorts.html
+
+**They Were Married for Decades Before the Parkinson’s Began. Then Came the Visions.**\
+`After 50 years of marriage, John found himself caring for his wife, an art curator grappling with Parkinson’s.`\
+https://www.nytimes.com/2026/11/10/opinion/living-with-a-visionary-parkinsons-animation.html
+
+**Living With a Visionary**\
+`After 50 years of marriage, John found himself caring for his wife, an art curator grappling with Parkinson’s.`\
+https://www.nytimes.com/video/opinion/100000010825547/living-with-a-visionary.html
+
 **Thinking Like a Supermajority**\
 `Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
 https://www.nytimes.com/video/opinion/100000011267106/thinking-like-a-supermajority.html
@@ -165,32 +197,4 @@ https://www.nytimes.com/2026/11/09/crosswords/puzzle-mania-faq-2026.html
 **Skims Offers Refunds For $150 ‘Junk’ Advent Calendar After Backlash**\
 `Customers who bought the item from Skims, Kim Kardashian’s brand, were disappointed when they unwrapped what looked like the detritus in their handbags.`\
 https://www.nytimes.com/2026/11/09/style/skims-advent-calendar-refunds.html
-
-**Isabel Letelier, a Chilean Voice for Human Rights, Has Died**\
-`Her husband, a prominent figure in the government of Salvador Allende, was assassinated in Washington in 1976. She was 94.`\
-https://www.nytimes.com/2026/11/09/obituaries/isabel-letelier-dead.html
-
-**Dining Beneath the Redwoods at a Former Commune in California**\
-`To celebrate its latest cohort of artists in residence, Salmon Creek Farm hosted an afternoon meal and cider pressing.`\
-https://www.nytimes.com/2026/11/09/t-magazine/salmon-creek-farm-artist-residency-lunch.html
-
-**Scientists Sue to Block Trump Administration Changes at National Science Foundation**\
-`Researchers say the administration’s actions would “devastate” social science.`\
-https://www.nytimes.com/2026/11/09/us/politics/national-science-foundation-funding-lawsuit.html
-
-**The Biggest Surprise of Election Night**\
-`For the columnist Jamelle Bouie, the story of the midterm elections was a “transformation of the partisan landscape in the Deep South.” In a live conversation for “The Opinions,” he breaks down the most surprising wins across the South and explains how the organizing power of Black voters is reshaping the region’s politics.`\
-https://www.nytimes.com/video/opinion/100000011268016/the-biggest-surprise-of-election-night.html
-
-**How Much Did Data Centers Influence Election Results?**\
-`In the aftermath of this week’s midterm elections, the New York Times Opinion columnist Ezra Klein spoke on the “Hard Fork” podcast about how data centers might have influenced results.`\
-https://www.nytimes.com/video/technology/100000011273113/how-much-did-data-centers-influence-election-results.html
-
-**The Nvidia Affair**\
-`An illicit relationship between the C.E.O. and an alleged Chinese spy is putting the spotlight on a murky ecosystem of companies smuggling A.I. chips into China.`\
-https://www.nytimes.com/2026/11/09/world/nvidia-affair-jensen-huang-russell-brand.html
-
-**Michael Bloomberg Marries Diana Taylor**\
-`Ms. Taylor was known as the unofficial first lady of New York City while Mr. Bloomberg was mayor. It is the second marriage for both.`\
-https://www.nytimes.com/2026/11/09/nyregion/michael-bloomberg-married-diana-taylor.html
 
