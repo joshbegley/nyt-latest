@@ -1,3 +1,7 @@
+**Hegseth Faces Impeachment Charges, and Why Dead Birds Are Washing Up in California**\
+`Plus, “the best writer you’ve never heard of.”`\
+https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
+
 **Live Updates: Status Check on Inflation’s Trajectory**\
 `The Consumer Price Index for October will show how price pressures are trickling through the U.S. economy.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october

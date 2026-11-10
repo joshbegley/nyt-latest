@@ -1,3 +1,39 @@
+**Australia Unveils New A.I. Regulator After OpenAI Breach**\
+`The government is also considering changes to criminal law to penalize companies that develop models that “engage in harmful conduct.”`\
+https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medicare.html
+
+**U.S. Forces in Europe Face Uncertainty as Pentagon Reviews Troop Levels**\
+`A U.S. Army unit in Germany is not sure what’s next as the Pentagon considers a major drawdown of forces in Europe.`\
+https://www.nytimes.com/2026/11/10/world/europe/us-troops-germany-pentagon-review-army.html
+
+**Secrets, Chips and Spycraft: The Nvidia C.E.O. Scandal**\
+`Despite knowing about the relationship between one of the president’s closest allies and a woman later identified by U.S. officials as a Chinese spy, the Trump administration took no action.`\
+https://www.nytimes.com/2026/11/10/podcasts/the-daily/nvidia-jensen-huang-affair-chinese-spy-trump.html
+
+**The Jensen Huang Affair**\
+`Nvidia’s C.E.O., Jensen Huang, admitted to having an affair with a suspected Chinese corporate spy. Everything that means for him and the A.I. industry, and what happens next.`\
+https://www.nytimes.com/2026/11/10/podcasts/hardfork-jensen-huang-spy-affair.html
+
+**Everything You Need To Know About the Jensen Huang Spy Story**\
+`Nvidia CEO Jensen Huang has admitted to an affair with Alice Huang, a top executive at the data center company Megaspeed, whom the U.S. government alleges is a Chinese spy. In a special midweek Hard Fork, the hosts talk with Stephen Witt, author of the Jensen Huang biography The Thinking Machine, about the scandal and what it could mean for A.I. and the global economy.`\
+https://www.nytimes.com/video/podcasts/100000011274204/everything-you-need-to-know-about-the-jensen-huang-spy-story.html
+
+**NYT Connections Answers for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
+
+**Today’s Wordle Hints for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
+
+**138,000 New York City Students Were Homeless Last School Year**\
+`The number of children without permanent homes dropped from a record high, but advocates warned that the crisis had probably not eased.`\
+https://www.nytimes.com/2026/11/10/nyregion/new-york-city-students-homeless.html
+
+**NYT Strands Hints for November 11, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
+https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
+
 **Hegseth Faces Impeachment Charges, and Why Dead Birds Are Washing Up in California**\
 `Plus, “the best writer you’ve never heard of.”`\
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
@@ -157,40 +193,4 @@ https://www.nytimes.com/2026/11/10/t-magazine/walking-across-england-coast-to-co
 **Book Review: ‘Don’t Stop Snowing,’ by Gabriel Bump**\
 `“Don’t Stop Snowing,” by Gabriel Bump, follows a young man through a winter of self-doubt, ruptured relationships and recovery.`\
 https://www.nytimes.com/2026/11/10/books/review/gabriel-bump-dont-stop-snowing.html
-
-**Does Rinsing With Cold Water Really Make Your Hair Shiny?**\
-`We asked dermatologists about this decades-old trick.`\
-https://www.nytimes.com/2026/11/10/well/cold-water-shiny-hair.html
-
-**How to Pack for a Walk Across England**\
-`Watch Taseer pack for his two-week trek.`\
-https://www.nytimes.com/video/t-magazine/100000011230981/how-to-pack-for-a-walk-across-england.html
-
-**Book Review: ‘Rome’s Age of Revolution,’ by Tim Whitmarsh**\
-`In “Rome’s Age of Revolution,” Tim Whitmarsh argues that movements advanced by Augustus and Paul the Apostle, far from being at odds, were two sides of the same imperial coin.`\
-https://www.nytimes.com/2026/11/10/books/review/romes-age-of-revolution-tim-whitmarsh.html
-
-**Turkey Promotes Itself as a Climate Champion. Not Everyone Agrees.**\
-`Critics say some of the country’s environmental policies run counter to the image it is offering as host of a United Nations climate summit.`\
-https://www.nytimes.com/2026/11/10/world/europe/turkey-erdogan-cop31-climate.html
-
-**A Makeover for the ‘Cat in the Hat’? How About That.**\
-`To bring Dr. Seuss’s accessorized feline back to the big screen, animators gave the beloved character a vibrant look.`\
-https://www.nytimes.com/2026/11/10/movies/cat-in-the-hat-reboot.html
-
-**A French House Filled With Bright Ideas**\
-`In newly magnetic Marseille, a family of designers have figured out how to manufacture desire.`\
-https://www.nytimes.com/2026/11/10/t-magazine/axel-chay-marseille-home.html
-
-**Haaretz Expands US Presence Amid Israel’s Move to the Right**\
-`Haaretz has more than doubled the size of its American bureau, including hiring correspondents to cover beats like national politics and young American Jews.`\
-https://www.nytimes.com/2026/11/10/business/media/haaretz-us-expansion.html
-
-**Our Critic Calls ‘Fish Story’ the Greatest Seafaring Epic in Contemporary Art**\
-`The photographer Allan Sekula explored the hidden world of global shipping from the perspective of dockworkers and sailors in this celebrated series debuting in New York.`\
-https://www.nytimes.com/2026/11/10/arts/design/our-critic-calls-fish-story-the-greatest-seafaring-epic-in-contemporary-art.html
-
-**El Niño Is Hitting California Hard**\
-`Rising sea levels and violent weather are testing residents in some of the most picturesque cities along the Pacific Coast.`\
-https://www.nytimes.com/2026/11/10/climate/el-nino-california-flooding-fires-kelvin-wave.html
 
