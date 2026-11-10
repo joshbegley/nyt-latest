@@ -1,3 +1,7 @@
+**The A.I. Spy Thriller**\
+`We look into what’s going on at Nvidia.`\
+https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
+
 **Australia Unveils New A.I. Regulator After OpenAI Breach**\
 `The government is also considering changes to criminal law to penalize companies that develop models that “engage in harmful conduct.”`\
 https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medicare.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/theater/ms-blakk-for-president-review-mccrane
 **To Understand My Place in England, I Decided to Walk Across It**\
 `A lone traveler finds fellowship among the ramblers as he hikes 192 miles, moving from coast to coast.`\
 https://www.nytimes.com/2026/11/10/t-magazine/walking-across-england-coast-to-coast.html
-
-**Book Review: ‘Don’t Stop Snowing,’ by Gabriel Bump**\
-`“Don’t Stop Snowing,” by Gabriel Bump, follows a young man through a winter of self-doubt, ruptured relationships and recovery.`\
-https://www.nytimes.com/2026/11/10/books/review/gabriel-bump-dont-stop-snowing.html
 
