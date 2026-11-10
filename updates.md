@@ -1,3 +1,15 @@
+**Ask DealBook**\
+`Andrew Ross Sorkin wants to hear your questions`\
+https://www.nytimes.com/2026/11/10/briefing/ask-dealbook.html
+
+**Northeast Storm To Bring Cold Temperatures, But Heavy Snow Is Unlikely**\
+`A brewing storm system could bring some snow to the mountains, but most cities across the region will probably see rain, forecasters said.`\
+https://www.nytimes.com/2026/11/10/weather/noreaster-snow-cold.html
+
+**From Climate Activism to the House of Representatives**\
+`William Lawrence, a co-founder of the Sunrise Movement, flipped a seat in Michigan for the Democrats.`\
+https://www.nytimes.com/2026/11/10/climate/william-lawrence-sunrise-congress.html
+
 **On the Defense: Takeaways from Hegseth’s Remarks on Articles of Impeachment**\
 `Defense Secretary Pete Hegseth broke a monthslong drought of press briefings to defend his record in office.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html

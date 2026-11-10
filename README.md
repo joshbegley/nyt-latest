@@ -1,3 +1,11 @@
+**Anthropic’s Giant IPO Will Tie It Closer to Nvidia**\
+`Nvidia planned to invest $10 billion in Anthropic alongside its initial public offering, the largest of the new financial commitments from several giants to the A.I. company.`\
+https://www.nytimes.com/2026/11/10/business/anthropic-ipo-nvidia.html
+
+**Amazon and Google Will See Big Paydays from Anthropic IPO**\
+`Amazon and Google are the largest investors in the A.I. start-up, and their shares could gain hundreds of billions of dollars in value.`\
+https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-google-amazon.html
+
 **Ask DealBook**\
 `Andrew Ross Sorkin wants to hear your questions`\
 https://www.nytimes.com/2026/11/10/briefing/ask-dealbook.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
 `In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
 https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
 
-**Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia Leader**\
+**Despite Denial, Trump Was Told on Trip to China About Spying on Nvidia’s Jensen Huang**\
 `Before Jensen Huang boarded Air Force One en route to Beijing, the president was reminded of intelligence showing that he was in a relationship with a woman believed to be a Chinese spy.`\
 https://www.nytimes.com/2026/11/10/us/politics/trump-china-trip-nvidia.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/10/opinion/trump-stephen-miller-republicans.html
 **A Luscious Egg Dish for Any Time of Day**\
 `Soft, sautéed spinach, turmeric-scented onions and runny fried eggs star in nargesi esfenaj.`\
 https://www.nytimes.com/2026/11/10/dining/a-luscious-egg-dish-for-any-time-of-day.html
-
-**Stolen Picasso Works Are Recovered From Behind Toolboxes in a French House**\
-`The six etchings were missing for over a month after a robbery at a fine-dining restaurant in the French Riviera.`\
-https://www.nytimes.com/2026/11/10/arts/stolen-picassos-recovered-france.html
-
-**Trump Says Nvidia Chief Was Unaware Chinese Woman Was Suspected Spy**\
-`President Trump on Monday said the Nvidia C.E.O. Jensen Huang told him he did not know that the businesswoman he was having an affair with was an operative for China’s government.`\
-https://www.nytimes.com/video/technology/100000011274337/nvidia-jensen-huang-affair-spy-trump-china.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
