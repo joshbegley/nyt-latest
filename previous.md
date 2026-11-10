@@ -170,13 +170,13 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.
 `It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
 https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
 
-**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
-`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
-https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
-
 **ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
 `A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
 https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
+
+**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
+`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
+https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
 
 **What Do You Think Life Will Look Like in the Year 2050?**\
 `Robot butlers. Underwater homes. Root beer perfume. The Times asked kids across the nation to weigh in with their predictions for the future. What are yours?`\

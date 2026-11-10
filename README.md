@@ -1,3 +1,7 @@
+**What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/11/10/world/thomas-massie-impeachment-hegseth.html
+
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
 https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
@@ -110,13 +114,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
-`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
-
 **JD Vance Trots Out an Old Scapegoat**\
 `Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
+
+**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
+`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -170,13 +174,13 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.
 `It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
 https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
 
-**ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
-`A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
-https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
-
 **Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
 `Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
 https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
+
+**ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
+`A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
+https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
 
 **What Do You Think Life Will Look Like in the Year 2050?**\
 `Robot butlers. Underwater homes. Root beer perfume. The Times asked kids across the nation to weigh in with their predictions for the future. What are yours?`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/world/americas/mexico-chihuahua-cia.html
 **Zoo Elephants Have a Right to Liberty, Group Tells Hawaii’s Top Court**\
 `At a private school that counts Barack Obama as an alumnus, the State Supreme Court heard arguments about whether two elephants in the Honolulu Zoo should be released to an animal sanctuary.`\
 https://www.nytimes.com/2026/11/10/us/elephants-honolulu-zoo-hawaii-court.html
-
-**Advent Calendars Go Beyond Chocolate, From Pickles to Protein Powder**\
-`Snacks, drinks and health foods are helping fuel a $2.6 billion industry that serves up a treat a day, from cheese to booze to dog biscuits.`\
-https://www.nytimes.com/2026/11/10/dining/advent-calendars-food-drinks-snacks.html
 
