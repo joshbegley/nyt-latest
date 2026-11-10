@@ -1,3 +1,23 @@
+**Late Night Weighs In on Trump’s Hopes for the Afterlife**\
+`The president told “60 Minutes” that he doesn’t want to go to hell. “America was like, ‘Then where have we been living the past three years?’” Jimmy Fallon said.`\
+https://www.nytimes.com/2026/11/10/arts/television/late-night-trump-midterms.html
+
+**Mamdani Has Been a Fierce Opponent of ICE. A Judge Handed Him a Setback.**\
+`A federal judge ordered Mayor Zohran Mamdani to comply with a federal subpoena that seeks information about migrants with serious criminal records at a city shelter.`\
+https://www.nytimes.com/2026/11/10/nyregion/ice-mamdani-migrants-court-ruling.html
+
+**NYT Spelling Bee Answers for November 10, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/10/crosswords/spelling-bee-forum.html
+
+**It’s a Hip-Hop High School. Can It Help Students Succeed?**\
+`In the South Bronx, the first program of its kind offers the same classes as any high school. Only these classes are dope.`\
+https://www.nytimes.com/2026/11/10/nyregion/bronx-school-hip-hop.html
+
+**NYC Roller Skaters Take Over the Streets on Wednesday Nights**\
+`While New York City focuses its street safety efforts on bikes and cars, a boisterous weekly gathering of roller skaters is expanding its reach.`\
+https://www.nytimes.com/2026/11/10/nyregion/nyc-roller-skating-wednesday-night.html
+
 **Saudi Arabia Sentences Mother to 100 Lashes for Birth Outside Marriage**\
 `The kingdom’s promised reforms don’t always match the realities of its justice system. Unmarried women, particularly foreign workers, face unique perils.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/saudi-arabia-lashing-sentence-kenyan-woman.html
