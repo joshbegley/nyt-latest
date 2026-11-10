@@ -1,3 +1,7 @@
+**The A.I. Spy Thriller**\
+`We look into what’s going on at Nvidia.`\
+https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
+
 **The Path to a Democratic Supermajority**\
 `Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
 https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.html
