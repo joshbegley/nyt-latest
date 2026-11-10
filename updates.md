@@ -1,5 +1,9 @@
 **Do I Need to Dress Sexier?**\
 `A slinky suiting brand got me thinking.`\
+https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
+
+**Do I Need to Dress Sexier?**\
+`A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/how-to-dress-sexy.html
 
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\

@@ -1,6 +1,6 @@
 **Do I Need to Dress Sexier?**\
 `A slinky suiting brand got me thinking.`\
-https://www.nytimes.com/2026/11/10/style/how-to-dress-sexy.html
+https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
 
 **The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
