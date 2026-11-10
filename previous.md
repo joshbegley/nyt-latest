@@ -1,3 +1,7 @@
+**Gary Fisketjon Has Died. He Edited Ellis, Tartt, McInerney and McCarthy.**\
+`A champion of slow, methodical editing and long working relationships with writers, he was regarded as one of the best of his generation. He was 72.`\
+https://www.nytimes.com/2026/11/09/obituaries/gary-fisketjon-dead.html
+
 **Trump-Era Funding Cuts Driving Young Scientists From U.S. Research**\
 `Under Trump, new Ph.D. enrollments are down, funding is on the decline and many budding researchers are reconsidering their careers.`\
 https://www.nytimes.com/interactive/2026/11/09/science/trump-funding-cuts-young-scientists-phd-research.html

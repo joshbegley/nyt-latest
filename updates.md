@@ -1,3 +1,7 @@
+**Gary Fisketjon Has Died. He Edited Ellis, Tartt, McInerney and McCarthy.**\
+`A champion of slow, methodical editing and long working relationships with writers, he was regarded as one of the best of his generation. He was 72.`\
+https://www.nytimes.com/2026/11/09/obituaries/gary-fisketjon-dead.html
+
 **Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
 `Despite its win, the administration signaled it had adjusted construction plans in the national park with an aim to “preserving the unique landscape and public access.”`\
 https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
