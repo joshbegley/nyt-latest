@@ -1,3 +1,7 @@
+**On the Defense: Takeaways from Hegseth’s Remarks on Articles of Impeachment**\
+`Defense Secretary Pete Hegseth broke a monthslong drought of press briefings to defend his record in office.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html
+
 **US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
 `The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
 https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/us/politics/hegseth-impeachment-explainer-mas
 **A Parisian Townhouse Is Transformed into an Art Nouveau Museum**\
 `Hector Guimard’s Hôtel Mezzara is being prepared for its future life as a museum dedicated to Art Nouveau.`\
 https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.html
-
-**End the Filibuster. Then Democrats Can Govern.**\
-`How should the Democrats govern? On “The Ezra Klein Show,” the political strategist Adam Jentleson and Ezra Klein discuss the case for abolishing the filibuster.`\
-https://www.nytimes.com/video/opinion/100000011267108/end-the-filibuster-then-democrats-can-govern.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

@@ -1,3 +1,7 @@
+**On the Defense: Takeaways from Hegseth’s Remarks on Articles of Impeachment**\
+`Defense Secretary Pete Hegseth broke a monthslong drought of press briefings to defend his record in office.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html
+
 **US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
 `The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
 https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
