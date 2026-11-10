@@ -1,3 +1,11 @@
+**A Parisian Townhouse Is Transformed into an Art Nouveau Museum**\
+`Hector Guimard’s Hôtel Mezzara is being prepared for its future life as a museum dedicated to Art Nouveau.`\
+https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.html
+
+**End the Filibuster. Then Democrats Can Govern.**\
+`How should the Democrats govern? On “The Ezra Klein Show,” the political strategist Adam Jentleson and Ezra Klein discuss the case for abolishing the filibuster.`\
+https://www.nytimes.com/video/opinion/100000011267108/end-the-filibuster-then-democrats-can-govern.html
+
 **Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
 `The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
 https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html

@@ -1,3 +1,11 @@
+**A Parisian Townhouse Is Transformed into an Art Nouveau Museum**\
+`Hector Guimard’s Hôtel Mezzara is being prepared for its future life as a museum dedicated to Art Nouveau.`\
+https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.html
+
+**End the Filibuster. Then Democrats Can Govern.**\
+`How should the Democrats govern? On “The Ezra Klein Show,” the political strategist Adam Jentleson and Ezra Klein discuss the case for abolishing the filibuster.`\
+https://www.nytimes.com/video/opinion/100000011267108/end-the-filibuster-then-democrats-can-govern.html
+
 **Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
 `The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
 https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html
@@ -178,19 +186,11 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.
 `It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
 https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
 
-**ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
-`A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
-https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
-
 **Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
 `Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
 https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
 
-**What Do You Think Life Will Look Like in the Year 2050?**\
-`Robot butlers. Underwater homes. Root beer perfume. The Times asked kids across the nation to weigh in with their predictions for the future. What are yours?`\
-https://www.nytimes.com/2026/11/10/learning/what-do-you-think-life-will-look-like-in-the-year-2050.html
-
-**The Man Who Helped the C.I.A. Secretly Operate in Mexico**\
-`President Claudia Sheinbaum drew a firm line barring U.S. forces from operating on Mexican soil. But in a northern border state, one local partner quietly helped the agency build a foothold.`\
-https://www.nytimes.com/2026/11/10/world/americas/mexico-chihuahua-cia.html
+**ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
+`A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
+https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
 

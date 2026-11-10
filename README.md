@@ -1,3 +1,11 @@
+**Failure of Billionaire Tax Strikes Blow to Progressive Agenda**\
+`A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
+https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
+
+**The Impeachment Charges Against Defense Secretary Pete Hegseth, Explained**\
+`The charges accuse the defense secretary of illegally starting the war with Iran, directing extrajudicial killings and ignoring laws meant to minimize civilian casualties.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-impeachment-explainer-massie.html
+
 **A Parisian Townhouse Is Transformed into an Art Nouveau Museum**\
 `Hector Guimard’s Hôtel Mezzara is being prepared for its future life as a museum dedicated to Art Nouveau.`\
 https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.html
@@ -126,13 +134,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
-`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
-
 **JD Vance Trots Out an Old Scapegoat**\
 `Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
+
+**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
+`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-ursa-tucson-arizona.
 **Martha Stewart Said Sorry. Other Rich People Should, Too.**\
 `It’s been two years of rich people going full Roman emperor — unleashed, unapologetic and, often, punching down.`\
 https://www.nytimes.com/2026/11/10/opinion/rich-people-martha-stewart-midterms.html
-
-**Why Nearly 2,000 Dead Seabirds Have Washed Up on the California Coast**\
-`Scientists say El Niño is exacerbating conditions by causing Pacific Ocean temperatures to rise.`\
-https://www.nytimes.com/2026/11/10/us/california-sea-birds-dead-el-nino.html
-
-**ICE Hides Detainee Locations From Lawyers and Family Under New Policy**\
-`A nursing professor in California is among thousands of immigrants excluded from a public detainee database under a new policy to expedite their deportation by keeping their location hidden.`\
-https://www.nytimes.com/2026/11/10/us/ice-detainees-hidden-location-deportation.html
 
