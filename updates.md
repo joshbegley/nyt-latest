@@ -1,3 +1,7 @@
+**Live Updates: Inflation Continues to Challenge U.S. Economy**\
+`An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
+https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
 https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
