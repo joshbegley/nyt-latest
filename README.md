@@ -1,3 +1,7 @@
+**U.S. Received $12 Billion From Venezuela’s Oil, Report Shows**\
+`The workings of a U.S.-controlled bank account shed light on how Washington manages Venezuelan revenue after capturing the country’s president.`\
+https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
+
 **Nvidia’s Game of Thrones**\
 `Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
 https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
@@ -94,13 +98,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
-`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
-
 **JD Vance Trots Out an Old Scapegoat**\
 `Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
+
+**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
+`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/world/americas/pope-leo-argentina-visit-franc
 **Voters See Corruption for What It Is. Do Republicans?**\
 `Having bought a populist vision, the American people expected a populist president.`\
 https://www.nytimes.com/2026/11/10/opinion/politics/trump-corruption-republicans.html
-
-**What BlackBerries and Horseshoes Reveal About Our Presidents**\
-`The photographer Peter Adams visited 15 presidential libraries, chronicling individual objects that offered insights about the men who have sat in the White House.`\
-https://www.nytimes.com/2026/11/10/us/politics/presidential-library-artifacts-photo-book.html
 
