@@ -1,3 +1,7 @@
+**Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
+`Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
+https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
+
 **No Good Choices on Iran**\
 `As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
 https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is
 `A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
 
-**The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
+**100000011275105**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
 https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
 **Passenger Arrested in Connection to Possible Homicide on Cruise Ship**\
 `The F.B.I. is investigating the death of a female passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
 https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
-
-**Is Gen Z Drinking Less?**\
-`We look at the numbers.`\
-https://www.nytimes.com/2026/11/10/briefing/is-gen-z-drinking-less.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
