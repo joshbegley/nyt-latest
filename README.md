@@ -1,3 +1,11 @@
+**Rep. Ken Calvert Wins House Battle Between Two California Republicans**\
+`After redistricting, Mr. Calvert ended up running against and defeating Representative Young Kim.`\
+https://www.nytimes.com/2026/11/09/us/california-house-40-kim-calvert.html
+
+**California Voters Reject Prop. 40 Billionaire Tax Measure**\
+`The outcome could hinder the wealth tax movement in California and across the country in future years.`\
+https://www.nytimes.com/2026/11/09/us/california-billionaire-tax-prop-40.html
+
 **Gary Fisketjon Has Died. He Edited Ellis, Tartt, McInerney and McCarthy.**\
 `A champion of slow, methodical editing and long working relationships with writers, he was regarded as one of the best of his generation. He was 72.`\
 https://www.nytimes.com/2026/11/09/obituaries/gary-fisketjon-dead.html
@@ -86,7 +94,7 @@ https://www.nytimes.com/2026/11/09/travel/amtrak-guns-workers-union.html
 `Everything you need to know about this year’s special print puzzle section.`\
 https://www.nytimes.com/2026/11/09/crosswords/puzzle-mania-faq-2026.html
 
-**Kim Kardashian’s $150 Skims Advent Calendar Disappoints Customers**\
+**Skims Offers Refunds For $150 ‘Junk’ Advent Calendar After Backlash**\
 `Customers who bought the item from Skims, Kim Kardashian’s brand, were disappointed when they unwrapped what looked like the detritus in their handbags.`\
 https://www.nytimes.com/2026/11/09/style/skims-advent-calendar-refunds.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
 **At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
 `At 87, Senfronia Thompson of Houston is poised to become the first woman, and Black lawmaker, to lead the Texas House.`\
 https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
-
-**Every Wedding Has a Budget. What’s the Story Behind Yours?**\
-`We want to hear from couples who married in the last five years about how they approached their wedding budget: where they splurged and saved and how they brought their vision to life.`\
-https://www.nytimes.com/2026/11/09/style/wedding-cost-budget.html
-
-**Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
-`Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
-https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
 
