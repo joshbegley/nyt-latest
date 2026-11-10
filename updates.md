@@ -1,3 +1,11 @@
+**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at an N.Y.C. Landmark.**\
+`Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
+https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
+
+**How Times Reporters Uncovered the Nvidia C.E.O. Scandal**\
+`Nvidia’s chief executive, Jensen Huang, admitted over the weekend to having a romantic relationship with a tech executive who was identified by the U.S. as a Chinese spy. The Times’s Tripp Mickle joined Natalie Kitroeff on “The Daily” to explain the implications of the scandal.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011275758/how-timess-reporters-uncovered-the-nvidia-ceo-scandal.html
+
 **U.S. Marshals Detain Man Accused of 3 Rapes in Central Park**\
 `Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
 https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html

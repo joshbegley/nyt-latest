@@ -6,7 +6,7 @@ https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-es
 `The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
 https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html
 
-**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at a N.Y.C. Landmark.**\
+**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at an N.Y.C. Landmark.**\
 `Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
 https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
 
@@ -38,8 +38,8 @@ https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-nova
 `As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
 https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
 
-**How Times’s Reporters Uncovered the Nvidia C.E.O Scandal**\
-`New York Times reporters first began writing stories about Alice Huang, a tech executive who had gained direct, personal access to Nvidia’s chief executive, Jensen Huang, in October 2025. Last month, they reported that she had been identified as a Chinese spy by the U.S. Over the weekend, Mr. Huang admitted to having an affair with her. Tripp Mickle joins Natalie Kitroeff on “The Daily” to unpack the scandal and its implications.`\
+**How Times Reporters Uncovered the Nvidia C.E.O. Scandal**\
+`Nvidia’s chief executive, Jensen Huang, admitted over the weekend to having a romantic relationship with a tech executive who was identified by the U.S. as a Chinese spy. The Times’s Tripp Mickle joined Natalie Kitroeff on “The Daily” to explain the implications of the scandal.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011275758/how-timess-reporters-uncovered-the-nvidia-ceo-scandal.html
 
 **Anthropic’s Giant IPO Will Tie It Closer to Nvidia**\
