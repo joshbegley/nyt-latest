@@ -1,3 +1,7 @@
+**Alina Habba Loses $50 Million Contract That Enraged Trump**\
+`The former Trump lawyer had signed the contract with a family company weeks before the president gave the company’s patriarch a pardon.`\
+https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
+
 **Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
 `The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
 https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
