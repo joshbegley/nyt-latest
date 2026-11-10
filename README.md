@@ -1,3 +1,15 @@
+**In Trump’s Washington, Prosecutors Can’t Count on Grand Juries to Take Their Side**\
+`In the past two weeks, prosecutors in the capital have failed to secure indictments in at least three cases, an acceleration of the problems the Justice Department has had with grand juries.`\
+https://www.nytimes.com/2026/11/09/us/politics/doj-trump-grand-jury-indictments.html
+
+**‘Here There Are Blueberries’: Beyond These Frames, the Holocaust’s Horrors**\
+`At the center of this docudrama are the archivists researching a photo album depicting the daily lives of the officers and others at the Auschwitz death camp.`\
+https://www.nytimes.com/2026/11/09/theater/here-there-are-blueberries-review-holocaust.html
+
+**NYT Crossword Answers for Nov. 10, 2026**\
+`There’s been a pronounced shift in the collaboration between Sam Koperwas and Jeff Chen.`\
+https://www.nytimes.com/2026/11/09/crosswords/daily-puzzle-2026-11-10.html
+
 **Rep. Ken Calvert Wins House Battle Between Two California Republicans**\
 `After redistricting, Mr. Calvert ended up running against and defeating Representative Young Kim.`\
 https://www.nytimes.com/2026/11/09/us/california-house-40-kim-calvert.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-eur
 **Democrats Demand Answers on Trump’s A.I. Policy Amid Spy Plot**\
 `Congressional leaders raise concerns in a letter as Nvidia investigates its chief executive’s affair with a suspected Chinese spy.`\
 https://www.nytimes.com/2026/11/09/us/politics/democrats-trump-ai-nvidia.html
-
-**Progressives Defied Their Party and Won Big. They Still Feel Ignored.**\
-`As Democrats prepare to take power in Congress, some centrists are brushing off the victories of left-wing candidates. The left is pushing back.`\
-https://www.nytimes.com/2026/11/09/us/politics/progressive-wins-midterms.html
-
-**Two Arrested After Car Crashes Into Sign Near White House**\
-`The driver of a silver sedan was arrested after crashing his car into a placard just north of the White House. The authorities also arrested a second man who jumped a barricade at a nearby park.`\
-https://www.nytimes.com/2026/11/09/us/politics/white-house-car-crash.html
-
-**At 87, Senfronia Thompson is Poised to Become the First Woman to Lead the Texas House**\
-`At 87, Senfronia Thompson of Houston is poised to become the first woman, and Black lawmaker, to lead the Texas House.`\
-https://www.nytimes.com/2026/11/09/us/senfronia-thompson-ms-t-texas-house.html
 
