@@ -1,3 +1,7 @@
+**Nvidia’s Game of Thrones**\
+`Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
+https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
+
 **Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
 `The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
 https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/opinion/politics/trump-corruption-republicans
 **What BlackBerries and Horseshoes Reveal About Our Presidents**\
 `The photographer Peter Adams visited 15 presidential libraries, chronicling individual objects that offered insights about the men who have sat in the White House.`\
 https://www.nytimes.com/2026/11/10/us/politics/presidential-library-artifacts-photo-book.html
-
-**You May All Go to Hell, and Tommy Lee Jones Will Go to Texas**\
-`The private actor enjoys life with his horses in the Texas Hill Country, removed from the show-business fray. But he’s back on TV for the first time in decades, in “The Lowdown.”`\
-https://www.nytimes.com/2026/11/10/arts/television/tommy-lee-jones-the-lowdown-texas.html
 

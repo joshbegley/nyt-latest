@@ -1,4 +1,8 @@
 **Live Updates: Hegseth Defends Himself Amid Impeachment Drive**\
+`Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by “one disgruntled and defeated congressman.” At the Pentagon, Mr. Hegseth vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
+**Live Updates: Hegseth Defends Himself Amid Impeachment Drive**\
 `Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
