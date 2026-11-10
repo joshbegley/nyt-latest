@@ -1,3 +1,15 @@
+**In Trump’s Washington, Prosecutors Can’t Count on Grand Juries to Take Their Side**\
+`In the past two weeks, prosecutors in the capital have failed to secure indictments in at least three cases, an acceleration of the problems the Justice Department has had with grand juries.`\
+https://www.nytimes.com/2026/11/09/us/politics/doj-trump-grand-jury-indictments.html
+
+**‘Here There Are Blueberries’: Beyond These Frames, the Holocaust’s Horrors**\
+`At the center of this docudrama are the archivists researching a photo album depicting the daily lives of the officers and others at the Auschwitz death camp.`\
+https://www.nytimes.com/2026/11/09/theater/here-there-are-blueberries-review-holocaust.html
+
+**NYT Crossword Answers for Nov. 10, 2026**\
+`There’s been a pronounced shift in the collaboration between Sam Koperwas and Jeff Chen.`\
+https://www.nytimes.com/2026/11/09/crosswords/daily-puzzle-2026-11-10.html
+
 **Rep. Ken Calvert Wins House Battle Between Two California Republicans**\
 `After redistricting, Mr. Calvert ended up running against and defeating Representative Young Kim.`\
 https://www.nytimes.com/2026/11/09/us/california-house-40-kim-calvert.html
