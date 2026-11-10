@@ -1,3 +1,7 @@
+**Americans Aren’t Left or Right. They’re Heterodox.**\
+`How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
+https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-right-theyre-heterodox.html
+
 **How to Make Journalism Fun, With Maury Povich**\
 `Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
 https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html

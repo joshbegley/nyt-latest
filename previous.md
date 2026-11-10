@@ -1,3 +1,7 @@
+**Americans Aren’t Left or Right. They’re Heterodox.**\
+`How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
+https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-right-theyre-heterodox.html
+
 **How to Make Journalism Fun, With Maury Povich**\
 `Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
 https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/science/sulfuric-acid-elixir-of-life.html
 **Dudamel on Tour: 17 Days, 4 Countries and a Cast of 147**\
 `Performances in six European cities were the capstone of an extravagant welcome to Gustavo Dudamel from the New York Philharmonic.`\
 https://www.nytimes.com/2026/11/10/arts/music/dudamel-on-tour-17-days-4-countries-and-a-cast-of-147.html
-
-**Word of the Day: paraphernalia**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/10/learning/word-of-the-day-paraphernalia.html
 
