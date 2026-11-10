@@ -1,3 +1,11 @@
+**Tony Butala, Member of the Lettermen, Has Died**\
+`His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
+https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
+
+**Weil Gotshal Partners Vote to Shut Down After Nearly a Century**\
+`The large law firm, known for its powerful bankruptcy practice, started coming apart as prominent partners moved to other firms.`\
+https://www.nytimes.com/2026/11/10/business/weil-gotshal-shut-down.html
+
 **In Interview, Sonia Gandhi Recalls Love and Loss in India**\
 `In a new memoir and interview, the Italian-born woman who married into the Nehru-Gandhi dynasty recalls her political battles and the assassinations of her husband and mother-in-law.`\
 https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html

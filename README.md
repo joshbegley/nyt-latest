@@ -1,3 +1,11 @@
+**The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
+`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
+https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
+
+**Is Your Chatbot Conscious, or Just Code?**\
+`Readers respond to an Opinion guest essay about whether artificial intelligence can be conscious. Also: Justice in California; the White House ballroom.`\
+https://www.nytimes.com/2026/11/10/opinion/ai-consciousness.html
+
 **Tony Butala, Member of the Lettermen, Has Died**\
 `His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
 https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
@@ -83,7 +91,7 @@ https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tel
 https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
 
 **America’s Measles Problem Has Reached Endemic Level**\
-`An panel of scientific experts will convene on Tuesday to evaluate the United State’s measles elimination status. But genetic data already shows the virus is once again endemic.`\
+`A panel of scientific experts will convene on Tuesday to evaluate the United States’ measles elimination status. But genetic data already shows the virus is once again endemic.`\
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 **Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
-
-**Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
-`Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
-https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
-
-**The A.I. Spy Thriller**\
-`We look into what’s going on at Nvidia.`\
-https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

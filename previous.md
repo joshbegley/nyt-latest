@@ -1,3 +1,11 @@
+**Tony Butala, Member of the Lettermen, Has Died**\
+`His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
+https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
+
+**Weil Gotshal Partners Vote to Shut Down After Nearly a Century**\
+`The large law firm, known for its powerful bankruptcy practice, started coming apart as prominent partners moved to other firms.`\
+https://www.nytimes.com/2026/11/10/business/weil-gotshal-shut-down.html
+
 **In Interview, Sonia Gandhi Recalls Love and Loss in India**\
 `In a new memoir and interview, the Italian-born woman who married into the Nehru-Gandhi dynasty recalls her political battles and the assassinations of her husband and mother-in-law.`\
 https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 **The A.I. Spy Thriller**\
 `We look into what’s going on at Nvidia.`\
 https://www.nytimes.com/2026/11/10/briefing/nvidia-spy-scandal.html
-
-**Australia Unveils New A.I. Regulator After OpenAI Breach**\
-`The government is also considering changes to criminal law to penalize companies that develop models that “engage in harmful conduct.”`\
-https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medicare.html
-
-**U.S. Forces in Europe Face Uncertainty as Pentagon Reviews Troop Levels**\
-`A U.S. Army unit in Germany is not sure what’s next as the Pentagon considers a major drawdown of forces in Europe.`\
-https://www.nytimes.com/2026/11/10/world/europe/us-troops-germany-pentagon-review-army.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
