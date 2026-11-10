@@ -1,3 +1,11 @@
+**Trump-Era Funding Cuts Driving Young Scientists From U.S. Research**\
+`Under Trump, new Ph.D. enrollments are down, funding is on the decline and many budding researchers are reconsidering their careers.`\
+https://www.nytimes.com/interactive/2026/11/09/science/trump-funding-cuts-young-scientists-phd-research.html
+
+**Iran War Unexpectedly Drove Down Carbon Emissions This Year**\
+`It’s the first drop in planet-warming pollution since the pandemic in 2020. But researchers cautioned that the decline could be short-lived.`\
+https://www.nytimes.com/2026/11/09/climate/global-emissions-iran-war.html
+
 **Exxon Strikes Preliminary Deal to Return to Venezuela**\
 `The agreement brings the biggest U.S. oil company a step closer to pumping oil again in Venezuela, nearly two decades after it left the country.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/exxon-mobil-venezuela-oil-deal.html
