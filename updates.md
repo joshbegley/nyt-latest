@@ -1,3 +1,19 @@
+**Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
+`The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
+https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
+
+**David Walliams, UK Celebrity, Is Accused of Sexual Misconduct**\
+`The Guardian and ITV News published allegations from multiple women against the comedian and writer, who had fought a weekslong court battle to keep the claims private. He denies the accusations.`\
+https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guardian-itv-uk.html
+
+**Israel’s New Parliament Gathers With No Government in Sight**\
+`Dozens of first-time lawmakers are heading to the Knesset, where the opposition, led by Gadi Eisenkot, has a majority and is expected to begin pulling some levers of power.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.html
+
+**What Trump Has Said About the Hegseth Impeachment Effort**\
+`The president has defended his defense secretary and called the impeachment drive the effort of “a stone cold loser.”`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
+
 **Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment amid fears that the A.I. boom may not be sustainable.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html

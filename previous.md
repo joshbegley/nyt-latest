@@ -1,3 +1,19 @@
+**Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
+`The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
+https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
+
+**David Walliams, UK Celebrity, Is Accused of Sexual Misconduct**\
+`The Guardian and ITV News published allegations from multiple women against the comedian and writer, who had fought a weekslong court battle to keep the claims private. He denies the accusations.`\
+https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guardian-itv-uk.html
+
+**Israel’s New Parliament Gathers With No Government in Sight**\
+`Dozens of first-time lawmakers are heading to the Knesset, where the opposition, led by Gadi Eisenkot, has a majority and is expected to begin pulling some levers of power.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.html
+
+**What Trump Has Said About the Hegseth Impeachment Effort**\
+`The president has defended his defense secretary and called the impeachment drive the effort of “a stone cold loser.”`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
+
 **Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment amid fears that the A.I. boom may not be sustainable.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/11/10/us/politics/presidential-library-artifacts-ph
 **You May All Go to Hell, and Tommy Lee Jones Will Go to Texas**\
 `The private actor enjoys life with his horses in the Texas Hill Country, removed from the show-business fray. But he’s back on TV for the first time in decades, in “The Lowdown.”`\
 https://www.nytimes.com/2026/11/10/arts/television/tommy-lee-jones-the-lowdown-texas.html
-
-**The Rise of the Gen Z Cinephile**\
-`Teens and 20-somethings are flocking to blockbusters, indies and classics alike, buoying U.S. theaters. Covid isolation and social media have a lot to do with it.`\
-https://www.nytimes.com/2026/11/10/movies/movie-theaters-gen-z.html
-
-**Who Is ‘Human Grade’ Dog Food Really For?**\
-`What are you really getting when you spend a Chanel handbag’s worth every year on “human grade” dog food?`\
-https://www.nytimes.com/2026/11/10/magazine/human-grade-dog-food.html
-
-**This Family Vacation Home Was Built From an Old Barbershop**\
-`Over several years, a couple cobbled together buildings from various sites to create the riverside cottage of their dreams.`\
-https://www.nytimes.com/2026/11/10/realestate/this-family-vacation-home-was-built-from-an-old-virginia-barbershop.html
-
-**4 Auteurs, 4 Experiments Outside the Countries They’re Best Known for**\
-`This season, filmmakers from Japan, Russia, Romania and Germany have chosen to venture abroad for a variety of creative and political reasons.`\
-https://www.nytimes.com/2026/11/10/movies/all-of-a-sudden-fjord-minotaur-the-dreamed-adventure.html
 
