@@ -1,3 +1,19 @@
+**A Photographer and His Young Son Create a Fresh Take on Still Lifes**\
+`The photographic collection called Nino + Dad represents a multigenerational collaboration that offers a fresh take on still lifes.`\
+https://www.nytimes.com/2026/11/10/arts/design/design-nino-and-son-photographs-still-lifes.html
+
+**How a Villa Near Lake Como Became a Crowd Pleaser**\
+`The family treasure was sumptuous enough to host a pope in the 17th century, but for guests today, air-conditioning would enhance the appeal.`\
+https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
+
+**Where to Eat With Broadway Star Jessica Vosk**\
+`When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
+https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
+
+**Trump Told Biden in a 2021 Letter, ‘I Know How Much You Love the American People’**\
+`The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
+https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
+
 **Corey Lewandowski, Trump Ally, Is a Top Target for Democrats After the Election**\
 `The former Trump administration adviser has been urged to preserve his records, as part of Democrats’ bid to rein in the Department of Homeland Security.`\
 https://www.nytimes.com/2026/11/10/us/politics/democrats-corey-lewandowski-investigations.html
@@ -177,16 +193,4 @@ https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachme
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
-
-**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
-`October’s Consumer Price Index report showed a broadening of price pressures that has stoked concerns about the Federal Reserve’s grip on inflation.`\
-https://www.nytimes.com/2026/11/10/business/economy/inflation-economy-cpi.html
-
-**Americans Aren’t Left or Right. They’re Heterodox.**\
-`How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
-https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-right-theyre-heterodox.html
-
-**How to Make Journalism Fun, With Maury Povich**\
-`Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
-https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html
 
