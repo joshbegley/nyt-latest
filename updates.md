@@ -1,3 +1,7 @@
+**House Republicans Pick Jim Jordan, a Close Trump Ally, as Their Next Leader**\
+`In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
+https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
+
 **Alina Habba Loses $50 Million Contract That Enraged Trump**\
 `The former Trump lawyer had signed the contract with a family company weeks before the president gave the company’s patriarch a pardon.`\
 https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html

@@ -1,5 +1,17 @@
+**US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
+`The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
+https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
+
+**U.S. Marshals Detain Man Tied to 3 Rapes in Central Park**\
+`Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
+https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
+
+**My Flight With King Charles**\
+`A reporter who has traveled on Air Force One with U.S. presidents flew to the Bahamas with the monarch. What was royal travel like?`\
+https://www.nytimes.com/2026/11/10/insider/king-charles-royal-flight-caribbean.html
+
 **Alina Habba Loses $50 Million Contract That Enraged Trump**\
-`The former Trump lawyer had signed the contract with a family company weeks before the president gave the company’s patriarch a pardon.`\
+`The former Trump lawyer had signed the contract with a family company weeks before the president gave the family’s patriarch a pardon.`\
 https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
 
 **Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.h
 **End the Filibuster. Then Democrats Can Govern.**\
 `How should the Democrats govern? On “The Ezra Klein Show,” the political strategist Adam Jentleson and Ezra Klein discuss the case for abolishing the filibuster.`\
 https://www.nytimes.com/video/opinion/100000011267108/end-the-filibuster-then-democrats-can-govern.html
-
-**Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
-`The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
-https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html
-
-**What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
-`Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
-https://www.nytimes.com/2026/11/10/us/thomas-massie-impeachment-hegseth.html
-
-**Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
-`Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
-https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
