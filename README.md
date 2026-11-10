@@ -1,3 +1,7 @@
+**Saudi Arabia Sentences Mother to 100 Lashes for Birth Outside Marriage**\
+`The kingdom’s promised reforms don’t always match the realities of its justice system. Unmarried women, particularly foreign workers, face unique perils.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/saudi-arabia-lashing-sentence-kenyan-woman.html
+
 **Justice Dept. Accuses Lyft of Disability Discrimination in Lawsuit**\
 `The department said Lyft and its drivers routinely deny rides to people who use stowable wheelchairs or travel with service animals. Lyft disputed the allegations.`\
 https://www.nytimes.com/2026/11/10/us/lyft-disability-lawsuit-doj.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/dining/100000011272649/bacon-egg-and-cheese-fried-
 **Sweet Potato and Cranberry Layer Cake**\
 `This towering showstopper combines a few key flavor profiles of the Thanksgiving table into one celebration-worthy centerpiece: tender, spiced sweet potato cake layered with a tart cranberry filling and finished with a torched, marshmallow-like meringue frosting.`\
 https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-layer-cake.html
-
-**Mango Pie**\
-`Salty, crumbly graham cracker crust is the perfect foundation for the golden cloud of custard that sits atop it, made tangy and rich with the addition of cream cheese and whipped cream.`\
-https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
 
