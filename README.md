@@ -1,3 +1,7 @@
+**In Interview, Sonia Gandhi Recalls Love and Loss in India**\
+`In a new memoir and interview, the Italian-born woman who married into the Nehru-Gandhi dynasty recalls her political battles and the assassinations of her husband and mother-in-law.`\
+https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html
+
 **Who Is Alice Huang, the Woman in the Middle of Nvidia’s Spy Scandal?**\
 `Alice Huang, who U.S. intelligence determined is a Chinese asset, emerged from the high-flying world of Shanghai finance to work with tech titans and obtain essential A.I. chips.`\
 https://www.nytimes.com/2026/11/10/technology/alice-huang-megaspeed-nvidia-jensen-huang.html
@@ -70,8 +74,8 @@ https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tel
 `Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
 https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
 
-**The U.S. Has Lost Its Measles-Elimination Status, Data Suggests**\
-`An international panel of scientific experts will convene on Tuesday to evaluate the status, but genetic data already shows the virus is once again endemic in the United States.`\
+**America’s Measles Problem Has Reached Endemic Level**\
+`An panel of scientific experts will convene on Tuesday to evaluate the United State’s measles elimination status. But genetic data already shows the virus is once again endemic.`\
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
@@ -155,7 +159,7 @@ https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.htm
 https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
 
 **David Walliams, UK Celebrity, Is Accused of Sexual Misconduct**\
-`The Guardian and ITV News published allegations from multiple women against the comedian and writer, who had fought a weekslong court battle to keep the claims private. He denies the accusations.`\
+`The Guardian and ITV News published claims from multiple women against the comedian and writer, who fought a weekslong court battle to keep the claims private. He denies the accusations.`\
 https://www.nytimes.com/2026/11/10/world/europe/david-walliams-allegations-guardian-itv-uk.html
 
 **Israeli Opposition Pushes for Oct. 7 Inquiry at First Session of New Parliament**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medi
 **U.S. Forces in Europe Face Uncertainty as Pentagon Reviews Troop Levels**\
 `A U.S. Army unit in Germany is not sure what’s next as the Pentagon considers a major drawdown of forces in Europe.`\
 https://www.nytimes.com/2026/11/10/world/europe/us-troops-germany-pentagon-review-army.html
-
-**Secrets, Chips and Spycraft: The Nvidia C.E.O. Scandal**\
-`Despite knowing about the relationship between one of the president’s closest allies and a woman later identified by U.S. officials as a Chinese spy, the Trump administration took no action.`\
-https://www.nytimes.com/2026/11/10/podcasts/the-daily/nvidia-jensen-huang-affair-chinese-spy-trump.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
