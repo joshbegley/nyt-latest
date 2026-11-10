@@ -1,3 +1,7 @@
+**Firing of Voice of America Chief Was Illegal, Appeals Court Rules**\
+`The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
+https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
+
 **Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
 `The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
 https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
