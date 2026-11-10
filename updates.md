@@ -1,3 +1,15 @@
+**Mayor Orders Review of How Suspect in Jogger’s Death Was Hired by School**\
+`Families were shaken at the school where Sayed Mohassib worked as an aide. He was fired on Monday, days after he was charged in the death of the jogger, Katie Suarez.`\
+https://www.nytimes.com/2026/11/09/nyregion/katie-suarez-sayed-mohassib-nyc.html
+
+**Mamdani Meets Top Union Leaders to Find a Left-Wing Hopeful for 2028**\
+`Mayor Zohran Mamdani spoke glowingly about Representative Alexandria Ocasio-Cortez, but is working on an early Plan B in case she decides against running for president.`\
+https://www.nytimes.com/2026/11/09/nyregion/mamdani-presidential-candidate.html
+
+**Lawsuit Accuses Former Trump Campaign Aide of Taking Money From Qatari Interests**\
+`The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated the Foreign Agent Registration Act. He has denied ever taking such funds.`\
+https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
+
 **Nvidia Chief Told Trump He Did Not Know Chinese Woman Was Suspected Spy**\
 `President Trump told reporters Monday that he believed Jensen Huang’s account and said he did not recall receiving a briefing warning him about Mr. Huang’s liaison.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-jensen-huang-spy.html
