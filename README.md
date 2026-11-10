@@ -1,3 +1,7 @@
+**Firing of Voice of America Chief Was Illegal, Appeals Court Rules**\
+`The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
+https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
+
 **Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
 `The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
 https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tel
 **Fired by Hegseth, New Member of Congress Supports His Ouster**\
 `Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
 https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
-
-**America’s Measles Problem Has Reached Endemic Level**\
-`A panel of scientific experts will convene on Tuesday to evaluate the United States’ measles elimination status. But genetic data already shows the virus is once again endemic.`\
-https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
