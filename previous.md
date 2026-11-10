@@ -1,3 +1,7 @@
+**Live Updates: Status Check on Inflation’s Trajectory**\
+`The Consumer Price Index for October will show how price pressures are trickling through the U.S. economy.`\
+https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
 **Americans Aren’t Left or Right. They’re Heterodox.**\
 `How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
 https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-right-theyre-heterodox.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/obituaries/steve-selvin-dead.html
 **Could Alien Life Thrive in Sulfuric Acid Instead of Water?**\
 `Best known for dissolving bodies in bathtubs, sulfuric acid has the potential to be the elixir of life on other worlds.`\
 https://www.nytimes.com/2026/11/10/science/sulfuric-acid-elixir-of-life.html
-
-**Dudamel on Tour: 17 Days, 4 Countries and a Cast of 147**\
-`Performances in six European cities were the capstone of an extravagant welcome to Gustavo Dudamel from the New York Philharmonic.`\
-https://www.nytimes.com/2026/11/10/arts/music/dudamel-on-tour-17-days-4-countries-and-a-cast-of-147.html
 

@@ -1,3 +1,7 @@
+**Live Updates: Status Check on Inflation’s Trajectory**\
+`The Consumer Price Index for October will show how price pressures are trickling through the U.S. economy.`\
+https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
 **Americans Aren’t Left or Right. They’re Heterodox.**\
 `How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
 https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-right-theyre-heterodox.html

@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/11/10/climate/el-nino-california-flooding-fires-kel
 `Steve Selvin has died. To understand his significance, try to wrap your head around the Monty Hall Problem.`\
 https://www.nytimes.com/2026/11/10/obituaries/steve-selvin-dead.html
 
-**Could Alien Life Thrive in Sulfuric Acid Instead of Water?**\
-`Best known for dissolving bodies in bathtubs, sulfuric acid has the potential to be the elixir of life on other worlds.`\
-https://www.nytimes.com/2026/11/10/science/sulfuric-acid-elixir-of-life.html
-
