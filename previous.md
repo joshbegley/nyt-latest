@@ -66,8 +66,8 @@ https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-ma
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 
-**JD Vance and the Conservatism of Fools**\
-`The vice president would rather trot out an old scapegoat than accept blame for his party’s midterm debacle.`\
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
 https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\

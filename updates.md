@@ -1,3 +1,7 @@
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
+
 **Australia Unveils New A.I. Regulator After OpenAI Breach**\
 `The government is also considering changes to criminal law to penalize companies that develop models that “engage in harmful conduct.”`\
 https://www.nytimes.com/2026/11/10/world/australia/ai-regulator-openai-hack-medicare.html
