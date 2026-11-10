@@ -1,5 +1,5 @@
 **China’s Trade Surplus Passes $1 Trillion at Record Pace**\
-`China’s exports exceeded imports by $1 trillion in the first 10 months of this year, reaching that milestone one month earlier than last year.`\
+`China’s factories are finding eager buyers worldwide, but the export boom is raising concerns about its impact on trading partner nations.`\
 https://www.nytimes.com/2026/11/09/business/china-trade-surplus-trillion.html
 
 **In Trump’s Washington, Prosecutors Can’t Count on Grand Juries to Take Their Side**\
