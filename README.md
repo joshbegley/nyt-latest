@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-ca
 
 **What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
 `Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
-https://www.nytimes.com/2026/11/10/world/thomas-massie-impeachment-hegseth.html
+https://www.nytimes.com/2026/11/10/us/thomas-massie-impeachment-hegseth.html
 
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
