@@ -1,3 +1,11 @@
+**Trump-Era Funding Cuts Driving Young Scientists From U.S. Research**\
+`Under Trump, new Ph.D. enrollments are down, funding is on the decline and many budding researchers are reconsidering their careers.`\
+https://www.nytimes.com/interactive/2026/11/09/science/trump-funding-cuts-young-scientists-phd-research.html
+
+**Iran War Unexpectedly Drove Down Carbon Emissions This Year**\
+`It’s the first drop in planet-warming pollution since the pandemic in 2020. But researchers cautioned that the decline could be short-lived.`\
+https://www.nytimes.com/2026/11/09/climate/global-emissions-iran-war.html
+
 **Exxon Strikes Preliminary Deal to Return to Venezuela**\
 `The agreement brings the biggest U.S. oil company a step closer to pumping oil again in Venezuela, nearly two decades after it left the country.`\
 https://www.nytimes.com/2026/11/09/business/energy-environment/exxon-mobil-venezuela-oil-deal.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/style/wedding-cost-budget.html
 **Review: Pam Tanowitz Fits in at Paul Taylor Dance by Being Herself**\
 `Pam Tanowitz’s new work for Paul Taylor Dance Company acknowledges the context of Taylor’s work while extending Tanowitz’s own history.`\
 https://www.nytimes.com/2026/11/09/arts/dance/pam-tanowitz-paul-taylor-company-review.html
-
-**Nvidia Inquiry Focuses on Relationship Between Jensen Huang and Suspected Chinese Spy**\
-`Jensen Huang, chief executive of the powerhouse chipmaker Nvidia, told its board of his intimate relationship with a business executive who U.S. officials suspect provided information to Chinese intelligence.`\
-https://www.nytimes.com/video/us/100000011271460/nvidia-jensen-huang-china-investigation.html
-
-**France Blames Iran for Cyberattack on Refrigeration Systems**\
-`The French foreign minister said he had summoned the Iranian ambassador to France after a cyberattack on hundreds of supermarkets last month. Iran did not immediately respond.`\
-https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cyberattack.html
 

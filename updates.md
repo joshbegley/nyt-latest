@@ -1,3 +1,7 @@
+**Exxon Strikes Preliminary Deal to Return to Venezuela**\
+`The agreement brings the biggest U.S. oil company a step closer to pumping oil again in Venezuela, nearly two decades after it left the country.`\
+https://www.nytimes.com/2026/11/09/business/energy-environment/exxon-mobil-venezuela-oil-deal.html
+
 **Lawsuit Says Republican Strategist Alex Bruesewitz Took Money From Qatari Interests**\
 `The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated federal law. He has denied ever taking such funds.`\
 https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
