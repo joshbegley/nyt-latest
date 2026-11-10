@@ -1,3 +1,7 @@
+**Trump Administration Moves to Further Limit SNAP Eligibility, Affecting Millions**\
+`The rule would limit a policy that allows states to authorize participation in the program if a person qualifies for a different type of assistance.`\
+https://www.nytimes.com/2026/11/10/us/snap-eligibility-food-stamps-trump.html
+
 **U.S. Received $12 Billion From Venezuela’s Oil, Report Shows**\
 `The workings of a U.S.-controlled bank account shed light on how Washington manages Venezuelan revenue after capturing the country’s president.`\
 https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
 `Plus, “the best writer you’ve never heard of.”`\
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
 
-**Live Updates: Inflation Pressures Persist in U.S. Economy**\
+**Live Updates: Inflation Continues to Challenge U.S. Economy**\
 `The Consumer Price Index for October showed costs continue to increase across the U.S. economy.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
 
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
 
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
+
+**JD Vance Trots Out an Old Scapegoat**\
+`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
+https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/us/south-dakota-republicans.html
 **In Argentina, Pope Leo Walks in the Giant Shadow of Francis**\
 `Francis never returned to his home country after becoming pope, but the new pontiff will still be confronted with the overwhelming presence of his predecessor.`\
 https://www.nytimes.com/2026/11/10/world/americas/pope-leo-argentina-visit-francis.html
-
-**Voters See Corruption for What It Is. Do Republicans?**\
-`Having bought a populist vision, the American people expected a populist president.`\
-https://www.nytimes.com/2026/11/10/opinion/politics/trump-corruption-republicans.html
 

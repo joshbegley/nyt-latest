@@ -1,3 +1,11 @@
+**Trump Administration Moves to Further Limit SNAP Eligibility, Affecting Millions**\
+`The rule would limit a policy that allows states to authorize participation in the program if a person qualifies for a different type of assistance.`\
+https://www.nytimes.com/2026/11/10/us/snap-eligibility-food-stamps-trump.html
+
+**Live Updates: Inflation Continues to Challenge U.S. Economy**\
+`The Consumer Price Index for October showed costs continue to increase across the U.S. economy.`\
+https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
 **U.S. Received $12 Billion From Venezuela’s Oil, Report Shows**\
 `The workings of a U.S.-controlled bank account shed light on how Washington manages Venezuelan revenue after capturing the country’s president.`\
 https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
