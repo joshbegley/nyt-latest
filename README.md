@@ -1,8 +1,16 @@
+**Mayor Orders Review of How Suspect in Jogger’s Death Was Hired by School**\
+`Families were shaken at the school where Sayed Mohassib worked as an aide. He was fired on Monday, days after he was charged in the death of the jogger, Katie Suarez.`\
+https://www.nytimes.com/2026/11/09/nyregion/katie-suarez-sayed-mohassib-nyc.html
+
+**Mamdani Meets Top Union Leaders to Find a Left-Wing Hopeful for 2028**\
+`Mayor Zohran Mamdani spoke glowingly about Representative Alexandria Ocasio-Cortez, but is working on an early Plan B in case she decides against running for president.`\
+https://www.nytimes.com/2026/11/09/nyregion/mamdani-presidential-candidate.html
+
 **Nvidia Chief Told Trump He Did Not Know Chinese Woman Was Suspected Spy**\
 `President Trump told reporters Monday that he believed Jensen Huang’s account and said he did not recall receiving a briefing warning him about Mr. Huang’s liaison.`\
 https://www.nytimes.com/2026/11/09/us/politics/trump-jensen-huang-spy.html
 
-**Lawsuit Accuses Former Trump Campaign Aide of Taking Money From Qatar**\
+**Lawsuit Accuses Former Trump Campaign Aide of Taking Money From Qatari Interests**\
 `The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated the Foreign Agent Registration Act. He has denied ever taking such funds.`\
 https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/09/world/europe/france-iran-refrigerators-cybera
 **Poland in Shock After Mass Shooting in Krakow**\
 `Residents and tourists in Poland mourned the victims of a mass shooting that left at least six people dead in Krakow. The bodies of the suspect’s parents and sister were later found at his home in another town.`\
 https://www.nytimes.com/video/world/europe/100000011272018/poland-shooting-krakow-suspect-victims.html
-
-**After the Rout, Trump and Miller Are Unbowed**\
-`Readers react to the appointment of Stephen Miller as the White House chief of staff. Also: President Trump’s arch; a wish for success, not failure.`\
-https://www.nytimes.com/2026/11/09/opinion/letters/trump-stephen-miller.html
-
-**A.I. Fueled Nvidia CEO Jensen Huang’s Elite Status, but Scandal Followed**\
-`As chips became essential components for A.I., executives like Nvidia’s Jensen Huang saw their personal wealth and profiles soar in a way the industry has not experienced before.`\
-https://www.nytimes.com/2026/11/09/technology/jensen-huang-nvidia-ai-chips-scandal.html
 

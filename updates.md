@@ -1,3 +1,11 @@
+**Nvidia Chief Told Trump He Did Not Know Chinese Woman Was Suspected Spy**\
+`President Trump told reporters Monday that he believed Jensen Huang’s account and said he did not recall receiving a briefing warning him about Mr. Huang’s liaison.`\
+https://www.nytimes.com/2026/11/09/us/politics/trump-jensen-huang-spy.html
+
+**Lawsuit Accuses Former Trump Campaign Aide of Taking Money From Qatar**\
+`The suit claims that any payments to Alex Bruesewitz, a Republican strategist, could have violated the Foreign Agent Registration Act. He has denied ever taking such funds.`\
+https://www.nytimes.com/2026/11/09/business/media/lawsuit-x-strategies.html
+
 **Ohio State Suspends Fraternity After 2 Men Catch Fire at a Chapter Gathering**\
 `The police in Columbus, Ohio, were investigating the Sigma Alpha Epsilon fraternity after a video of the incident drew widespread attention online, according to the university.`\
 https://www.nytimes.com/2026/11/09/us/ohio-state-fraternity-suspended.html
