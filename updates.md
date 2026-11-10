@@ -1,3 +1,7 @@
+**Animating ‘Living With a Visionary’**\
+`The animator and director Stephen P. Neary spent three years working in a shed in his backyard to animate the Op-Docs film “Living With a Visionary.” The film is based on the poet John Mathias’s memoir, which tells the story of how, after 50 years of marriage, he found himself caring for his wife, an art curator grappling with Parkinson’s disease. Stephen reached out to John in 2022 about adapting his words into an animated short film inspired by the work of the Canadian animator Frédéric Back. As artists worry about the impact of A.I. on the animation industry, Stephen found it extremely satisfying to hand-render the thousands of drawings on overlapping layers of vellum and watercolor paper. Watch the full film.`\
+https://www.nytimes.com/video/opinion/100000011274893/animating-living-with-a-visionary.html
+
 **Kennedys Move to Block Trump’s Arch, Saying It Would Disturb J.F.K. Gravesite**\
 `The legal filing argues that the arch would cast a shadow on Kennedy family graves and disrupt the sightline from the eternal flame memorializing the former president.`\
 https://www.nytimes.com/2026/11/10/us/politics/kennedy-trump-arch-lawsuit.html
