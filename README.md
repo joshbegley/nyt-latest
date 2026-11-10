@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/11/10/arts/design/trump-washington-arch-oval-office
 `What happens now that Republicans can’t take the South for granted?`\
 https://www.nytimes.com/2026/11/10/opinion/politics/democrats-south-elections.html
 
-**Thinking Like a Supermajority**\
+**The Path to a Democratic Supermajority**\
 `Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
 https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.html
 
