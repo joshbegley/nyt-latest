@@ -1,3 +1,15 @@
+**Failure of Billionaire Tax Strikes Blow to Progressive Agenda**\
+`A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
+https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
+
+**The Impeachment Charges Against Defense Secretary Pete Hegseth, Explained**\
+`The charges accuse the defense secretary of illegally starting the war with Iran, directing extrajudicial killings and ignoring laws meant to minimize civilian casualties.`\
+https://www.nytimes.com/2026/11/10/us/politics/hegseth-impeachment-explainer-massie.html
+
+**Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
+`The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
+https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
+
 **A Parisian Townhouse Is Transformed into an Art Nouveau Museum**\
 `Hector Guimard’s Hôtel Mezzara is being prepared for its future life as a museum dedicated to Art Nouveau.`\
 https://www.nytimes.com/2026/11/10/arts/design/hotel-mezzara-paris-art-nouveau.html
