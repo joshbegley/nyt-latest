@@ -1,3 +1,11 @@
+**Pete Hegseth Dismisses Impeachment Efforts**\
+`Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
+https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
+
+**How an Italian Capital of Design Is Coping with Climate Change**\
+`Some of Milan’s best creative minds are working on solutions to floods, drought and 100-degree days.`\
+https://www.nytimes.com/2026/11/10/arts/design/milan-architecture-design-climate-change.html
+
 **A Photographer and His Young Son Create a Fresh Take on Still Lifes**\
 `The photographic collection called Nino + Dad represents a multigenerational collaboration that offers a fresh take on still lifes.`\
 https://www.nytimes.com/2026/11/10/arts/design/design-nino-and-son-photographs-still-lifes.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
 **138,000 New York City Students Were Homeless Last School Year**\
 `The number of children without permanent homes dropped from a record high, but advocates warned that the crisis had probably not eased.`\
 https://www.nytimes.com/2026/11/10/nyregion/new-york-city-students-homeless.html
-
-**NYT Strands Hints for November 11, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
-https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
-
-**Hegseth Faces Impeachment Charges, and Why Dead Birds Are Washing Up in California**\
-`Plus, “the best writer you’ve never heard of.”`\
-https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

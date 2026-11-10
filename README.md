@@ -1,3 +1,7 @@
+**Designers Find Inspiration in Folklore, Symbols and Rituals**\
+`Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
+https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
+
 **Pete Hegseth Dismisses Impeachment Efforts**\
 `Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
 https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
 **Today’s Wordle Hints for November 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
 https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
-
-**138,000 New York City Students Were Homeless Last School Year**\
-`The number of children without permanent homes dropped from a record high, but advocates warned that the crisis had probably not eased.`\
-https://www.nytimes.com/2026/11/10/nyregion/new-york-city-students-homeless.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

@@ -1,3 +1,11 @@
+**Pete Hegseth Dismisses Impeachment Efforts**\
+`Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
+https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
+
+**How an Italian Capital of Design Is Coping with Climate Change**\
+`Some of Milan’s best creative minds are working on solutions to floods, drought and 100-degree days.`\
+https://www.nytimes.com/2026/11/10/arts/design/milan-architecture-design-climate-change.html
+
 **A Photographer and His Young Son Create a Fresh Take on Still Lifes**\
 `The photographic collection called Nino + Dad represents a multigenerational collaboration that offers a fresh take on still lifes.`\
 https://www.nytimes.com/2026/11/10/arts/design/design-nino-and-son-photographs-still-lifes.html
