@@ -1,3 +1,15 @@
+**Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
+`Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
+https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
+
+**Alina Habba Mildon Loses $50 Million Contract That Enraged Trump**\
+`The former Trump lawyer had signed the contract with a family company weeks before the president gave the family’s patriarch a pardon.`\
+https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
+
+**100000011275105**\
+`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
+https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
+
 **No Good Choices on Iran**\
 `As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
 https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
