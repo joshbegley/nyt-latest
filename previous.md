@@ -1,3 +1,11 @@
+**Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
+`Najib Razak, a former prime minister of Malaysia who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
+https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
+
+**Street Style Look of the Week: A Sweatshirt at a Prep Convention**\
+`A university student’s simple ensemble — sweatshirt and bluejeans — stood out among the peacocking fashions on parade outside a Ralph Lauren fan event.`\
+https://www.nytimes.com/2026/11/10/style/street-style-look-dressed-down.html
+
 **Trump Administration Moves to Further Limit SNAP Eligibility, Affecting Millions**\
 `The rule would limit a policy that allows states to authorize participation in the program if a person qualifies for a different type of assistance.`\
 https://www.nytimes.com/2026/11/10/us/snap-eligibility-food-stamps-trump.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/10/us/elephants-honolulu-zoo-hawaii-court.html
 **Advent Calendars Go Beyond Chocolate, From Pickles to Protein Powder**\
 `Snacks, drinks and health foods are helping fuel a $2.6 billion industry that serves up a treat a day, from cheese to booze to dog biscuits.`\
 https://www.nytimes.com/2026/11/10/dining/advent-calendars-food-drinks-snacks.html
-
-**The Blue Wave Washed Across Much of America. But Not Here.**\
-`By some measures, the Republican Party grew even stronger in South Dakota, one of the states that shifted the least toward Democrats in the midterms.`\
-https://www.nytimes.com/2026/11/10/us/south-dakota-republicans.html
-
-**In Argentina, Pope Leo Walks in the Giant Shadow of Francis**\
-`Francis never returned to his home country after becoming pope, but the new pontiff will still be confronted with the overwhelming presence of his predecessor.`\
-https://www.nytimes.com/2026/11/10/world/americas/pope-leo-argentina-visit-francis.html
 
