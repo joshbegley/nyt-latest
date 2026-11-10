@@ -1,3 +1,7 @@
+**A Belgian-Congolese Designer Finds Her Muse in Music**\
+`“Hearing different kinds of rhythms and tones makes me understand shapes better,” said Kim Mupangilaï.`\
+https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-music.html
+
 **Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
 `Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
 https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.
 `An international panel of scientific experts will convene on Tuesday to evaluate the status, but genetic data already shows the virus is once again endemic in the United States.`\
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
-**Voters Backed Democrats, but Broke Right on Many Ballot Measures**\
+**In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
 `In some states that elected Democrats, voters also approved measures to restrict transgender athletes, require voter identification and toughen prison sentences.`\
 https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 **Should Chuck Schumer Be Majority Leader?**\
 `Should the New York lawmaker remain the Democrats’ Senate leader? On “The Ezra Klein Show,” the political strategist Adam Jentleson weighs in.`\
 https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-majority-leader.html
-
-**Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
-`The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
 

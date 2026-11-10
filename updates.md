@@ -1,3 +1,11 @@
+**A Belgian-Congolese Designer Finds Her Muse in Music**\
+`“Hearing different kinds of rhythms and tones makes me understand shapes better,” said Kim Mupangilaï.`\
+https://www.nytimes.com/2026/11/10/arts/design-kim-mupangilai-belgian-congolese-music.html
+
+**In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
+`In some states that elected Democrats, voters also approved measures to restrict transgender athletes, require voter identification and toughen prison sentences.`\
+https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
+
 **Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
 `Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
 https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
