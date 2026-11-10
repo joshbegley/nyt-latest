@@ -1,3 +1,15 @@
+**Designers Find Inspiration in Folklore, Symbols and Rituals**\
+`Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
+https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
+
+**What Trump Said in His Letter to Biden in 2021**\
+`The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
+https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
+
+**Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
+`Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
+https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
+
 **Pete Hegseth Dismisses Impeachment Efforts**\
 `Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
 https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html

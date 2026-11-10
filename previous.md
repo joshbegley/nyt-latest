@@ -1,3 +1,7 @@
+**Designers Find Inspiration in Folklore, Symbols and Rituals**\
+`Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
+https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
+
 **Pete Hegseth Dismisses Impeachment Efforts**\
 `Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
 https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
 `When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
 https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
 
-**Trump Told Biden in a 2021 Letter, ‘I Know How Much You Love the American People’**\
+**What Trump Said in His Letter to Biden in 2021**\
 `The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
 https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
 
@@ -150,7 +154,7 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
-**Live Updates: Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
+**Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
 `Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/crosswords/connections-companion-1249.html
 **Today’s Wordle Hints for November 11, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 11, 2026.`\
 https://www.nytimes.com/2026/11/10/crosswords/wordle-review-1971.html
-
-**138,000 New York City Students Were Homeless Last School Year**\
-`The number of children without permanent homes dropped from a record high, but advocates warned that the crisis had probably not eased.`\
-https://www.nytimes.com/2026/11/10/nyregion/new-york-city-students-homeless.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
