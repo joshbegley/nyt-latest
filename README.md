@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/11/10/arts/design/lake-como-villa-raimondi.html
 `When she’s not going viral for her “Fiddler on the Roof” performance, the singer and actress can be found eating lots of Italian food.`\
 https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
 
-**Trump Told Biden in a 2021 Letter, ‘I Know How Much You Love the American People’**\
+**What Trump Said in His Letter to Biden in 2021**\
 `The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
 https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
 
@@ -154,7 +154,7 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
-**Live Updates: Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
+**Hegseth Rejects Impeachment ‘Slander’ as House Nears Preliminary Vote**\
 `Defense Secretary Pete Hegseth dismissed the articles of impeachment as the work of a “disgruntled” Republican congressman. House G.O.P. leaders set an afternoon vote that could tie up, or kill off, the measure.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
