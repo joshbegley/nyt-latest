@@ -1,3 +1,7 @@
+**Justice Dept. Accuses Lyft of Disability Discrimination in Lawsuit**\
+`The department said Lyft and its drivers routinely deny rides to people who use stowable wheelchairs or travel with service animals. Lyft disputed the allegations.`\
+https://www.nytimes.com/2026/11/10/us/lyft-disability-lawsuit-doj.html
+
 **Quote of the Day: Draft of ‘Dream’ Speech in King’s Hand Emerges From a Desk Drawer**\
 `Quotation of the Day for Tuesday, November 10, 2026.`\
 https://www.nytimes.com/2026/11/10/pageoneplus/quote-of-the-day-draft-of-dream-speech-in-kings-hand-emerges-from-a-desk-drawer.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/dining/100000011272662/sweet-potato-and-cranberry-
 **Mango Pie**\
 `Salty, crumbly graham cracker crust is the perfect foundation for the golden cloud of custard that sits atop it, made tangy and rich with the addition of cream cheese and whipped cream.`\
 https://www.nytimes.com/video/dining/100000011272694/mango-pie.html
-
-**Supreme Court Allows Construction of Trump’s Border Wall in Big Bend**\
-`Despite its win, the administration signaled it had adjusted construction plans in the national park with an aim to “preserving the unique landscape and public access.”`\
-https://www.nytimes.com/2026/11/09/us/politics/supreme-court-border-wall-trump.html
 
