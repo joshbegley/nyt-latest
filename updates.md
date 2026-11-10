@@ -1,3 +1,11 @@
+**Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
+`The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
+https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html
+
+**What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/11/10/world/thomas-massie-impeachment-hegseth.html
+
 **Live Updates: Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october

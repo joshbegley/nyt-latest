@@ -1,3 +1,11 @@
+**Meghan Markle Makes First Public Appearance Since Her Father’s Arrest**\
+`The Duchess of Sussex accompanied her husband, Prince Harry, in Brussels at an event about online safety for children.`\
+https://www.nytimes.com/2026/11/10/world/europe/meghan-markle-brussels-speech-canceled-prince-harry.html
+
+**What to Know About Thomas Massie, Leader of Drive to Impeach Hegseth**\
+`Representative Thomas Massie, Republican of Kentucky, is retiring at the end of his term after losing to a primary challenger backed by President Trump.`\
+https://www.nytimes.com/2026/11/10/world/thomas-massie-impeachment-hegseth.html
+
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
 https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/10/learning/what-do-you-think-life-will-look-lik
 **The Man Who Helped the C.I.A. Secretly Operate in Mexico**\
 `President Claudia Sheinbaum drew a firm line barring U.S. forces from operating on Mexican soil. But in a northern border state, one local partner quietly helped the agency build a foothold.`\
 https://www.nytimes.com/2026/11/10/world/americas/mexico-chihuahua-cia.html
-
-**Zoo Elephants Have a Right to Liberty, Group Tells Hawaii’s Top Court**\
-`At a private school that counts Barack Obama as an alumnus, the State Supreme Court heard arguments about whether two elephants in the Honolulu Zoo should be released to an animal sanctuary.`\
-https://www.nytimes.com/2026/11/10/us/elephants-honolulu-zoo-hawaii-court.html
-
-**Advent Calendars Go Beyond Chocolate, From Pickles to Protein Powder**\
-`Snacks, drinks and health foods are helping fuel a $2.6 billion industry that serves up a treat a day, from cheese to booze to dog biscuits.`\
-https://www.nytimes.com/2026/11/10/dining/advent-calendars-food-drinks-snacks.html
 
