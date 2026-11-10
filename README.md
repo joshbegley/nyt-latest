@@ -1,3 +1,7 @@
+**Failed Plot to Attack U.K. Was Directed From New York Jail, U.S. Says**\
+`Prosecutors say Mohammad Baqer Saad Dawood al-Saadi, a leader of an Iranian-backed militia, passed along coded messages that were delivered to operatives working on behalf of Iran.`\
+https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html
+
 **Republicans Turn Back Effort to Impeach Hegseth**\
 `The G.O.P. banded together to shelve impeachment articles against the defense secretary, sparing him from a damaging rebuke and potential ouster.`\
 https://www.nytimes.com/2026/11/10/us/politics/house-hegseth-impeachment-vote.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/dining/jessica-vosk-broadway.html
 **What Trump Said in His Letter to Biden in 2021**\
 `The letter, which former President Joseph R. Biden Jr. details in a new book, is remarkable for a warm tone starkly at odds with his predecessor’s public comments.`\
 https://www.nytimes.com/2026/11/10/us/politics/biden-trump-letter.html
-
-**Corey Lewandowski, Trump Ally, Is a Top Target for Democrats After the Election**\
-`The former Trump administration adviser has been urged to preserve his records, as part of Democrats’ bid to rein in the Department of Homeland Security.`\
-https://www.nytimes.com/2026/11/10/us/politics/democrats-corey-lewandowski-investigations.html
 
