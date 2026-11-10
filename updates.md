@@ -1,3 +1,7 @@
+**U.S. Received $12 Billion From Venezuela’s Oil, Report Shows**\
+`The workings of a U.S.-controlled bank account shed light on how Washington manages Venezuelan revenue after capturing the country’s president.`\
+https://www.nytimes.com/2026/11/10/world/americas/us-venezuela-oil-trump.html
+
 **Live Updates: Hegseth Decries ‘Slander’ as He Seeks to Fend Off Impeachment Drive**\
 `Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by a “disgruntled” congressman and rejected accusations of abuse of power.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
