@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 `The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment amid fears that the A.I. boom may not be sustainable.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
-**Live Updates: Hegseth to Speak Amid Impeachment Drive**\
+**Live Updates: Hegseth Speaks Amid Impeachment Drive**\
 `Defense Secretary Pete Hegseth has vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
