@@ -1,3 +1,19 @@
+**US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
+`The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
+https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
+
+**U.S. Marshals Detain Man Tied to 3 Rapes in Central Park**\
+`Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
+https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
+
+**My Flight With King Charles**\
+`A reporter who has traveled on Air Force One with U.S. presidents flew to the Bahamas with the monarch. What was royal travel like?`\
+https://www.nytimes.com/2026/11/10/insider/king-charles-royal-flight-caribbean.html
+
+**Alina Habba Loses $50 Million Contract That Enraged Trump**\
+`The former Trump lawyer had signed the contract with a family company weeks before the president gave the family’s patriarch a pardon.`\
+https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
+
 **House Republicans Pick Jim Jordan, a Close Trump Ally, as Their Next Leader**\
 `In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
 https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
