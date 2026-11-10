@@ -1,3 +1,7 @@
+**Nvidia’s Game of Thrones**\
+`Analysts and investors are asking whether the chipmaker needs to consider a successor to Jensen Huang, its C.E.O., as the company is engulfed in a spy scandal.`\
+https://www.nytimes.com/2026/11/10/business/dealbook/nvidia-huang-succession.html
+
 **Who Is David Walliams, the UK Entertainer Accused of Sexual Misconduct?**\
 `The British entertainer rose to fame with the television show “Little Britain” and has published over 40 children’s books.`\
 https://www.nytimes.com/2026/11/10/world/europe/who-is-david-walliams-sexual-misconduct-allegations-uk.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
 **Live Updates: Hegseth Defends Himself Amid Impeachment Drive**\
-`Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by “one disgruntled and defeated congressman.” At the Pentagon, Mr. Hegseth vigorously defended himself against charges tied to the war in Iran and military strikes on boats accused of smuggling drugs.`\
+`Defense Secretary Pete Hegseth dismissed an impeachment effort led by a House Republican as a vendetta by a “disgruntled” congressman. At the Pentagon, he vigorously rejected charges of abuse of power tied to the war in Iran and strikes on boats accused of smuggling drugs.`\
 https://www.nytimes.com/live/2026/11/10/us/hegseth-impeachment-congress
 
 **The A.I. Spy Thriller**\
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
 `Plus, “the best writer you’ve never heard of.”`\
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
 
-**Live Updates: Status Check on Inflation’s Trajectory**\
-`The Consumer Price Index for October will show how price pressures are trickling through the U.S. economy.`\
+**Live Updates: Inflation Pressures Persist in U.S. Economy**\
+`The Consumer Price Index for October showed costs continue to increase across the U.S. economy.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
 
 **Americans Aren’t Left or Right. They’re Heterodox.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/10/opinion/politics/trump-corruption-republicans
 **What BlackBerries and Horseshoes Reveal About Our Presidents**\
 `The photographer Peter Adams visited 15 presidential libraries, chronicling individual objects that offered insights about the men who have sat in the White House.`\
 https://www.nytimes.com/2026/11/10/us/politics/presidential-library-artifacts-photo-book.html
-
-**You May All Go to Hell, and Tommy Lee Jones Will Go to Texas**\
-`The private actor enjoys life with his horses in the Texas Hill Country, removed from the show-business fray. But he’s back on TV for the first time in decades, in “The Lowdown.”`\
-https://www.nytimes.com/2026/11/10/arts/television/tommy-lee-jones-the-lowdown-texas.html
 
