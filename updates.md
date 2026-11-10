@@ -1,3 +1,7 @@
+**In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
+`Economic frustrations and anger at President Trump propelled Democratic wins, but many voters were moderates and Republicans who did not stampede left on social issues.`\
+https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
+
 **The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
 https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html

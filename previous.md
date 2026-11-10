@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
-`In some states that elected Democrats, voters also approved measures to restrict transgender athletes, require voter identification and toughen prison sentences.`\
+`Economic frustrations and anger at President Trump propelled Democratic wins, but many voters were moderates and Republicans who did not stampede left on social issues.`\
 https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 
 **Gaza Floods Kill 4**\
