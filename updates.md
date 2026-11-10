@@ -1,3 +1,15 @@
+**Quote of the Day: Draft of ‘Dream’ Speech in King’s Hand Emerges From a Desk Drawer**\
+`Quotation of the Day for Tuesday, November 10, 2026.`\
+https://www.nytimes.com/2026/11/10/pageoneplus/quote-of-the-day-draft-of-dream-speech-in-kings-hand-emerges-from-a-desk-drawer.html
+
+**‘We Used to Be a Wealthy City’: Auto Woes Slam German Towns**\
+`The downturn in the automotive industry has done away with services and benefits that residents of Friedrichshafen, a lakeside city, once enjoyed.`\
+https://www.nytimes.com/2026/11/10/business/germany-auto-industry-cities.html
+
+**From the Front Page: The Vietnam Veterans Memorial Opens to the Public on Nov. 10, 1982**\
+`The fence around the newly completed Vietnam Veterans Memorial was removed, giving the public broad access to its black granite wall inscribed with the names of Americans killed or missing in the war.`\
+https://www.nytimes.com/2026/11/10/learning/from-the-front-page-the-vietnam-veterans-memorial-opens-to-the-public-on-nov-10-1982.html
+
 **Nonprofit Opens Scholarship for Hispanic Students to Applicants of All Races**\
 `The decision by the Hispanic Scholarship Fund was part of a settlement agreement in a lawsuit claiming that the organization had discriminated against some students.`\
 https://www.nytimes.com/2026/11/09/us/hispanic-scholarship-fund-applicants-lawsuit.html
