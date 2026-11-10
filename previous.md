@@ -1,3 +1,11 @@
+**Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
+`Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
+https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
+
+**He’s From ‘Blexas,’ I Can Tell**\
+`Ahead of last week’s midterm elections, Dallas rapper Lil Texxan released “Talafreako (Ken Paxton Diss),” a shouty freestyle celebrating the Texas Democrat James Talarico, who defeated the Trump-backed Republican Ken Paxton in the state’s Senate race. Our music critic Jon Caramanica unpacks how the track captures grassroots political sentiment in a novel way.`\
+https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tell.html
+
 **Fired by Hegseth, New Member of Congress Supports His Ouster**\
 `Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
 https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/opinion/100000011273316/should-chuck-schumer-be-ma
 **Hegseth to Hold Rare News Conference as Impeachment Vote Looms**\
 `The defense secretary has indicated that he will fight accusations that he violated the Constitution and federal law.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-news-conference-impeachment-vote.html
-
-**JD Vance Trots Out an Old Scapegoat**\
-`Contra the vice president, the cause of last week’s G.O.P. debacle is a conservatism of fools.`\
-https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
-
-**Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
-`The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
-https://www.nytimes.com/2026/11/10/us/politics/democrats-elizabeth-warren-economic-plan.html
 

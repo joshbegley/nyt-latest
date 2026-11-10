@@ -1,3 +1,11 @@
+**Jemima Goldsmith, Russell Brand’s Ex-Partner, Accuses Him of Abuse**\
+`Ms. Goldsmith, a British TV producer, accused Mr. Brand of “violence” and “coercive control” during their relationship. She made the allegations publicly for the first time after his sentencing for rape and sexual assault.`\
+https://www.nytimes.com/2026/11/10/world/europe/jemima-goldsmith-russell-brand-assault.html
+
+**He’s From ‘Blexas,’ I Can Tell**\
+`Ahead of last week’s midterm elections, Dallas rapper Lil Texxan released “Talafreako (Ken Paxton Diss),” a shouty freestyle celebrating the Texas Democrat James Talarico, who defeated the Trump-backed Republican Ken Paxton in the state’s Senate race. Our music critic Jon Caramanica unpacks how the track captures grassroots political sentiment in a novel way.`\
+https://www.nytimes.com/video/podcasts/100000011274974/hes-from-blexas-i-can-tell.html
+
 **Fired by Hegseth, New Member of Congress Supports His Ouster**\
 `Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
 https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
