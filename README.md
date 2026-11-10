@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html
 `The G.O.P. banded together to shelve impeachment articles against the defense secretary, sparing him from a damaging rebuke and potential ouster.`\
 https://www.nytimes.com/2026/11/10/us/politics/house-hegseth-impeachment-vote.html
 
-**Kennedys Move to Block Trump’s Arch, Saying It Would Disturb J.F.K. Gravesite**\
+**Kennedys Join Suit to Block Trump’s Arch, Saying It Would Mar J.F.K. Gravesite**\
 `The legal filing argues that the arch would cast a shadow on Kennedy family graves and disrupt the sightline from the eternal flame memorializing the former president.`\
 https://www.nytimes.com/2026/11/10/us/politics/kennedy-trump-arch-lawsuit.html
 
@@ -103,7 +103,7 @@ https://www.nytimes.com/2026/11/10/weather/noreaster-snow-cold.html
 https://www.nytimes.com/2026/11/10/climate/william-lawrence-sunrise-congress.html
 
 **On the Defense: Takeaways From Hegseth’s Remarks on Articles of Impeachment**\
-`Defense Secretary Pete Hegseth broke a monthslong drought of press briefings to defend his record in office.`\
+`Defense Secretary Pete Hegseth broke a monthslong drought of news briefings to defend his record in office.`\
 https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html
 
 **US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
