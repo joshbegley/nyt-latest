@@ -70,7 +70,7 @@ https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaw
 `The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
 https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
 
-**U.S. Marshals Detain Man Tied to 3 Rapes in Central Park**\
+**U.S. Marshals Detain Man Accused of 3 Rapes in Central Park**\
 `Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
 https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
 

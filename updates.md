@@ -1,3 +1,7 @@
+**U.S. Marshals Detain Man Accused of 3 Rapes in Central Park**\
+`Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
+https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
+
 **Footage Shows Nvidia C.E.O. With Businesswoman Alice Huang**\
 `Photos and videos show multiple meetings between Nvidia’s C.E.O., Jensen Huang, and Alice Huang, a businesswoman who U.S. intelligence identified as a spy for China.`\
 https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-espionage-trump.html
