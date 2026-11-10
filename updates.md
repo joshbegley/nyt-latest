@@ -1,3 +1,7 @@
+**Saudi Arabia Sentences Mother to 100 Lashes for Birth Outside Marriage**\
+`The kingdom’s promised reforms don’t always match the realities of its justice system. Unmarried women, particularly foreign workers, face unique perils.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/saudi-arabia-lashing-sentence-kenyan-woman.html
+
 **Justice Dept. Accuses Lyft of Disability Discrimination in Lawsuit**\
 `The department said Lyft and its drivers routinely deny rides to people who use stowable wheelchairs or travel with service animals. Lyft disputed the allegations.`\
 https://www.nytimes.com/2026/11/10/us/lyft-disability-lawsuit-doj.html
