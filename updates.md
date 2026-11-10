@@ -1,3 +1,7 @@
+**Nonprofit Opens Scholarship for Hispanic Students to Applicants of All Races**\
+`The decision by the Hispanic Scholarship Fund was part of a settlement agreement in a lawsuit claiming that the organization had discriminated against some students.`\
+https://www.nytimes.com/2026/11/09/us/hispanic-scholarship-fund-applicants-lawsuit.html
+
 **China’s Trade Surplus Passes $1 Trillion at Record Pace**\
 `China’s factories are finding eager buyers worldwide, but the export boom is raising concerns about its impact on trading partner nations.`\
 https://www.nytimes.com/2026/11/09/business/china-trade-surplus-trillion.html
