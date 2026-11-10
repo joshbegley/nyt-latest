@@ -1,3 +1,19 @@
+**Fired by Hegseth, New Member of Congress Supports His Ouster**\
+`Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
+https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
+
+**The U.S. Has Lost Its Measles-Elimination Status, Data Suggests**\
+`An international panel of scientific experts will convene on Tuesday to evaluate the status, but genetic data already shows the virus is once again endemic in the United States.`\
+https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
+
+**Voters Backed Democrats, but Broke Right on Many Ballot Measures**\
+`In some states that elected Democrats, voters also approved measures to restrict transgender athletes, require voter identification and toughen prison sentences.`\
+https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
+
+**Gaza Floods Kill 4**\
+`At least four people from one family were killed and thousands of Palestinians lost their shelters when a storm battered overcrowded tent camps.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
+
 **Passenger Arrested in Connection to Possible Homicide on Cruise Ship Off Texas Coast**\
 `The F.B.I. is investigating the death of a passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
 https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
@@ -22,7 +38,7 @@ https://www.nytimes.com/2026/11/10/arts/stolen-picassos-recovered-france.html
 `President Trump on Monday said the Nvidia C.E.O. Jensen Huang told him he did not know that the businesswoman he was having an affair with was an operative for China’s government.`\
 https://www.nytimes.com/video/technology/100000011274337/nvidia-jensen-huang-affair-spy-trump-china.html
 
-**Failure of Billionaire Tax Strikes Blow to Progressive Agenda**\
+**Failure of California Billionaire Tax Strikes Blow to Progressive Agenda**\
 `A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
 https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
 
@@ -134,9 +150,13 @@ https://www.nytimes.com/2026/11/10/crosswords/strands-sidekick-983.html
 `Plus, “the best writer you’ve never heard of.”`\
 https://www.nytimes.com/2026/11/10/podcasts/the-headlines/pete-hegseth-impeachment-charges-birds-california-booker-prize.html
 
-**Live Updates: Inflation Continues to Challenge U.S. Economy**\
+**Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
 https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
+**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
+`October’s Consumer Price Index report showed a broadening of price pressures that has stoked concerns about the Federal Reserve’s grip on inflation.`\
+https://www.nytimes.com/2026/11/10/business/economy/inflation-economy-cpi.html
 
 **Americans Aren’t Left or Right. They’re Heterodox.**\
 `How can the Democratic Party win over voters who don’t fit neatly into one ideology? On “The Ezra Klein Show,” the political strategist Adam Jentleson says that politicians should model “heterodoxy.”`\
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/11/10/opinion/vance-trump-midterms-israel.html
 **Democrats Will Be in Charge of Congress. Elizabeth Warren Has a Plan for That.**\
 `The Massachusetts senator said it is imperative that Democrats address economic pain after running campaigns that centered cost-of-living issues.`\
 https://www.nytimes.com/2026/11/10/us/politics/democrats-elizabeth-warren-economic-plan.html
-
-**How to Prepare for Overnight Holiday Guests**\
-`Tips on what to stock and how to make visitors feel more comfortable.`\
-https://www.nytimes.com/2026/11/10/podcasts/how-to-prepare-for-overnight-holiday-guests.html
-
-**Corrections: Nov. 10, 2026**\
-`Corrections that appeared in print on Tuesday, Nov. 10, 2026.`\
-https://www.nytimes.com/2026/11/10/pageoneplus/corrections-nov-10-2026.html
-
-**Why U.S. Business Deals Are Unlikely to Get Putin to Give Any Ground**\
-`President Vladimir V. Putin of Russia has shown a willingness to endure a high price to get what he wants in Ukraine, and he sees little reason to stop fighting now, analysts say.`\
-https://www.nytimes.com/2026/11/10/world/europe/putin-trump-abu-dhabi-talks.html
-
-**A Fan-Favorite Aquarium Screen Saver Is Leaving Roku**\
-`The Aquatic Life display, a welcome moment of Zen in the frenzied world of TV streaming, will go dark on Dec. 1 after its designer pulled the license.`\
-https://www.nytimes.com/2026/11/10/business/roku-aquatic-life-screensaver-fox.html
-
-**As Fresh Air Becomes a Luxury, Many Indonesians Turn on Their Leader**\
-`In Indonesia, support for President Prabowo Subianto has collapsed as his government has failed to contain raging wildfires, compounding quality-of-life woes.`\
-https://www.nytimes.com/2026/11/10/world/asia/indonesia-wildfire-protests-prabowo.html
 

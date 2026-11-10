@@ -1,3 +1,31 @@
+**Fired by Hegseth, New Member of Congress Supports His Ouster**\
+`Nancy Lacore, who will represent a House district starting in January, was chief of the Navy reserve until last year.`\
+https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.html
+
+**The U.S. Has Lost Its Measles-Elimination Status, Data Suggests**\
+`An international panel of scientific experts will convene on Tuesday to evaluate the status, but genetic data already shows the virus is once again endemic in the United States.`\
+https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
+
+**Voters Backed Democrats, but Broke Right on Many Ballot Measures**\
+`In some states that elected Democrats, voters also approved measures to restrict transgender athletes, require voter identification and toughen prison sentences.`\
+https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
+
+**Gaza Floods Kill 4**\
+`At least four people from one family were killed and thousands of Palestinians lost their shelters when a storm battered overcrowded tent camps.`\
+https://www.nytimes.com/2026/11/10/world/middleeast/gaza-flooding-israel.html
+
+**Failure of California Billionaire Tax Strikes Blow to Progressive Agenda**\
+`A wealth tax on billionaires seemed like a political layup. The outcome of a California ballot initiative shows otherwise.`\
+https://www.nytimes.com/2026/11/10/business/billionaire-tax-progressive-agenda.html
+
+**Inflation Continues to Challenge U.S. Economy**\
+`An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
+https://www.nytimes.com/live/2026/11/10/business/inflation-cpi-report-october
+
+**Elevated Inflation Keeps Pressure on Fed to Raise Rates**\
+`October’s Consumer Price Index report showed a broadening of price pressures that has stoked concerns about the Federal Reserve’s grip on inflation.`\
+https://www.nytimes.com/2026/11/10/business/economy/inflation-economy-cpi.html
+
 **Passenger Arrested in Connection to Possible Homicide on Cruise Ship Off Texas Coast**\
 `The F.B.I. is investigating the death of a passenger on the Caribbean-bound MSC Seascape, which departed from Galveston on Monday.`\
 https://www.nytimes.com/2026/11/10/travel/homicide-investigation-cruise-ship-texas.html
