@@ -1,3 +1,7 @@
+**Nonprofit Opens Scholarship for Hispanic Students to Applicants of All Races**\
+`The decision by the Hispanic Scholarship Fund was part of a settlement agreement in a lawsuit claiming that the organization had discriminated against some students.`\
+https://www.nytimes.com/2026/11/09/us/hispanic-scholarship-fund-applicants-lawsuit.html
+
 **China’s Trade Surplus Passes $1 Trillion at Record Pace**\
 `China’s factories are finding eager buyers worldwide, but the export boom is raising concerns about its impact on trading partner nations.`\
 https://www.nytimes.com/2026/11/09/business/china-trade-surplus-trillion.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/briefing/edmund-fitzgerald-shipwreck.html
 **Boeing Will Cut 5% of Commercial Plane Employees**\
 `The company said it needed fewer workers because production was increasing more slowly than previously expected.`\
 https://www.nytimes.com/2026/11/09/business/boeing-layoff-737-max.html
-
-**Shipwreck Off Senegal Kills Dozens as Canary Islands Declare Migrant Emergency**\
-`Migrant arrivals to Europe are down overall but still claiming scores of victims, overwhelming local officials and dominating political debate.`\
-https://www.nytimes.com/2026/11/09/world/africa/senegal-migrant-boat-capsize-europe.html
 
