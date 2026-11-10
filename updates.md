@@ -1,3 +1,7 @@
+**Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
+`The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
+https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
+
 **WASHINGTON**\
 `In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
 https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html

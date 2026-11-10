@@ -1,3 +1,7 @@
+**Alina Habba Loses $50 Million Contract That Enraged Trump**\
+`The former Trump lawyer had signed the contract with a family company weeks before the president gave the company’s patriarch a pardon.`\
+https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
+
 **Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
 `The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
 https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/us/thomas-massie-impeachment-hegseth.html
 **Najib Razak, Ex-Prime Minister of Malaysia, Is Released to House Arrest**\
 `Najib Razak, who was brought down in the multibillion-dollar 1MDB scandal, was released from prison to serve the rest of his sentence in his mansion.`\
 https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-arrest.html
-
-**Street Style Look of the Week: A Sweatshirt at a Prep Convention**\
-`A university student’s simple ensemble — sweatshirt and bluejeans — stood out among the peacocking fashions on parade outside a Ralph Lauren fan event.`\
-https://www.nytimes.com/2026/11/10/style/street-style-look-dressed-down.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\

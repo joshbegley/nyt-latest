@@ -1,3 +1,7 @@
+**Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
+`The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
+https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
+
 **WASHINGTON**\
 `In choosing Mr. Jordan over Representative Steve Scalise of Louisiana, House Republicans signaled a desire for fresh leadership after their biggest election losses in decades.`\
 https://www.nytimes.com/2026/11/10/us/politics/republican-house-leader-scalise-jordan.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/asia/malaysia-najib-razak-1mdb-house-ar
 **Street Style Look of the Week: A Sweatshirt at a Prep Convention**\
 `A university student’s simple ensemble — sweatshirt and bluejeans — stood out among the peacocking fashions on parade outside a Ralph Lauren fan event.`\
 https://www.nytimes.com/2026/11/10/style/street-style-look-dressed-down.html
-
-**Trump Administration Moves to Further Limit SNAP Eligibility, Affecting Millions**\
-`The rule would limit a policy that allows states to authorize participation in the program if a person qualifies for a different type of assistance.`\
-https://www.nytimes.com/2026/11/10/us/snap-eligibility-food-stamps-trump.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
