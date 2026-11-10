@@ -1,3 +1,7 @@
+**Stolen Picasso Works Are Recovered From Behind Toolboxes in a French House**\
+`The six etchings were missing for over a month after a robbery at a fine-dining restaurant in the French Riviera.`\
+https://www.nytimes.com/2026/11/10/arts/stolen-picassos-recovered-france.html
+
 **Trump Says Nvidia Chief Was Unaware Chinese Woman Was Suspected Spy**\
 `President Trump on Monday said the Nvidia C.E.O. Jensen Huang told him he did not know that the businesswoman he was having an affair with was an operative for China’s government.`\
 https://www.nytimes.com/video/technology/100000011274337/nvidia-jensen-huang-affair-spy-trump-china.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/10/arts/design/trump-washington-arch-oval-office
 **What a Democratic South Would Mean for American Politics**\
 `What happens now that Republicans can’t take the South for granted?`\
 https://www.nytimes.com/2026/11/10/opinion/politics/democrats-south-elections.html
-
-**The Path to a Democratic Supermajority**\
-`Adam Jentleson, the president of Searchlight Institute, thinks that Democrats can win a whole lot more by embracing heterodoxy.`\
-https://www.nytimes.com/2026/11/10/opinion/ezra-klein-podcast-adam-jentleson.html
 
