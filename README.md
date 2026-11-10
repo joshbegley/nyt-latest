@@ -1,3 +1,11 @@
+**Corey Lewandowski, Trump Ally, Is a Top Target for Democrats After the Election**\
+`The former Trump administration adviser has been urged to preserve his records, as part of Democrats’ bid to rein in the Department of Homeland Security.`\
+https://www.nytimes.com/2026/11/10/us/politics/democrats-corey-lewandowski-investigations.html
+
+**Ole Miss Investigates White Students Who Made Racist Gestures in Video**\
+`Two white young women made noises imitating monkeys outside the apartment door of a group of Black students. The university called the video “deeply troubling.”`\
+https://www.nytimes.com/2026/11/10/us/ole-miss-white-students-racist-gestures-video.html
+
 **Syria Weighs Sending Troops to Aid Saudi War With Houthis**\
 `Syrian reconnaissance teams have visited Saudi Arabia and Yemen ahead of a potential deployment, but a final decision has not been made, officials said.`\
 https://www.nytimes.com/2026/11/10/world/middleeast/syria-weighs-sending-troops-to-aid-saudi-war-with-houthis.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/opinion/100000011267107/americans-arent-left-or-ri
 **How to Make Journalism Fun, With Maury Povich**\
 `Pablo and the TV legend break down billionaire investigations and mechanical birds.`\
 https://www.nytimes.com/2026/11/10/podcasts/how-to-make-journalism-fun-with-maury-povich.html
-
-**A New York Times Reporter on El Niño and His California Childhood**\
-`David Gelles, who covers a warming world for The New York Times, recalls natural disasters of his youth as he seeks to make sense of a powerful El Niño.`\
-https://www.nytimes.com/2026/11/10/insider/el-nino-california-climate.html
-
-**Nvidia’s Board Has a History of Letting Jensen Huang Get His Way**\
-`Governance experts question whether the board, which is investigating Mr. Huang’s conduct, has been too deferential as he has turned Nvidia into a global giant.`\
-https://www.nytimes.com/2026/11/10/technology/jensen-huang-nvidia-board.html
 
