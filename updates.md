@@ -1,3 +1,11 @@
+**Do I Need to Dress Sexier?**\
+`A slinky suiting brand got me thinking.`\
+https://www.nytimes.com/2026/11/10/style/how-to-dress-sexy.html
+
+**In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
+`Many Republican and moderate voters who chose Democratic candidates did not do the same on transgender and other social issues.`\
+https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
+
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
 `Economic frustrations and anger at President Trump propelled Democratic wins, but many voters were moderates and Republicans who did not stampede left on social issues.`\
 https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html

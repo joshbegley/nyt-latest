@@ -1,3 +1,7 @@
+**Do I Need to Dress Sexier?**\
+`A slinky suiting brand got me thinking.`\
+https://www.nytimes.com/2026/11/10/style/how-to-dress-sexy.html
+
 **The Lights Go Out at Novaya Gazeta, Russia’s Bravest Newspaper**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
 https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
@@ -95,7 +99,7 @@ https://www.nytimes.com/2026/11/10/us/politics/nancy-lacore-hegseth-impeachment.
 https://www.nytimes.com/2026/11/10/health/measles-united-states-elimination-rfk.html
 
 **In Midterm Elections, Voters Backed Democrats but Broke Right on Many Ballot Measures**\
-`Economic frustrations and anger at President Trump propelled Democratic wins, but many voters were moderates and Republicans who did not stampede left on social issues.`\
+`Many Republican and moderate voters who chose Democratic candidates did not do the same on transgender and other social issues.`\
 https://www.nytimes.com/2026/11/10/us/ballot-measures-democrats-republicans.html
 
 **Gaza Floods Kill 4**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/10/world/middleeast/israel-parliament-eisenkot.h
 **What Trump Has Said About the Hegseth Impeachment Effort**\
 `The president has defended his defense secretary and called the impeachment drive the effort of “a stone cold loser.”`\
 https://www.nytimes.com/2026/11/10/us/politics/trump-hegseth-impeachment.html
-
-**Anthropic Targets Valuation of Up to $1.4 Trillion for Blockbuster I.P.O.**\
-`The A.I. company’s pricing would make it one of the biggest ever public listings. It comes at a volatile moment in markets, with investors questioning the sustainability of the A.I. boom.`\
-https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-valuation-share-price.html
 
 **Inflation Continues to Challenge U.S. Economy**\
 `An official comparison with October 2025 was missing because of the government shutdown, but our calculations showed prices rose around 4 percent.`\
