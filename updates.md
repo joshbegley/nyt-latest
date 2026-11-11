@@ -1,3 +1,7 @@
+**Is the U.S. Trying to Censor Our View From Space?**\
+`Satellite imagery has helped reveal destruction in Gaza, mass graves in Ukraine, internment camps in China and the Minab school strike in Iran. Now, open-source researchers like Ollie Ballinger are finding it increasingly difficult to get access to these images. “There’s a lot to lose when our view from space is blocked,” he says. “The public deserves to see the earth without government censorship.”`\
+https://www.nytimes.com/video/opinion/100000011272884/is-the-us-trying-to-censor-our-view-from-space.html
+
 **Lots of Competition to Catholicism in Peru as Pope Returns for Visit**\
 `Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned to evangelical churches, seeking a more expressive and direct connection to God.`\
 https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
