@@ -1,3 +1,7 @@
+**Kenya Starts Countdown to End of Ebola Outbreak**\
+`The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that haver come in from Congo.`\
+https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
+
 **Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
 `Hundreds of schools in Italy were evacuated after receiving fake bomb threats, in the latest wave of disruptions to hit the continent. Threatening messages were also sent to schools in Ireland and Scotland.`\
 https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-italy-europe.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-prioritie
 **For Families of Those Who Died in the Iran War, a Veterans Day of Profound Loss**\
 `Military families are navigating feelings of grief, pride and anger, as well as seeking answers about the deaths of their loved ones.`\
 https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
-
-**Republicans Have Two Paths Out of This. They’d Better Choose Wisely.**\
-`Not since the Civil War has the party had so much up for grabs.`\
-https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
 
