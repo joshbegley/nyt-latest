@@ -1,3 +1,15 @@
+**17-Year-Old Is Arrested in Murder of 15-Year-Old in the Bronx**\
+`Javits Frimpong was killed last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
+https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
+
+**The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible. Watch the livestream.`\
+https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
+
+**Raman and the D.S.A.: Wariness, Skepticism and Hope**\
+`Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to align with all of the group’s priorities.`\
+https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
+
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
 `The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
