@@ -1,3 +1,11 @@
+**Recalling the S.S. United States as It Becomes a Florida Reef**\
+`A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
+https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memories.html
+
+**‘Ghost Soldier’ Review: As Good as His Word**\
+`Jim Caviezel stars in this action film as a former Special Forces officer facing off against a ruthless corporate behemoth razing homes in a rural Wyoming town.`\
+https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
+
 **17-Year-Old Is Arrested in Murder of 15-Year-Old in the Bronx**\
 `Javits Frimpong was killed last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
