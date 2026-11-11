@@ -1,3 +1,11 @@
+**Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
+`Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-hints-at-immigration-deal-then-reverses-hes-done-that-before.html
+
+**Court Rules That Sexual Harassment Case Against SpaceX Can Proceed**\
+`The company had argued that the case, involving eight former workers, must be resolved before an arbitrator.`\
+https://www.nytimes.com/2026/11/11/business/sexual-harassment-spacex-elon-musk.html
+
 **Protests Throw Objects at Biden During Dublin Trip**\
 `Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
 https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-stra
 **Some of the Right’s Worst Men Are Being Held Accountable**\
 `But that doesn’t mean Trumpworld misogynists are going to go away quietly.`\
 https://www.nytimes.com/2026/11/11/opinion/maga-manosphere-midterms-vibe-shift.html
-
-**Heating Costs Will Rise 7% on Average This Winter**\
-`People who use heating oil will see increases of around 70 percent because the war in Iran has greatly reduced supply of that fuel.`\
-https://www.nytimes.com/2026/11/11/business/energy-environment/winter-heating-oil-costs.html
-
-**What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
-`Unlike millennial optimism, the post-election victory lap for some younger Democratic voters is imbued with a healthy dose of skepticism.`\
-https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
 
