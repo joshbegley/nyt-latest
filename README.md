@@ -1,3 +1,7 @@
+**The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
+https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
+
 **Kenya Starts Countdown to End of Ebola Outbreak**\
 `The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that have come in from Congo.`\
 https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
 **The Moderates Who Chose Democrats. For Now.**\
 `Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
 https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
-
-**For Families of Those Who Died in the Iran War, a Veterans Day of Profound Loss**\
-`Military families are navigating feelings of grief, pride and anger, as well as seeking answers about the deaths of their loved ones.`\
-https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
 
