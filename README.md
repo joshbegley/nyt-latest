@@ -1,3 +1,7 @@
+**Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
+`Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
+https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
+
 **Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
 `Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
 https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/11/11/business/hospitals-medicaid-cuts.html
 **How Do I Create a Gallery Wall Without Spending Years Amassing Art?**\
 `To make a gallery wall that feels like it was collected over time, you must first embody the spirit of a collector.`\
 https://www.nytimes.com/2026/11/11/realestate/gallery-wall-how-to-collect.html
-
-**Kit Kemp Shares 5 Things She Wishes She’d Made**\
-`The designer Kit Kemp on five big ideas she wishes she could claim as her own.`\
-https://www.nytimes.com/2026/11/11/t-magazine/kit-kemp-favorite-things.html
-
-**‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
-`MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
-https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-movement.html
 
