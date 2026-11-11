@@ -1,3 +1,7 @@
+**The Moderates Who Chose Democrats. For Now.**\
+`Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
+https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
+
 **Could Jensen Huang’s Family Take Over Nvidia?**\
 `The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
 https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html

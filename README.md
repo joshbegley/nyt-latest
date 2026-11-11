@@ -1,3 +1,7 @@
+**Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
+`Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
+https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
+
 **Could Jensen Huang’s Family Take Over Nvidia?**\
 `The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
 https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/t-magazine/kit-kemp-favorite-things.html
 **‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
 `MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
 https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-movement.html
-
-**ICE Officer Involved in Maine Shooting Expressed Anti-Immigrant Hatred**\
-`The agent talked of foreign bloodlines, denounced noncitizens and more, according to emails obtained by The Times. His fatal shooting of a Colombian-born motorist in July remains under investigation.`\
-https://www.nytimes.com/2026/11/11/us/david-brouillette-ice-maine-shooting-anti-immigrant-hatred.html
 
