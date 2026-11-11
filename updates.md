@@ -1,3 +1,7 @@
+**Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
+`Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
+https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
+
 **Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
 `Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
 https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html

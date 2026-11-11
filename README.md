@@ -1,3 +1,7 @@
+**Jensen Huang’s Affair Puts His Wife, Lori Huang, In the Spotlight**\
+`Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
+
 **Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
 `Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
 https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
@@ -114,7 +118,7 @@ https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-prioritie
 `For these military families who lost a loved one in the war with Iran, emotions run from pride to grief to anger.`\
 https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
 
-**The Post-Trump Battle Lines Are Drawn**\
+**Republicans Have Two Paths Out of This. They’d Better Choose Wisely.**\
 `Not since the Civil War has the party had so much up for grabs.`\
 https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/11/opinion/satellite-images-us-government.html
 **Hospitals Brace for Medicaid Work Rules and Deep Funding Cuts**\
 `Health systems are racing to guide millions of patients through new eligibility hoops, slated to go into effect Jan. 1.`\
 https://www.nytimes.com/2026/11/11/business/hospitals-medicaid-cuts.html
-
-**How Do I Create a Gallery Wall Without Spending Years Amassing Art?**\
-`To make a gallery wall that feels like it was collected over time, you must first embody the spirit of a collector.`\
-https://www.nytimes.com/2026/11/11/realestate/gallery-wall-how-to-collect.html
 
