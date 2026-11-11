@@ -1,3 +1,7 @@
+**White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
+`As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
+
 **Judge Allows Trump’s Defamation Lawsuit Against the BBC to Proceed**\
 `President Trump is seeking damages from the British broadcaster over a documentary it conceded was misleadingly edited.`\
 https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-p
 **My I.R.L. Adventures in the Land of the Eagle Cam**\
 `I traveled to Big Bear Lake, home of a viral live feed of an eagle’s nest, and found very human shenanigans.`\
 https://www.nytimes.com/2026/11/11/magazine/eagle-cam-big-bear-lake.html
-
-**What We Learned About the ICE Agent in the Maine Shooting**\
-`After an ICE officer fatally shot a Colombian man in Maine, our investigative reporters Katie Benner and Alexandra Berzon examined whether ICE’s hiring surge left red flags unchecked.`\
-https://www.nytimes.com/video/us/100000011258246/what-we-learned-about-the-ice-agent-in-the-maine-shooting.html
 
