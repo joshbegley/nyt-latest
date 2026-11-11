@@ -1,3 +1,7 @@
+**Is Brain Stacking, TikTok’s New Trend, the Cure to Doomscrolling?**\
+`A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
+https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html
+
 **What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
 `Plus, a priceless find in a desk drawer.`\
 https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
