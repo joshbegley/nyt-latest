@@ -1,3 +1,19 @@
+**5 Things to Know About Democrat Scott Colom, Mississippi’s Next Senator**\
+`Mr. Colom, a prosecutor, will become the first Black senator elected from Mississippi since Reconstruction, more than 150 years ago.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-race.html
+
+**Democrats Face Backlash After Missing Hegseth Impeachment Vote**\
+`Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
+https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
+
+**Midterm Election Live Updates: Democrat Wins Mississippi Senate Seat in Historic Upset**\
+`Scott Colom, a prosecutor, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
+
+**In Major Upset, Scott Colom, a Democrat, Wins Mississippi Senate Seat**\
+`Scott Colom, a Democrat and prosecutor, is the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
+
 **Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
 `Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
@@ -177,16 +193,4 @@ https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with
 **Nvidia Scandal Unveils a Fierce Spy War Raging Behind Trump and Xi’s Diplomacy**\
 `That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
 https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
-
-**Nvidia Scandal Puts Lori Huang, Jensen Huang’s Wife, In the Spotlight**\
-`Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
-https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
-
-**Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
-`Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
-https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
-
-**Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
-`Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
-https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
 

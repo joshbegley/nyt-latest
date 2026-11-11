@@ -1,3 +1,19 @@
+**5 Things to Know About Democrat Scott Colom, Mississippi’s Next Senator**\
+`Mr. Colom, a prosecutor, will become the first Black senator elected from Mississippi since Reconstruction, more than 150 years ago.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-race.html
+
+**Democrats Face Backlash After Missing Hegseth Impeachment Vote**\
+`Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
+https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
+
+**Midterm Election Live Updates: Democrat Wins Mississippi Senate Seat in Historic Upset**\
+`Scott Colom, a prosecutor, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
+
+**In Major Upset, Scott Colom, a Democrat, Wins Mississippi Senate Seat**\
+`Scott Colom, a Democrat and prosecutor, is the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
+
 **Building Collapses in Brooklyn, Killing One and Trapping Others**\
 `The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
