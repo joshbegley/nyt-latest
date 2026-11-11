@@ -1,3 +1,7 @@
+**Could Jensen Huang’s Family Take Over Nvidia?**\
+`The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
+https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html
+
 **Whose Experience? What’s a Novelist to Do?**\
 `Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
 https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html

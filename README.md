@@ -1,7 +1,3 @@
-**Could Jensen Huang’s Family Take Over Nvidia?**\
-`The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
-https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html
-
 **Whose Experience? What’s a Novelist to Do?**\
 `Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
 https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-move
 **ICE Officer Involved in Maine Shooting Expressed Anti-Immigrant Hatred**\
 `The agent talked of foreign bloodlines, denounced noncitizens and more, according to emails obtained by The Times. His fatal shooting of a Colombian-born motorist in July remains under investigation.`\
 https://www.nytimes.com/2026/11/11/us/david-brouillette-ice-maine-shooting-anti-immigrant-hatred.html
+
+**25 Years After the Anthrax Attacks, America Remains Vulnerable**\
+`Letters filled with anthrax spores exposed flaws in the United States’ biosecurity systems. Experts say many of those issues still exist.`\
+https://www.nytimes.com/2026/11/11/science/25-years-since-anthrax-attacks-vulnerability.html
 
