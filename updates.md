@@ -1,3 +1,11 @@
+**Whose Experience? What’s a Novelist to Do?**\
+`Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
+https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html
+
+**A Chain Smoker Moved Into the Apartment Downstairs. Help!**\
+`A distressed reader wonders what options she has now that a neighbor’s cigarette smoke is preventing her from enjoying her balcony.`\
+https://www.nytimes.com/2026/11/11/style/secondhand-smoke-neighbor-apartment.html
+
 **How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
 `The telehealth company said that its annualized revenue had grown nearly tenfold since it revamped its business and embraced weight-loss treatments.`\
 https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
