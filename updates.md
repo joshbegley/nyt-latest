@@ -1,3 +1,7 @@
+**Raman and the D.S.A.: Wariness, Skepticism and Hope**\
+`Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to advance the group’s priorities.`\
+https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
+
 **Seeking to Broaden Ukraine Talks, U.S. Urges Russia to Include Europe**\
 `As a round of negotiations ended in Abu Dhabi, President Trump’s envoys said they would go to Moscow as the Kremlin demands discussions on European security structures.`\
 https://www.nytimes.com/2026/11/11/world/europe/russia-ukraine-talks-abu-dhabi.html
