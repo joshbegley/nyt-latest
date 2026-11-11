@@ -1,3 +1,7 @@
+**Canadian Authorities Kill 4 Bears Involved in Deadly Attack on Hikers**\
+`Wildlife authorities said evidence, including animal DNA, conclusively linked the sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
+https://www.nytimes.com/2026/11/10/world/canada/british-columbia-bear-attack.html
+
 **Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
 `At least three others were critically injured after an S.U.V. crashed near a North Hollywood station, the authorities said. The cause was not immediately clear.`\
 https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html
