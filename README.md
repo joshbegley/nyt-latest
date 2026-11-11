@@ -1,3 +1,7 @@
+**Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
+`The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
+https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
+
 **Building Partially Collapses in Brooklyn, Trapping People**\
 `The three-story structure in Flatbush collapsed just after 4 p.m.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-fam
 **Whose Experience? What’s a Novelist to Do?**\
 `Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
 https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html
-
-**A Chain Smoker Moved Into the Apartment Downstairs. Help!**\
-`A distressed reader wonders what options she has now that a neighbor’s cigarette smoke is preventing her from enjoying her balcony.`\
-https://www.nytimes.com/2026/11/11/style/secondhand-smoke-neighbor-apartment.html
 
