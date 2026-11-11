@@ -1,3 +1,7 @@
+**Protesters Throw Projectiles at Biden During Dublin Trip**\
+`Video showed demonstrators from a pro-Palestinian protest throwing projectiles at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin on Tuesday.`\
+https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protesters-attack.html
+
 **White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
 `As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
