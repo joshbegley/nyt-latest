@@ -1,3 +1,7 @@
+**Trump Trots Out His Chaotic Greatest Hits to a Weary Public**\
+`As he braces for Democrats to assume legislative control in Washington, President Trump has sought to take back center stage with some discordant maneuvers.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.html
+
 **Storms Slam British Columbia and California Is Next**\
 `Northern California is likely to record some of its heaviest rain so far this season later this week.`\
 https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
