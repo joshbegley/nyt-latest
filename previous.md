@@ -1,5 +1,5 @@
 **Lebanon Faces Economic ‘Catastrophe’ After War and Years of Mismanagement**\
-`Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and many Lebanese to despair.`\
+`Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and driving many Lebanese to despair.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/lebanon-economy-crisis-corruption-war.html
 
 **15-Minute Lesson Plan: Math, Money and Midterm Predictions**\
