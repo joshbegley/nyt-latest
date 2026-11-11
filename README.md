@@ -1,5 +1,5 @@
 **Kenya Starts Countdown to End of Ebola Outbreak**\
-`The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that haver come in from Congo.`\
+`The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that have come in from Congo.`\
 https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
 
 **Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
