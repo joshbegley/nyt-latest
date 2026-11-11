@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘To Shower With a Naked Stranger’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html
+
+**Behind the Trump-Xi Bonhomie, a Fierce Spy War Rages**\
+`That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
+https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
+
+**Nvidia Scandal Puts Lori Huang, Jensen Huang’s Wife, In the Spotlight**\
+`Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
+
 **Jensen Huang’s Affair Puts His Wife, Lori Huang, In the Spotlight**\
 `Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
