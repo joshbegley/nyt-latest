@@ -1,3 +1,7 @@
+**What We Lose When Satellite Images Go Dark**\
+`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
+https://www.nytimes.com/video/opinion/100000011242544/what-we-lose-when-satellite-images-go-dark.html
+
 **On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
 `The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
 https://www.nytimes.com/2026/11/11/world/africa/youth-olympics-senegal-dakar.html
