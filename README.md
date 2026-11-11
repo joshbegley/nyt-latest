@@ -1,3 +1,7 @@
+**U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors**\
+`Washington wants to intensify its economic pressure campaign on Iran by closing its land borders. Neighboring states, fearing economic fallout, are pushing back.`\
+https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html
+
 **Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
 `Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
 https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
 **$150 for a Thanksgiving Pie? A Humble Dessert Staple Gets Pricey.**\
 `This season, bakers are charging three figures for luxury versions that combine elaborate prep and premium ingredients. Not everyone is biting.`\
 https://www.nytimes.com/2026/11/11/dining/thanksgiving-pies-prices-expensive-dessert.html
-
-**Blue Texas? Battleground Kansas? Both Parties Wonder if the Map Has Shifted.**\
-`The breadth of Democrats’ midterm victories has raised new questions about which states will be competitive going forward — particularly Texas, a crown jewel in the Electoral College.`\
-https://www.nytimes.com/2026/11/11/us/blue-texas-battleground-kansas-both-parties-wonder-if-the-map-has-shifted.html
 
