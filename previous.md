@@ -1,3 +1,7 @@
+**How Democrats Invested Online to Overcome Their Cash Disadvantage**\
+`Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
+https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html
+
 **Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
 `Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-hints-at-immigration-deal-then-reverses-hes-done-that-before.html
@@ -34,8 +38,8 @@ https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memor
 `Jim Caviezel stars in this action film as a former Special Forces officer facing off against a ruthless corporate behemoth razing homes in a rural Wyoming town.`\
 https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
 
-**17-Year-Old Is Arrested in Murder of 15-Year-Old in the Bronx**\
-`Javits Frimpong was killed last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
+**He Was Killed at Age 15. Now a 17-Year-Old Is Arrested in His Murder.**\
+`Javits Frimpong was fatally shot last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
 
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/crosswords/strands-sidekick-984.html
 **Look Who Has a Southern Strategy**\
 `Republicans pioneered it. Do the Democrats finally have an answer?`\
 https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
-
-**Some of the Right’s Worst Men Are Being Held Accountable**\
-`But that doesn’t mean Trumpworld misogynists are going to go away quietly.`\
-https://www.nytimes.com/2026/11/11/opinion/maga-manosphere-midterms-vibe-shift.html
 

@@ -1,3 +1,11 @@
+**How Democrats Invested Online to Overcome Their Cash Disadvantage**\
+`Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
+https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html
+
+**He Was Killed at Age 15. Now a 17-Year-Old Is Arrested in His Murder.**\
+`Javits Frimpong was fatally shot last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
+https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
+
 **Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
 `Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-hints-at-immigration-deal-then-reverses-hes-done-that-before.html
