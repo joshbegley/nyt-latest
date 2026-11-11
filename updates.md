@@ -1,3 +1,7 @@
+**Lots of Competition to Catholicism in Peru as Pope Returns for Visit**\
+`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned to evangelical churches, seeking a more expressive and direct connection to God.`\
+https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
+
 **Tiny Love Stories: ‘To Shower With a Naked Stranger’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html

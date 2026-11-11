@@ -94,8 +94,8 @@ https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
 `More money in the political system is coming from shadowy nonprofits that appear out of nowhere and start spending big with little disclosure.`\
 https://www.nytimes.com/2026/11/11/us/democratic-dark-money-super-pac-complaint.html
 
-**Pope Returns to Peru, Where Evangelicals Challenge Catholic Dominance**\
-`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned away from Catholicism, seeking a more expressive and direct connection to God.`\
+**Lots of Competition to Catholicism in Peru as Pope Returns for Visit**\
+`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned to evangelical churches, seeking a more expressive and direct connection to God.`\
 https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
 
 **‘Modern Love’: My Supermodel Boyfriend Was in a Cult**\
