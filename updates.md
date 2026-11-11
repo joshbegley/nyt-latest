@@ -1,3 +1,11 @@
+**The Russian Scientist Behind the Deadly Novichok Nerve Agents Has Died**\
+`Vladimir Uglev, a lead developer of a Cold War-era chemical weapon used on the dissident Alexei Navalny, later turned against the government. He was 80.`\
+https://www.nytimes.com/2026/11/11/science/vladimir-uglev-dead.html
+
+**Writer Michel Houellebecq Investigated Over Anti-Muslim Remarks**\
+`His comments in a 2022 interview have drawn accusations of incitement to violence and racial hatred — accusations that his lawyers reject.`\
+https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-muslim-remarks.html
+
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
 https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
