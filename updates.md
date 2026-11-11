@@ -1,3 +1,95 @@
+**Look Who Has a Southern Strategy Now**\
+`Republicans pioneered it. Do the Democrats finally have an answer?`\
+https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
+
+**Some of the Right’s Worst Men Are Being Held Accountable**\
+`But that doesn’t mean Trumpworld misogynists are going to go away quietly.`\
+https://www.nytimes.com/2026/11/11/opinion/maga-manosphere-midterms-vibe-shift.html
+
+**Heating Costs Will Rise 7% on Average This Winter**\
+`People who use heating oil will see increases of around 70 percent because the war in Iran has greatly reduced supply of that fuel.`\
+https://www.nytimes.com/2026/11/11/business/energy-environment/winter-heating-oil-costs.html
+
+**What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
+`For some young people, feelings of political optimism are tempered by realism.`\
+https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
+
+**A New Democratic-Tied Dark-Money Group Draws Scrutiny Over Midterm Spending**\
+`More money in the political system is coming from shadowy nonprofits that appear out of nowhere and start spending big with little disclosure.`\
+https://www.nytimes.com/2026/11/11/us/democratic-dark-money-super-pac-complaint.html
+
+**Pope Returns to Peru, Where Evangelicals Challenge Catholic Dominance**\
+`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned away from Catholicism, seeking a more expressive and direct connection to God.`\
+https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
+
+**‘Modern Love’: My Supermodel Boyfriend Was in a Cult**\
+`Donna Flagg and Hoyt Richards developed a deep emotional connection. Then, he disappeared.`\
+https://www.nytimes.com/2026/11/11/podcasts/supermodel-cult-boyfriend-hoyt-richards-donna-flagg.html
+
+**A Chart Truce Brings YouTube Back to Billboard**\
+`A feud over what a stream is worth caused the online video giant to withdraw its data from Billboard’s charts, a move that disadvantaged some artists and genres.`\
+https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-data.html
+
+**This Trader Raised Alarm About Nvidia’s China Entanglements Months Ago**\
+`Christian Lamarco, a 31-year-old short seller and trader, warned about financial and personal problems at Nvidia in May.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-megaspeed-christian-lamarco.html
+
+**Trump to Visit Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
+`An expanding legal fight over the proposed site of President Trump’s 250-foot triumphal arch looms over his visit to Arlington National Cemetery on Veterans Day.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.html
+
+**A Museum’s ‘Wanted’ Poster Campaign Brings Looted Painting Back to France**\
+`The Orléans Fine Arts Museum is on a quest to recover hundreds of works stolen during World War II — and the director wants your help.`\
+https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
+
+**Democrats Pulled in Moderates. Can They Hold On to Them?**\
+`Does Democratic success signal a broad realignment in American politics? Or is it a temporary turn away from an unpopular president?`\
+https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
+
+**Honor and Anguish: A Veterans Day When the Losses Are New**\
+`For these military families who lost a loved one in the war with Iran, emotions run from pride to grief to anger.`\
+https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
+
+**The Post-Trump Battle Lines Are Drawn**\
+`Not since the Civil War has the party had so much up for grabs.`\
+https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
+
+**$150 for a Thanksgiving Pie? A Humble Dessert Staple Gets Pricey.**\
+`This season, bakers are charging three figures for luxury versions that combine elaborate prep and premium ingredients. Not everyone is biting.`\
+https://www.nytimes.com/2026/11/11/dining/thanksgiving-pies-prices-expensive-dessert.html
+
+**Blue Texas? Battleground Kansas? Both Parties Wonder if the Map Has Shifted.**\
+`The breadth of Democrats’ midterm victories has raised new questions about which states will be competitive going forward — particularly Texas, a crown jewel in the Electoral College.`\
+https://www.nytimes.com/2026/11/11/us/blue-texas-battleground-kansas-both-parties-wonder-if-the-map-has-shifted.html
+
+**Why Your Heating Bills Are Going Through the Roof**\
+`With diesel in short supply, staying warm is going to be expensive this winter.`\
+https://www.nytimes.com/2026/11/11/opinion/heating-bills-diesel-prices.html
+
+**Somali Bodyguard Was Indicted in a Bid to Incriminate Ilhan Omar**\
+`Prosecutors used statements made during a green card interview to pressure a former bodyguard to provide evidence against the Minnesota congresswoman, his lawyer said.`\
+https://www.nytimes.com/2026/11/11/us/ilhan-omar-ex-bodyguard-indicted-abdullahi-mohamed.html
+
+**Where Car-Free Living Works Best**\
+`It’s the environmental ideal, but more practical in some places than others.`\
+https://www.nytimes.com/2026/11/11/realestate/car-free-living-where-it-works-best.html
+
+**Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
+`Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
+https://www.nytimes.com/2026/11/11/us/politics/melania-trumps-initiative-for-women-appears-at-odds-with-dei-crackdown.html
+
+**My I.R.L. Adventures in the Land of the Eagle Cam**\
+`I traveled to Big Bear Lake, home of a viral live feed of an eagle’s nest, and found very human shenanigans.`\
+https://www.nytimes.com/2026/11/11/magazine/eagle-cam-big-bear-lake.html
+
+**What We Learned About the ICE Agent in the Maine Shooting**\
+`After an ICE officer fatally shot a Colombian man in Maine, our investigative reporters Katie Benner and Alexandra Berzon examined whether ICE’s hiring surge left red flags unchecked.`\
+https://www.nytimes.com/video/us/100000011258246/what-we-learned-about-the-ice-agent-in-the-maine-shooting.html
+
+**N.Y.C. Holiday Theater: Not-To-Miss Shows This Festive Season**\
+`In New York City, experience a live radio play, a Nicole Kidman-inspired “Christmas Carol,” an interactive production for children and more.`\
+https://www.nytimes.com/2026/11/11/theater/nyc-holiday-theater-guide-winter-season.html
+
 **In ‘The Ripple, the Wave That Carried Me Home,’ Currents of Racism**\
 `One couple fights for swimming pool integration, and their daughter walks away from the battle, in Christina Anderson’s pensive play.`\
 https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-home-review.html

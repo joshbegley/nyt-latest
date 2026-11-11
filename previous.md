@@ -1,3 +1,95 @@
+**Look Who Has a Southern Strategy Now**\
+`Republicans pioneered it. Do the Democrats finally have an answer?`\
+https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
+
+**Some of the Right’s Worst Men Are Being Held Accountable**\
+`But that doesn’t mean Trumpworld misogynists are going to go away quietly.`\
+https://www.nytimes.com/2026/11/11/opinion/maga-manosphere-midterms-vibe-shift.html
+
+**Heating Costs Will Rise 7% on Average This Winter**\
+`People who use heating oil will see increases of around 70 percent because the war in Iran has greatly reduced supply of that fuel.`\
+https://www.nytimes.com/2026/11/11/business/energy-environment/winter-heating-oil-costs.html
+
+**What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
+`For some young people, feelings of political optimism are tempered by realism.`\
+https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
+
+**A New Democratic-Tied Dark-Money Group Draws Scrutiny Over Midterm Spending**\
+`More money in the political system is coming from shadowy nonprofits that appear out of nowhere and start spending big with little disclosure.`\
+https://www.nytimes.com/2026/11/11/us/democratic-dark-money-super-pac-complaint.html
+
+**Pope Returns to Peru, Where Evangelicals Challenge Catholic Dominance**\
+`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned away from Catholicism, seeking a more expressive and direct connection to God.`\
+https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
+
+**‘Modern Love’: My Supermodel Boyfriend Was in a Cult**\
+`Donna Flagg and Hoyt Richards developed a deep emotional connection. Then, he disappeared.`\
+https://www.nytimes.com/2026/11/11/podcasts/supermodel-cult-boyfriend-hoyt-richards-donna-flagg.html
+
+**A Chart Truce Brings YouTube Back to Billboard**\
+`A feud over what a stream is worth caused the online video giant to withdraw its data from Billboard’s charts, a move that disadvantaged some artists and genres.`\
+https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-data.html
+
+**This Trader Raised Alarm About Nvidia’s China Entanglements Months Ago**\
+`Christian Lamarco, a 31-year-old short seller and trader, warned about financial and personal problems at Nvidia in May.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-megaspeed-christian-lamarco.html
+
+**Trump to Visit Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
+`An expanding legal fight over the proposed site of President Trump’s 250-foot triumphal arch looms over his visit to Arlington National Cemetery on Veterans Day.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.html
+
+**A Museum’s ‘Wanted’ Poster Campaign Brings Looted Painting Back to France**\
+`The Orléans Fine Arts Museum is on a quest to recover hundreds of works stolen during World War II — and the director wants your help.`\
+https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
+
+**Democrats Pulled in Moderates. Can They Hold On to Them?**\
+`Does Democratic success signal a broad realignment in American politics? Or is it a temporary turn away from an unpopular president?`\
+https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
+
+**Honor and Anguish: A Veterans Day When the Losses Are New**\
+`For these military families who lost a loved one in the war with Iran, emotions run from pride to grief to anger.`\
+https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
+
+**The Post-Trump Battle Lines Are Drawn**\
+`Not since the Civil War has the party had so much up for grabs.`\
+https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
+
+**$150 for a Thanksgiving Pie? A Humble Dessert Staple Gets Pricey.**\
+`This season, bakers are charging three figures for luxury versions that combine elaborate prep and premium ingredients. Not everyone is biting.`\
+https://www.nytimes.com/2026/11/11/dining/thanksgiving-pies-prices-expensive-dessert.html
+
+**Blue Texas? Battleground Kansas? Both Parties Wonder if the Map Has Shifted.**\
+`The breadth of Democrats’ midterm victories has raised new questions about which states will be competitive going forward — particularly Texas, a crown jewel in the Electoral College.`\
+https://www.nytimes.com/2026/11/11/us/blue-texas-battleground-kansas-both-parties-wonder-if-the-map-has-shifted.html
+
+**Why Your Heating Bills Are Going Through the Roof**\
+`With diesel in short supply, staying warm is going to be expensive this winter.`\
+https://www.nytimes.com/2026/11/11/opinion/heating-bills-diesel-prices.html
+
+**Somali Bodyguard Was Indicted in a Bid to Incriminate Ilhan Omar**\
+`Prosecutors used statements made during a green card interview to pressure a former bodyguard to provide evidence against the Minnesota congresswoman, his lawyer said.`\
+https://www.nytimes.com/2026/11/11/us/ilhan-omar-ex-bodyguard-indicted-abdullahi-mohamed.html
+
+**Where Car-Free Living Works Best**\
+`It’s the environmental ideal, but more practical in some places than others.`\
+https://www.nytimes.com/2026/11/11/realestate/car-free-living-where-it-works-best.html
+
+**Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
+`Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
+https://www.nytimes.com/2026/11/11/us/politics/melania-trumps-initiative-for-women-appears-at-odds-with-dei-crackdown.html
+
+**My I.R.L. Adventures in the Land of the Eagle Cam**\
+`I traveled to Big Bear Lake, home of a viral live feed of an eagle’s nest, and found very human shenanigans.`\
+https://www.nytimes.com/2026/11/11/magazine/eagle-cam-big-bear-lake.html
+
+**What We Learned About the ICE Agent in the Maine Shooting**\
+`After an ICE officer fatally shot a Colombian man in Maine, our investigative reporters Katie Benner and Alexandra Berzon examined whether ICE’s hiring surge left red flags unchecked.`\
+https://www.nytimes.com/video/us/100000011258246/what-we-learned-about-the-ice-agent-in-the-maine-shooting.html
+
+**N.Y.C. Holiday Theater: Not-To-Miss Shows This Festive Season**\
+`In New York City, experience a live radio play, a Nicole Kidman-inspired “Christmas Carol,” an interactive production for children and more.`\
+https://www.nytimes.com/2026/11/11/theater/nyc-holiday-theater-guide-winter-season.html
+
 **In ‘The Ripple, the Wave That Carried Me Home,’ Currents of Racism**\
 `One couple fights for swimming pool integration, and their daughter walks away from the battle, in Christina Anderson’s pensive play.`\
 https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-home-review.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/2026/11/11/learning/15-minute-lesson-plan-math-money-and
 **Jimmy Kimmel Picks Apart Trump’s Impromptu Call-in**\
 `The late night host said the president has “nothing better to do” after he phoned in live to a C-SPAN show.`\
 https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html
-
-**Jim Jordan to Lead House G.O.P. After Midterm Losses**\
-`House Republicans elected Representative Jim Jordan of Ohio to be their leader on Tuesday as the party reeled from a crushing defeat in the midterm elections.`\
-https://www.nytimes.com/video/us/politics/100000011277103/republican-house-leader-jordan.html
-
-**United States Absent From United Nations Climate Summit**\
-`President Trump did not send an American delegation to this year’s United Nations climate summit in Turkey.`\
-https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
-
-**Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
-`Mayor Zohran Mamdani will begin contract talks with District Council 37, New York City’s largest municipal union, whose leader is seeking worker protections against artificial intelligence.`\
-https://www.nytimes.com/2026/11/11/nyregion/mamdani-dc37-contract-union.html
-
-**When Measles Came to an Amish Community, Many Suffered and One Died**\
-`In Lewis County, N.Y., the highly contagious virus has swept through Amish homes. Public health experts fear there’s no end in sight.`\
-https://www.nytimes.com/2026/11/11/nyregion/measles-new-york-lewis-county-amish.html
-
-**NYT Spelling Bee Answers for November 11, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/11/crosswords/spelling-bee-forum.html
-
-**From Argentina, a Warning to America’s Tech Right**\
-`Voters are turning on Javier Milei’s dreams of an A.I.-powered Argentina.`\
-https://www.nytimes.com/2026/11/11/opinion/argentina-milei-ai-musk.html
-
-**Quote of the Day: Leo Is Pope. But in Argentina, Francis Looms as the Forever Pope.**\
-`Quotation of the Day for Wednesday, November 11, 2026.`\
-https://www.nytimes.com/2026/11/11/pageoneplus/quote-of-the-day-leo-is-pope-but-in-argentina-francis-looms-as-the-forever-pope.html
-
-**The United States Is Skipping COP31 in Turkey**\
-`President Trump refused to send an American delegation to the United Nations climate summit in Turkey.`\
-https://www.nytimes.com/2026/11/11/climate/trump-cop31-climate-turkey.html
-
-**On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
-`The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
-https://www.nytimes.com/2026/11/11/world/africa/youth-olympics-senegal-dakar.html
-
-**From the Front Page: Fighting in World War I Ends on Nov. 11, 1918**\
-`An armistice between the Allies and Germany halted combat.`\
-https://www.nytimes.com/2026/11/11/learning/from-the-front-page-fighting-in-world-war-i-ends-on-nov-11-1918.html
-
-**Canadian Authorities Kill 4 Bears Involved in Deadly Attack on Hikers**\
-`Wildlife authorities said evidence, including animal DNA, conclusively linked a sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
-https://www.nytimes.com/2026/11/10/world/canada/british-columbia-bear-attack.html
-
-**Alina Habba Mildon Faces Discipline Over Settlement at Trump Golf Club**\
-`The state’s Office of Attorney Ethics recommended discipline for her role in brokering a sexual harassment settlement involving a waitress at the president’s golf club in Bedminster, N.J.`\
-https://www.nytimes.com/2026/11/10/nyregion/alina-habba-ethics-new-jersey-trump.html
-
-**Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
-`At least three others were critically injured after an S.U.V. jumped the curb near North Hollywood Metro station, the authorities said. The cause was not immediately clear.`\
-https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html
-
-**NYT Crossword Answers for Oct. 11, 2026**\
-`It’s hard to define the theme of Damon Gulczynski’s crossword.`\
-https://www.nytimes.com/2026/11/10/crosswords/daily-puzzle-2026-11-11.html
-
-**How a Suspected Chinese Spy Gained Access to Nvidia Chips**\
-`A woman whom U.S. intelligence identified as a Chinese spy had ties to Nvidia’s chief executive, Jensen Huang, dating to at least 2023. Ana Swanson, our reporter on trade and economics, explains what new photos show.`\
-https://www.nytimes.com/video/business/100000011273241/alice-huang-nvidia-china-spy.html
-
-**Read the document**\
-`Office of Attorney Ethics Complaint Against Alina Habba Mildon`\
-https://www.nytimes.com/interactive/2026/11/10/us/ah-amended-complaint-redacted-2.html
-
-**House Republicans Stunt Effort to Impeach Hegseth**\
-`House Republicans united on Tuesday to shelve an effort to impeach Defense Secretary Pete Hegseth. Hegseth had been accused of eight separate charges, including violating the Constitution to wage war in Iran. The vote referred the charges to a committee, allowing Republicans to slow the process indefinitely.`\
-https://www.nytimes.com/video/us/politics/100000011276547/house-votes-hegseth-impeachment.html
-
-**Richard Holmes, Who Integrated Mississippi State University, Has Died**\
-`When he stepped onto campus in 1965, he said, he was met with “curiosity and disbelief.”`\
-https://www.nytimes.com/2026/11/10/obituaries/richard-holmes-mississippi-state-university-dead.html
-
-**Bernie Sanders Opposes Schumer as Majority Leader**\
-`The progressive leader was among a few Democrats who signaled skepticism about Senator Chuck Schumer of New York, though his allies offered support and called for party unity.`\
-https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-chuck-schumer-senate.html
-
-**Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
-`He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
-https://www.nytimes.com/2026/11/10/arts/stacy-keach-dead.html
-
-**Appeals Court Blocks Trump Administration Demand for Journalists’ LinkedIn Data**\
-`The court said that the request was too broad and could reveal numerous unrelated confidential sources.`\
-https://www.nytimes.com/2026/11/10/us/politics/doj-linkedin-data-reporters-trump.html
-
-**Tech Consultant Is Sentenced to 16 Years to Life in Cash App Founder’s Killing**\
-`Nima Momeni was sentenced for the 2023 murder of Bob Lee, a killing that initially set off crime fears in San Francisco.`\
-https://www.nytimes.com/2026/11/10/us/bob-lee-cash-app-murder-sentencing.html
-
-**How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
-`Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
-https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html
 
