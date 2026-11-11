@@ -1,3 +1,7 @@
+**Michael McCloskey Has Died. He Helped Make the Sierra Club a Political Force.**\
+`As executive director of the group from 1969 to 1985, he aligned its disparate local chapters and offices into a powerful lobby in Washington. He was 92.`\
+https://www.nytimes.com/2026/11/11/us/michael-mccloskey-dead.html
+
 **The Fed Has to Raise Rates. How Fast To Go Has Officials Divided.**\
 `The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
 https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/books/review/new-poetry-fady-joudah-exhibit-g
 **Nonreligious Pilgrims? Why Secular Travelers Are Flocking to Sacred Spaces.**\
 `Burned out and searching for answers, many travelers are turning to ancient walking routes and hidden cloisters to find stillness and renewal.`\
 https://www.nytimes.com/2026/11/11/travel/nonreligious-pilgrims.html
-
-**Isaiah Rashad’s Most Powerful Secret Was Himself**\
-`After the leak of private video footage upended his life, the rapper took a more open approach to making music. It resulted in the best album of his career.`\
-https://www.nytimes.com/2026/11/11/arts/music/isaiah-rashad-interview-profile.html
 
