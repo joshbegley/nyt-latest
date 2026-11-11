@@ -1,3 +1,11 @@
+**Whose Experience? What’s a Novelist to Do?**\
+`Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
+https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html
+
+**A Chain Smoker Moved Into the Apartment Downstairs. Help!**\
+`A distressed reader wonders what options she has now that a neighbor’s cigarette smoke is preventing her from enjoying her balcony.`\
+https://www.nytimes.com/2026/11/11/style/secondhand-smoke-neighbor-apartment.html
+
 **Anthropic’s I.P.O. and the Clubby Business of A.I.**\
 `Some of the biggest investors in the artificial intelligence giant’s upcoming listing are also some of its most important business partners.`\
 https://www.nytimes.com/2026/11/11/business/dealbook/anthropic-ipo-nvidia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/11/us/david-brouillette-ice-maine-shooting-anti-
 **25 Years After the Anthrax Attacks, America Remains Vulnerable**\
 `Letters filled with anthrax spores exposed flaws in the United States’ biosecurity systems. Experts say many of those issues still exist.`\
 https://www.nytimes.com/2026/11/11/science/25-years-since-anthrax-attacks-vulnerability.html
-
-**They’re in Ukraine. Why Do Their Phones Say They’re in Peru?**\
-`GPS-linked devices have been insisting that Ukrainians are in Lima, the Peruvian capital. The culprit is a jamming system built to thwart Russian airstrikes.`\
-https://www.nytimes.com/2026/11/11/world/europe/ukraine-lima-electronic-warefare-gps.html
-
-**Should I Have Eyelid Surgery?**\
-`An increasing number of people are seeking blepharoplasty, and patients under 35 represent the fastest growing group.`\
-https://www.nytimes.com/2026/11/11/well/blepharoplasty-eyelid-surgery.html
 
