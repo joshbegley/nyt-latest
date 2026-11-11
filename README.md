@@ -1,4 +1,8 @@
-**Trump Officials Clashed Over Firm at Heart of Nvidia Affair**\
+**Judge Allows Trump’s Defamation Lawsuit Against the BBC to Proceed**\
+`President Trump is seeking damages from the British broadcaster over a documentary it conceded was misleadingly edited.`\
+https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
+
+**Trump Officials Clashed Over Megaspeed, Firm at Heart of Nvidia Affair**\
 `Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
 https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
 
@@ -111,7 +115,7 @@ https://www.nytimes.com/2026/11/11/opinion/maga-manosphere-midterms-vibe-shift.h
 https://www.nytimes.com/2026/11/11/business/energy-environment/winter-heating-oil-costs.html
 
 **What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
-`For some young people, feelings of political optimism are tempered by realism.`\
+`Unlike millennial optimism, the post-election victory lap for some younger Democratic voters is imbued with a healthy dose of skepticism.`\
 https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
 
 **A New Democratic-Tied Dark-Money Group Draws Scrutiny Over Midterm Spending**\
@@ -134,7 +138,7 @@ https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-da
 `Christian Lamarco, a 31-year-old short seller and trader, warned about financial and personal problems at Nvidia in May.`\
 https://www.nytimes.com/2026/11/11/business/nvidia-megaspeed-christian-lamarco.html
 
-**Trump to Visit Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
+**Trump Visits Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
 `An expanding legal fight over the proposed site of President Trump’s 250-foot triumphal arch looms over his visit to Arlington National Cemetery on Veterans Day.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.html
 
@@ -146,8 +150,8 @@ https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
 `Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
 https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
 
-**Honor and Anguish: A Veterans Day When the Losses Are New**\
-`For these military families who lost a loved one in the war with Iran, emotions run from pride to grief to anger.`\
+**For Families of Those Who Died in the Iran War, a Veterans Day of Profound Loss**\
+`Military families are navigating feelings of grief, pride and anger, as well as seeking answers about the deaths of their loved ones.`\
 https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
 
 **Republicans Have Two Paths Out of This. They’d Better Choose Wisely.**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/magazine/eagle-cam-big-bear-lake.html
 **What We Learned About the ICE Agent in the Maine Shooting**\
 `After an ICE officer fatally shot a Colombian man in Maine, our investigative reporters Katie Benner and Alexandra Berzon examined whether ICE’s hiring surge left red flags unchecked.`\
 https://www.nytimes.com/video/us/100000011258246/what-we-learned-about-the-ice-agent-in-the-maine-shooting.html
-
-**N.Y.C. Holiday Theater: Not-To-Miss Shows This Festive Season**\
-`In New York City, experience a live radio play, a Nicole Kidman-inspired “Christmas Carol,” an interactive production for children and more.`\
-https://www.nytimes.com/2026/11/11/theater/nyc-holiday-theater-guide-winter-season.html
 
