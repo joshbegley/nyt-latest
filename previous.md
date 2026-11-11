@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/11/magazine/ai-behavior-incorrigible.html
 `Why do you think fewer teenagers today are rushing to get their driver’s license?`\
 https://www.nytimes.com/2026/11/11/learning/how-much-does-being-able-to-drive-matter-to-you.html
 
-**Is Brain Stacking, TikTok’s New Trend, the Cure to Doomscrolling?**\
-`A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
-https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html
-
