@@ -1,3 +1,11 @@
+**A.I. and Market Whiplash**\
+`A Times reporter who covers financial markets helps us make sense of tech turbulence.`\
+https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
+
+**Alexander Darchiev, Russia’s Ambassador to the U.S., Dies at 66**\
+`The death of Alexander Darchiev was announced by Russia’s foreign ministry. He was appointed to his post in Washington in 2025, as relations between the Kremlin and the White House warmed.`\
+https://www.nytimes.com/2026/11/11/world/europe/russian-ambassador-darchiev-dead.html
+
 **Biden Calls His Disastrous 2024 Debate Performance ‘Not Very Consequential’**\
 `A debate against Donald Trump in which Mr. Biden, then the president, repeatedly lost his train of thought led to widespread Democratic pressure to end his campaign, which Mr. Biden eventually did.`\
 https://www.nytimes.com/2026/11/11/us/politics/biden-debate-trump-comments-interview.html
@@ -51,7 +59,7 @@ https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memor
 https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
 
 **He Was Killed at Age 15. Now a 17-Year-Old Is Arrested in His Murder.**\
-`Javits Frimpong was fatally shot last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
+`Javits Frimpong came to New York from Ghana with big dreams. Just over a year later, he was fatally shot on the way to school in the Bronx.`\
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
 
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
 **What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
 `Plus, a priceless find in a desk drawer.`\
 https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
-
-**NYT Connections Answers for November 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
-https://www.nytimes.com/2026/11/11/crosswords/connections-companion-1250.html
-
-**Today’s Wordle Hints for November 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
-https://www.nytimes.com/2026/11/11/crosswords/wordle-review-1972.html
 
