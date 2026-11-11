@@ -1,3 +1,7 @@
+**How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
+`The telehealth company said that its annualized revenue had grown more than tenfold since it revamped its business and embraced weight-loss treatments.`\
+https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
+
 **‘Fight Harder,’ U.N. Chief António Guterres Implores, Rousing Climate Ambassadors at COP31**\
 `The United Nations secretary general, António Guterres, spoke at COP31, a meeting aimed at reducing emissions, amid a sharp drop in attendance by world leaders.`\
 https://www.nytimes.com/2026/11/11/climate/cop31-antonio-guterres-un.html

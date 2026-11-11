@@ -1,3 +1,7 @@
+**How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
+`The telehealth company said that its annualized revenue had grown more than tenfold since it revamped its business and embraced weight-loss treatments.`\
+https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
+
 **‘Fight Harder,’ U.N. Chief António Guterres Implores, Rousing Climate Ambassadors at COP31**\
 `The United Nations secretary general, António Guterres, spoke at COP31, a meeting aimed at reducing emissions, amid a sharp drop in attendance by world leaders.`\
 https://www.nytimes.com/2026/11/11/climate/cop31-antonio-guterres-un.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/well/blepharoplasty-eyelid-surgery.html
 **Robert Greene, Who Wrote “The 48 Laws of Power,” Bible of the Manosphere, Is Going Zen**\
 `After winning over fans like Joe Rogan, Theo Von and 50 Cent with his lessons in ruthlessness, the author Robert Greene now wants to cultivate the sublime.`\
 https://www.nytimes.com/2026/11/11/style/robert-greene-48-laws-of-power-sublime.html
-
-**4 New Poetry Books to Bring You the World**\
-`In their newest collections, Fady Joudah, Melissa Range, Maya C. Popa and Daljit Nagra survey the world and plumb the soul.`\
-https://www.nytimes.com/2026/11/11/books/review/new-poetry-fady-joudah-exhibit-g-maya-popa.html
 

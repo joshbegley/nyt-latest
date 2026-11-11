@@ -1,3 +1,7 @@
+**Anthropic’s I.P.O. and the Clubby Business of A.I.**\
+`Some of the biggest investors in the artificial intelligence giant’s upcoming listing are also some of its most important business partners.`\
+https://www.nytimes.com/2026/11/11/business/dealbook/anthropic-ipo-nvidia.html
+
 **How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
 `The telehealth company said that its annualized revenue had grown more than tenfold since it revamped its business and embraced weight-loss treatments.`\
 https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/world/europe/ukraine-lima-electronic-warefare
 **Should I Have Eyelid Surgery?**\
 `An increasing number of people are seeking blepharoplasty, and patients under 35 represent the fastest growing group.`\
 https://www.nytimes.com/2026/11/11/well/blepharoplasty-eyelid-surgery.html
-
-**Robert Greene, Who Wrote “The 48 Laws of Power,” Bible of the Manosphere, Is Going Zen**\
-`After winning over fans like Joe Rogan, Theo Von and 50 Cent with his lessons in ruthlessness, the author Robert Greene now wants to cultivate the sublime.`\
-https://www.nytimes.com/2026/11/11/style/robert-greene-48-laws-of-power-sublime.html
 
