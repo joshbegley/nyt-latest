@@ -1,3 +1,11 @@
+**ICE Deportation Flight Carrying Iranians Turns Back and Lands in Arizona**\
+`The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
+https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html
+
+**After Considerable Struggles, Ballot Deadlines Pass in Mississippi**\
+`The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
+https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
+
 **New Research Compares Long-Term Relief From 21 Antidepressants**\
 `In the meta-analysis, a few drugs stood out for offering greater effectiveness over time.`\
 https://www.nytimes.com/2026/11/10/well/mind/antidepressants-efficacy-work.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/russell-brand-prison.html
 **Data Show Households Still Managing to Meet Their Monthly Debts**\
 `The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
 https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
-
-**Designers Find Inspiration in Folklore, Symbols and Rituals**\
-`Throughout the world, creators are finding inspiration in folklore and putting new twists on archaic symbols and rituals.`\
-https://www.nytimes.com/2026/11/10/arts/design/design-magic.html
-
-**Pete Hegseth Dismisses Impeachment Efforts**\
-`Defense Secretary Pete Hegseth dismissed an impeachment effort led by Representative Thomas Massie of Kentucky, a Republican lawmaker.`\
-https://www.nytimes.com/video/us/politics/100000011274784/pete-hegseth-impeachment-vote-massie.html
 

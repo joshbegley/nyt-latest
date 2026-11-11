@@ -1,3 +1,11 @@
+**ICE Deportation Flight Carrying Iranians Turns Back and Lands in Arizona**\
+`The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
+https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html
+
+**After Considerable Struggles, Ballot Deadlines Pass in Mississippi**\
+`The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
+https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
+
 **New Research Compares Long-Term Relief From 21 Antidepressants**\
 `In the meta-analysis, a few drugs stood out for offering greater effectiveness over time.`\
 https://www.nytimes.com/2026/11/10/well/mind/antidepressants-efficacy-work.html

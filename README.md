@@ -1,3 +1,11 @@
+**Storms Slam British Columbia and California Is Next**\
+`Northern California is likely to record some of its heaviest rain so far this season later this week.`\
+https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
+
+**Bessent Moved to Military Base In Wake of Iranian Threats**\
+`The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
+https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html
+
 **ICE Deportation Flight Carrying Iranians Turns Back and Lands in Arizona**\
 `The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
 https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/technology/alice-huang-megaspeed-nvidia-jense
 **Richard Aurelio Has Died. He Helped Re-elect Mayor Lindsay.**\
 `A political and public relations virtuoso and journalist, he also worked for Senator Jacob Javits and brought an all-news cable channel to New York. He was 98.`\
 https://www.nytimes.com/2026/11/10/obituaries/metro-richard-aurelio-dead.html
-
-**What Conditions Russell Brand Can Expect in a U.K. Prison**\
-`The prison where Brand is starting his 10-year sentence is “unsanitary and squalid,” according to a recent report. The former star could also be moved to a prison for sex offenders.`\
-https://www.nytimes.com/2026/11/10/arts/russell-brand-prison.html
-
-**Data Show Households Still Managing to Meet Their Monthly Debts**\
-`The New York Fed detailed general steadiness in debt payments for autos, student loans and mortgages.`\
-https://www.nytimes.com/2026/11/10/business/economy/household-debt-real-estate-home-equity.html
 
