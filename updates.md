@@ -1,3 +1,11 @@
+**Jensen Huang’s Affair Puts His Wife, Lori Huang, In the Spotlight**\
+`Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
+
+**Republicans Have Two Paths Out of This. They’d Better Choose Wisely.**\
+`Not since the Civil War has the party had so much up for grabs.`\
+https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
+
 **Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
 `Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
 https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
