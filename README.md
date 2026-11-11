@@ -1,3 +1,11 @@
+**How The Times Covered Mississippi’s Senate Race, Which Unexpectedly Became a Nail-Biter**\
+`Three Times journalists break down the twists and turns in a race that captured national attention.`\
+https://www.nytimes.com/2026/11/11/insider/mississippi-senate-race-coverage.html
+
+**United Airlines Blocks A.I. Agents From Booking Flights**\
+`The carrier said that to protect customers’ information and comply with regulations, it was barring the digital assistants from logging into accounts and managing reservations.`\
+https://www.nytimes.com/2026/11/11/business/united-airlines-ai-agents-booking-flights.html
+
 **5 Things to Know About Democrat Scott Colom, Mississippi’s Next Senator**\
 `Mr. Colom, a prosecutor, will become the first Black senator elected from Mississippi since Reconstruction, more than 150 years ago.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-race.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/11/theater/cloud-nine-national-theatre-london-re
 **Is the U.S. Trying to Censor Our View From Space?**\
 `Satellite imagery has helped reveal destruction in Gaza, mass graves in Ukraine, internment camps in China and the Minab school strike in Iran. Now, open-source researchers like Ollie Ballinger are finding it increasingly difficult to get access to these images. “There’s a lot to lose when our view from space is blocked,” he says. “The public deserves to see the earth without government censorship.”`\
 https://www.nytimes.com/video/opinion/100000011272884/is-the-us-trying-to-censor-our-view-from-space.html
-
-**Tiny Love Stories: ‘To Shower With a Naked Stranger’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html
-
-**Nvidia Scandal Unveils a Fierce Spy War Raging Behind Trump and Xi’s Diplomacy**\
-`That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
-https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
 
