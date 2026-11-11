@@ -1,3 +1,11 @@
+**Workers in Spain Hold General Strike for First Time in 14 Years**\
+`Workers across Spain went on strike, protesting against rising housing costs and stagnant wages ahead of the national election in November.`\
+https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-election.html
+
+**A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
+`The department, which has already seen the exodus of hundreds of career officials who were forced out or left, faces a daunting new staffing dilemma spurred by the election.`\
+https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
+
 **A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
 `Despite the upheaval, Attorney General Todd Blanche has signaled that he will pursue the president’s priorities and muscle past efforts by Congress to investigate administration officials.`\
 https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
