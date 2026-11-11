@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shou
 `The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
 https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
 
-**Building Partially Collapses in Brooklyn, Trapping People**\
-`The three-story structure in Flatbush collapsed just after 4 p.m.`\
+**Building Collapses in Brooklyn, Killing One and Trapping Others**\
+`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
 
 **Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\

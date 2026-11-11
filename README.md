@@ -1,3 +1,7 @@
+**In Major Upset, Scott Colom, a Democrat, Wins Mississippi Senate Seat**\
+`Scott Colom, a Democrat and prosecutor, is the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
+
 **Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
 `Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.htm
 **Incoming House Intelligence Chairman Vows Oversight of CIA’s Use of Covert Action**\
 `Representative Jim Himes, who will run the powerful intelligence committee in the new Congress, said he also planned to scrutinize contractor donations to President Trump’s construction projects.`\
 https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-oversight.html
-
-**Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
-`Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
-https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
 

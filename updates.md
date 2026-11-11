@@ -1,3 +1,7 @@
+**Building Collapses in Brooklyn, Killing One and Trapping Others**\
+`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday.`\
+https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
+
 **Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
 `Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
