@@ -2,8 +2,8 @@
 `The state’s Office of Attorney Ethics recommended discipline for her role in brokering a sexual harassment settlement involving a waitress at the president’s golf club in Bedminster, N.J.`\
 https://www.nytimes.com/2026/11/10/nyregion/alina-habba-ethics-new-jersey-trump.html
 
-**Car Crashes Near Los Angeles Metro Station, Killing at Least 3**\
-`At least three others were critically injured after a vehicle crashed near a North Hollywood station, the authorities said. The cause of the crash was not immediately clear.`\
+**Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
+`At least three others were critically injured after an S.U.V. crashed near a North Hollywood station, the authorities said. The cause was not immediately clear.`\
 https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html
 
 **NYT Crossword Answers for Oct. 11, 2026**\
