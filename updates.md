@@ -1,3 +1,7 @@
+**Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
+`Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
+https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
+
 **The Moderates Who Chose Democrats. For Now.**\
 `Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
 https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
