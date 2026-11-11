@@ -1,3 +1,7 @@
+**Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
+https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
+
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
 `A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
 https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shout.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/politics/jim-himes-cia-house-intelligence-
 **Missing Baby Is Rescued After Being Buried Alive in Dog Crate**\
 `Investigators in South Carolina rescued the baby on Tuesday after he had been buried in the woods for 24 hours. His father was in police custody.`\
 https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
-
-**Could Jensen Huang’s Family Take Over Nvidia?**\
-`The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
-https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html
 

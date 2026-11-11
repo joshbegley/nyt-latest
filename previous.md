@@ -1,3 +1,11 @@
+**Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
+`A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
+https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shout.html
+
+**Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
+`The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
+https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
+
 **Building Partially Collapses in Brooklyn, Trapping People**\
 `The three-story structure in Flatbush collapsed just after 4 p.m.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/us/baby-buried-alive-south-carolina.html
 **Could Jensen Huang’s Family Take Over Nvidia?**\
 `The successor of Jensen Huang, chief executive of Nvidia, would need to be “one of the best computer scientists alive,” Stephen Witt, who wrote a biography of Huang called “The Thinking Machine,” said on “Hard Fork.”`\
 https://www.nytimes.com/video/technology/100000011276347/could-jensen-huangs-family-take-over-nvidia.html
-
-**Whose Experience? What’s a Novelist to Do?**\
-`Readers respond to John McWhorter’s essay about “lived experience” and the arts. Also: Susan Collins; the Democrats’ challenge; A.I. in the classroom.`\
-https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.html
-
-**A Chain Smoker Moved Into the Apartment Downstairs. Help!**\
-`A distressed reader wonders what options she has now that a neighbor’s cigarette smoke is preventing her from enjoying her balcony.`\
-https://www.nytimes.com/2026/11/11/style/secondhand-smoke-neighbor-apartment.html
 

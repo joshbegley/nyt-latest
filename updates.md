@@ -1,3 +1,11 @@
+**Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
+`A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
+https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shout.html
+
+**Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
+`The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
+https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
+
 **Building Partially Collapses in Brooklyn, Trapping People**\
 `The three-story structure in Flatbush collapsed just after 4 p.m.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
