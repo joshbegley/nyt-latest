@@ -1,3 +1,7 @@
+**Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
+`Hundreds of schools in Italy were evacuated after receiving fake bomb threats, in the latest wave of disruptions to hit the continent. Threatening messages were also sent to schools in Ireland and Scotland.`\
+https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-italy-europe.html
+
 **U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors**\
 `Washington wants to intensify its economic pressure campaign on Iran by closing its land borders. Neighboring states, fearing economic fallout, are pushing back.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html

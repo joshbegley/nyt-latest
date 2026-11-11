@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lu
 https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
 
 **Silicon Valley Tech Allies Support Jensen Huang**\
-`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be Chinese spy as a personal lapse, not a security failure.`\
+`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be a Chinese spy as a personal lapse, not a security failure.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
 
 **Workers in Spain Stage a General Strike for the First Time in 14 Years**\

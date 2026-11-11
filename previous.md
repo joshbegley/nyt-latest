@@ -1,3 +1,7 @@
+**Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
+`Hundreds of schools in Italy were evacuated after receiving fake bomb threats, in the latest wave of disruptions to hit the continent. Threatening messages were also sent to schools in Ireland and Scotland.`\
+https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-italy-europe.html
+
 **U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors**\
 `Washington wants to intensify its economic pressure campaign on Iran by closing its land borders. Neighboring states, fearing economic fallout, are pushing back.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.htm
 **Republicans Have Two Paths Out of This. They’d Better Choose Wisely.**\
 `Not since the Civil War has the party had so much up for grabs.`\
 https://www.nytimes.com/2026/11/11/opinion/post-trump-republicans.html
-
-**$150 for a Thanksgiving Pie? A Humble Dessert Staple Gets Pricey.**\
-`This season, bakers are charging three figures for luxury versions that combine elaborate prep and premium ingredients. Not everyone is biting.`\
-https://www.nytimes.com/2026/11/11/dining/thanksgiving-pies-prices-expensive-dessert.html
 
