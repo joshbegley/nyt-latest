@@ -1,6 +1,14 @@
+**House Republicans Stunt Effort to Impeach Hegseth**\
+`House Republicans united on Tuesday to shelve an effort to impeach Defense Secretary Pete Hegseth. Hegseth had been accused of eight separate charges, including violating the Constitution to wage war in Iran. The vote referred the charges to a committee, allowing Republicans to slow the process indefinitely.`\
+https://www.nytimes.com/video/us/politics/100000011276547/house-votes-hegseth-impeachment.html
+
+**Richard Holmes, Who Integrated Mississippi State University, Has Died**\
+`When he stepped onto campus in 1965, he said, he was met with “curiosity and disbelief.”`\
+https://www.nytimes.com/2026/11/10/obituaries/richard-holmes-mississippi-state-university-dead.html
+
 **Bernie Sanders Opposes Schumer as Majority Leader**\
 `The progressive leader was among a few Democrats who signaled skepticism about Senator Chuck Schumer of New York, though his allies offered support and called for party unity.`\
-https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-opposes-schumer-as-majority-leader.html
+https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-chuck-schumer-senate.html
 
 **Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
 `He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.
 **Soundtrack to a Modern Dinner Party**\
 `Hear tracks from girlsweetvoiced, This Is Lorelei, Friendship and more while assuming host duties.`\
 https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
-
-**Do I Need to Dress Sexier?**\
-`A slinky suiting brand got me thinking.`\
-https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
-
-**Novaya Gazeta, Russia’s Bravest Newspaper, Closes**\
-`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
-https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
 

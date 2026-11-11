@@ -1,3 +1,7 @@
+**Read the document**\
+`Office of Attorney Ethics Complaint Against Alina Habba Mildon`\
+https://www.nytimes.com/interactive/2026/11/10/us/ah-amended-complaint-redacted-2.html
+
 **House Republicans Stunt Effort to Impeach Hegseth**\
 `House Republicans united on Tuesday to shelve an effort to impeach Defense Secretary Pete Hegseth. Hegseth had been accused of eight separate charges, including violating the Constitution to wage war in Iran. The vote referred the charges to a committee, allowing Republicans to slow the process indefinitely.`\
 https://www.nytimes.com/video/us/politics/100000011276547/house-votes-hegseth-impeachment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-isr
 **Nvidia Hires Wachtell Lipton to Investigate CEO Jensen Huang’s Affair With Chinese Executive**\
 `Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
 https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
-
-**Soundtrack to a Modern Dinner Party**\
-`Hear tracks from girlsweetvoiced, This Is Lorelei, Friendship and more while assuming host duties.`\
-https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
 
