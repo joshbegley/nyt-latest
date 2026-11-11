@@ -1,3 +1,7 @@
+**Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
+https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
+
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
 `A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
 https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shout.html
