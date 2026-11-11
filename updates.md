@@ -1,3 +1,7 @@
+**U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors**\
+`Washington wants to intensify its economic pressure campaign on Iran by closing its land borders. Neighboring states, fearing economic fallout, are pushing back.`\
+https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html
+
 **Trump. Miller. Blanche. Jordan. Things Could Get Worse, and They Probably Will.**\
 `Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
 https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
