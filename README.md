@@ -1,3 +1,7 @@
+**Is the U.S. Trying to Censor Our View From Space?**\
+`Satellite imagery has helped reveal destruction in Gaza, mass graves in Ukraine, internment camps in China and the Minab school strike in Iran. Now, open-source researchers like Ollie Ballinger are finding it increasingly difficult to get access to these images. “There’s a lot to lose when our view from space is blocked,” he says. “The public deserves to see the earth without government censorship.”`\
+https://www.nytimes.com/video/opinion/100000011272884/is-the-us-trying-to-censor-our-view-from-space.html
+
 **Tiny Love Stories: ‘To Shower With a Naked Stranger’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/books/review/the-absent-woman-eve-sneider.htm
 **Why Is It So Hard to Teach A.I. Agents to Behave? Researchers Have a Theory.**\
 `The makers of A.I. want to build systems that follow human direction, without resisting or deceiving their operators.`\
 https://www.nytimes.com/2026/11/11/magazine/ai-behavior-incorrigible.html
-
-**How Much Does Being Able to Drive Matter to You?**\
-`Why do you think fewer teenagers today are rushing to get their driver’s license?`\
-https://www.nytimes.com/2026/11/11/learning/how-much-does-being-able-to-drive-matter-to-you.html
 
