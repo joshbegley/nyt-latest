@@ -1,3 +1,7 @@
+**A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
+`Despite the upheaval, Attorney General Todd Blanche has signaled that he will pursue the president’s priorities and muscle past efforts by Congress to investigate administration officials.`\
+https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
+
 **The Political Center of Gravity Isn’t Trump. It’s Obama.**\
 `America just isn’t a center-right country.`\
 https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html

@@ -1,3 +1,7 @@
+**A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
+`Despite the upheaval, Attorney General Todd Blanche has signaled that he will pursue the president’s priorities and muscle past efforts by Congress to investigate administration officials.`\
+https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
+
 **How to Be a Better Gift Giver: Expert Advice and Picks**\
 `Ahead of the holidays, artists, chefs and designers share their tips — and their favorite items.`\
 https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/michael-mccloskey-dead.html
 **The Fed Has to Raise Rates. How Fast to Go Has Officials Divided.**\
 `The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
 https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
-
-**Red Flags**\
-`We look into the history of the ICE officer who fatally shot a Colombian migrant in Maine.`\
-https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
 
