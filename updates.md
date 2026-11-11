@@ -1,3 +1,11 @@
+**Appeals Court Blocks Trump Administration Demand for Journalists’ LinkedIn Data**\
+`The court said that the request was too broad and could reveal numerous unrelated confidential sources.`\
+https://www.nytimes.com/2026/11/10/us/politics/doj-linkedin-data-reporters-trump.html
+
+**Tech Consultant Is Sentenced to 16 Years to Life in Cash App Founder’s Killing**\
+`Nima Momeni was sentenced for the 2023 murder of Bob Lee, a killing that initially set off crime fears in San Francisco.`\
+https://www.nytimes.com/2026/11/10/us/bob-lee-cash-app-murder-sentencing.html
+
 **Bessent Is Moved From D.C.-Area Home to Military Base Amid Iranian Threats**\
 `The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
 https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html

@@ -1,3 +1,11 @@
+**Appeals Court Blocks Trump Administration Demand for Journalists’ LinkedIn Data**\
+`The court said that the request was too broad and could reveal numerous unrelated confidential sources.`\
+https://www.nytimes.com/2026/11/10/us/politics/doj-linkedin-data-reporters-trump.html
+
+**Tech Consultant Is Sentenced to 16 Years to Life in Cash App Founder’s Killing**\
+`Nima Momeni was sentenced for the 2023 murder of Bob Lee, a killing that initially set off crime fears in San Francisco.`\
+https://www.nytimes.com/2026/11/10/us/bob-lee-cash-app-murder-sentencing.html
+
 **How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
 `Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
 https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/opinion/ai-consciousness.html
 **Tony Butala, Member of the Lettermen, Has Died**\
 `His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
 https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
-
-**Weil Gotshal Partners Vote to Shut Down After Nearly a Century**\
-`The large law firm, known for its powerful bankruptcy practice, started coming apart as prominent partners moved to other firms.`\
-https://www.nytimes.com/2026/11/10/business/weil-gotshal-shut-down.html
-
-**In Interview, Sonia Gandhi Recalls Love and Loss in India**\
-`In a new memoir and interview, the Italian-born woman who married into the Nehru-Gandhi dynasty recalls her political battles and the assassinations of her husband and mother-in-law.`\
-https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html
 
