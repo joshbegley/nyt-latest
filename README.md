@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
 
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
-`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible. Watch the livestream.`\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
 
 **Kenya Starts Countdown to End of Ebola Outbreak**\
