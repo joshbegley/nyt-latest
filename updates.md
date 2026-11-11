@@ -1,3 +1,23 @@
+**Building Partially Collapses in Brooklyn, Trapping People**\
+`The three-story structure in Flatbush collapsed just after 4 p.m.`\
+https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
+
+**Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
+`Chastain will portray an actress with dementia whose most vivid memories are of rehearsing for the title role in “King Lear.”`\
+https://www.nytimes.com/2026/11/11/theater/jessica-chastain-broadway-lost-lear.html
+
+**Jensen Huang Betrayed the Leather Jacket Community**\
+`One man’s fleshly failures should not impugn our second skins.`\
+https://www.nytimes.com/2026/11/11/opinion/jensen-huang-leather-jacket.html
+
+**Jensen Huang Said to Have Had Relationship With Nvidia Executive Who Reports to Him**\
+`Mr. Huang, Nvidia’s chief executive, is already facing scrutiny over an affair with a Chinese businesswoman who U.S. intelligence determined was a Chinese spy.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html
+
+**A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
+`The upheaval points to a broader dilemma spurred by the election: whether the department can carry out President Trump’s priorities as career officials eye the exits and senior department officials resign.`\
+https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
+
 **Workers in Spain Hold General Strike for First Time in 14 Years**\
 `Workers across Spain went on strike, protesting against rising housing costs and stagnant wages ahead of the national election in November.`\
 https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-election.html

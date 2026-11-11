@@ -1,9 +1,25 @@
+**Building Partially Collapses in Brooklyn, Trapping People**\
+`The three-story structure in Flatbush collapsed just after 4 p.m.`\
+https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
+
+**Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
+`Chastain will portray an actress with dementia whose most vivid memories are of rehearsing for the title role in “King Lear.”`\
+https://www.nytimes.com/2026/11/11/theater/jessica-chastain-broadway-lost-lear.html
+
+**Jensen Huang Betrayed the Leather Jacket Community**\
+`One man’s fleshly failures should not impugn our second skins.`\
+https://www.nytimes.com/2026/11/11/opinion/jensen-huang-leather-jacket.html
+
+**Jensen Huang Said to Have Had Relationship With Nvidia Executive Who Reports to Him**\
+`Mr. Huang, Nvidia’s chief executive, is already facing scrutiny over an affair with a Chinese businesswoman who U.S. intelligence determined was a Chinese spy.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html
+
 **Workers in Spain Hold General Strike for First Time in 14 Years**\
 `Workers across Spain went on strike, protesting against rising housing costs and stagnant wages ahead of the national election in November.`\
 https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-election.html
 
 **A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
-`The department, which has already seen the exodus of hundreds of career officials who were forced out or left, faces a daunting new staffing dilemma spurred by the election.`\
+`The upheaval points to a broader dilemma spurred by the election: whether the department can carry out President Trump’s priorities as career officials eye the exits and senior department officials resign.`\
 https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
 
 **How to Be a Better Gift Giver: Expert Advice and Picks**\
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/11/11/opinion/lived-experience-novelists-artists.ht
 **A Chain Smoker Moved Into the Apartment Downstairs. Help!**\
 `A distressed reader wonders what options she has now that a neighbor’s cigarette smoke is preventing her from enjoying her balcony.`\
 https://www.nytimes.com/2026/11/11/style/secondhand-smoke-neighbor-apartment.html
-
-**Anthropic’s I.P.O. and the Clubby Business of A.I.**\
-`Some of the biggest investors in the artificial intelligence giant’s upcoming listing are also some of its most important business partners.`\
-https://www.nytimes.com/2026/11/11/business/dealbook/anthropic-ipo-nvidia.html
-
-**How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
-`The telehealth company said that its annualized revenue had grown nearly tenfold since it revamped its business and embraced weight-loss treatments.`\
-https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
-
-**‘Fight Harder,’ U.N. Chief António Guterres Implores, Rousing Climate Ambassadors at COP31**\
-`The United Nations secretary general, António Guterres, spoke at COP31, a meeting aimed at reducing emissions, amid a sharp drop in attendance by world leaders.`\
-https://www.nytimes.com/2026/11/11/climate/cop31-antonio-guterres-un.html
-
-**Michael McCloskey Has Died. He Helped Make the Sierra Club a Political Force.**\
-`As executive director of the group from 1969 to 1985, he aligned its disparate local chapters and offices into a powerful lobby in Washington. He was 92.`\
-https://www.nytimes.com/2026/11/11/us/michael-mccloskey-dead.html
 
