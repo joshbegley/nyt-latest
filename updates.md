@@ -1,3 +1,15 @@
+**Trump Officials Clashed Over Firm at Heart of Nvidia Affair**\
+`Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
+https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
+
+**Trump’s Reign of Terror Isn’t Over**\
+`Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
+https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
+
+**Nvidia Scandal Unveils a Fierce Spy War Raging Behind Trump and Xi’s Diplomacy**\
+`That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
+https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
+
 **Silicon Valley Tech Allies Support Jensen Huang**\
 `Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be Chinese spy as a personal lapse, not a security failure.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
