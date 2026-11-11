@@ -1,3 +1,95 @@
+**In ‘The Ripple, the Wave That Carried Me Home,’ Currents of Racism**\
+`One couple fights for swimming pool integration, and their daughter walks away from the battle, in Christina Anderson’s pensive play.`\
+https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-home-review.html
+
+**Entertainment 360 Acquires Brigade, a Management Firm Rich in Substackers**\
+`With the purchase of Brigade, a small talent firm, Substack writers and podcast hosts are now managed by the same company as movie stars.`\
+https://www.nytimes.com/2026/11/11/style/brigade-entertainment-360-acquisition-max-stein.html
+
+**Word of the Day: chassis**\
+`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/11/learning/word-of-the-day-chassis.html
+
+**Book Review: ‘The Absent Woman,’ by Eve Sneider**\
+`The first biography of the formidable journalist draws on her archives to expose the complex — and contradictory — human being behind the legend.`\
+https://www.nytimes.com/2026/11/11/books/review/the-absent-woman-eve-sneider.html
+
+**Why Is It So Hard to Teach A.I. Agents to Behave? Researchers Have a Theory.**\
+`The makers of A.I. want to build systems that follow human direction, without resisting or deceiving their operators.`\
+https://www.nytimes.com/2026/11/11/magazine/ai-behavior-incorrigible.html
+
+**How Much Does Being Able to Drive Matter to You?**\
+`Why do you think fewer teenagers today are rushing to get their driver’s license?`\
+https://www.nytimes.com/2026/11/11/learning/how-much-does-being-able-to-drive-matter-to-you.html
+
+**Is Brain Stacking, TIkTok’s New Trend, the Cure to Doomscrolling?**\
+`A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
+https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html
+
+**Satellite Imagery Is Being Restricted. The U.S. Government Is to Blame.**\
+`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
+https://www.nytimes.com/2026/11/11/opinion/satellite-images-us-government.html
+
+**Hospitals Brace for Medicaid Work Rules and Deep Funding Cuts**\
+`Health systems are racing to guide millions of patients through new eligibility hoops, slated to go into effect Jan. 1.`\
+https://www.nytimes.com/2026/11/11/business/hospitals-medicaid-cuts.html
+
+**How Do I Create a Gallery Wall Without Spending Years Amassing Art?**\
+`To make a gallery wall that feels like it was collected over time, you must first embody the spirit of a collector.`\
+https://www.nytimes.com/2026/11/11/realestate/gallery-wall-how-to-collect.html
+
+**Kit Kemp Shares 5 Things She Wishes She’d Made**\
+`The designer Kit Kemp on five big ideas she wishes she could claim as her own.`\
+https://www.nytimes.com/2026/11/11/t-magazine/kit-kemp-favorite-things.html
+
+**‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
+`MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
+https://www.nytimes.com/2026/11/11/arts/design/hard-art-asks-hard-questions-about-daring-to-be-abstract.html
+
+**ICE Officer Involved in Maine Shooting Expressed Anti-Immigrant Hatred**\
+`The agent talked of foreign bloodlines, denounced noncitizens and more, according to emails obtained by The Times. His fatal shooting of a Colombian-born motorist in July remains under investigation.`\
+https://www.nytimes.com/2026/11/11/us/david-brouillette-ice-maine-shooting-anti-immigrant-hatred.html
+
+**25 Years After the Anthrax Attacks, America Remains Vulnerable**\
+`Letters filled with anthrax spores exposed flaws in the United States’ biosecurity systems. Experts say many of those issues still exist.`\
+https://www.nytimes.com/2026/11/11/science/25-years-since-anthrax-attacks-vulnerability.html
+
+**They’re in Ukraine. Why Do Their Phones Say They’re in Peru?**\
+`GPS-linked devices have been insisting that Ukrainians are in Lima, the Peruvian capital. The culprit is a jamming system built to thwart Russian airstrikes.`\
+https://www.nytimes.com/2026/11/11/world/europe/ukraine-lima-electronic-warefare-gps.html
+
+**Should I Have Eyelid Surgery?**\
+`An increasing number of people are seeking blepharoplasty, and patients under 35 represent the fastest growing group.`\
+https://www.nytimes.com/2026/11/11/well/blepharoplasty-eyelid-surgery.html
+
+**Robert Greene, Who Wrote “The 48 Laws of Power,” Bible of the Manosphere, Is Going Zen**\
+`After winning over fans like Joe Rogan, Theo Von and 50 Cent with his lessons in ruthlessness, the author Robert Greene now wants to cultivate the sublime.`\
+https://www.nytimes.com/2026/11/11/style/robert-greene-48-laws-of-power-sublime.html
+
+**4 New Poetry Books to Bring You the World**\
+`In their newest collections, Fady Joudah, Melissa Range, Maya C. Popa and Daljit Nagra survey the world and plumb the soul.`\
+https://www.nytimes.com/2026/11/11/books/review/new-poetry-fady-joudah-exhibit-g-maya-popa.html
+
+**Nonreligious Pilgrims? Why Secular Travelers Are Flocking to Sacred Spaces.**\
+`Burned out and searching for answers, many travelers are turning to ancient walking routes and hidden cloisters to find stillness and renewal.`\
+https://www.nytimes.com/2026/11/11/travel/nonreligious-pilgrims.html
+
+**Isaiah Rashad’s Most Powerful Secret Was Himself**\
+`After the leak of private video footage upended his life, the rapper took a more open approach to making music. It resulted in the best album of his career.`\
+https://www.nytimes.com/2026/11/11/arts/music/isaiah-rashad-interview-profile.html
+
+**‘The Flying Ace,’ Silent Film With All-Black Cast, Gets a Soaring Score**\
+`In 1926, a white director and all-Black cast filmed “The Flying Ace” in Florida. Six Black composers are giving it a full musical treatment with the Jacksonville Symphony.`\
+https://www.nytimes.com/2026/11/11/arts/music/the-flying-ace-silent-movie-jacksonville-symphony.html
+
+**Subtle Changes in Speech May Help Predict Dementia Risk**\
+`Signals can be detected in the way people talk years before symptoms of cognitive decline emerge, researchers are finding.`\
+https://www.nytimes.com/2026/11/11/well/speech-changes-speed-test-alzheimers-dementia.html
+
+**Could Your Voice Predict Your Dementia Risk?**\
+`Researchers are increasingly embracing what was once considered an intriguing but relatively fringe idea: that subtle changes in speech can help predict and track cognitive decline. Pam Belluck, a reporter for Well, explains the science and what it might mean for millions facing dementia and other neurodegenerative conditions.`\
+https://www.nytimes.com/video/well/100000010992847/dementia-predict-voice-speech.html
+
 **What We Lose When Satellite Images Go Dark**\
 `There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
 https://www.nytimes.com/video/opinion/100000011242544/what-we-lose-when-satellite-images-go-dark.html

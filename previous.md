@@ -1,3 +1,95 @@
+**In ‘The Ripple, the Wave That Carried Me Home,’ Currents of Racism**\
+`One couple fights for swimming pool integration, and their daughter walks away from the battle, in Christina Anderson’s pensive play.`\
+https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-home-review.html
+
+**Entertainment 360 Acquires Brigade, a Management Firm Rich in Substackers**\
+`With the purchase of Brigade, a small talent firm, Substack writers and podcast hosts are now managed by the same company as movie stars.`\
+https://www.nytimes.com/2026/11/11/style/brigade-entertainment-360-acquisition-max-stein.html
+
+**Word of the Day: chassis**\
+`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/11/learning/word-of-the-day-chassis.html
+
+**Book Review: ‘The Absent Woman,’ by Eve Sneider**\
+`The first biography of the formidable journalist draws on her archives to expose the complex — and contradictory — human being behind the legend.`\
+https://www.nytimes.com/2026/11/11/books/review/the-absent-woman-eve-sneider.html
+
+**Why Is It So Hard to Teach A.I. Agents to Behave? Researchers Have a Theory.**\
+`The makers of A.I. want to build systems that follow human direction, without resisting or deceiving their operators.`\
+https://www.nytimes.com/2026/11/11/magazine/ai-behavior-incorrigible.html
+
+**How Much Does Being Able to Drive Matter to You?**\
+`Why do you think fewer teenagers today are rushing to get their driver’s license?`\
+https://www.nytimes.com/2026/11/11/learning/how-much-does-being-able-to-drive-matter-to-you.html
+
+**Is Brain Stacking, TIkTok’s New Trend, the Cure to Doomscrolling?**\
+`A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
+https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html
+
+**Satellite Imagery Is Being Restricted. The U.S. Government Is to Blame.**\
+`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
+https://www.nytimes.com/2026/11/11/opinion/satellite-images-us-government.html
+
+**Hospitals Brace for Medicaid Work Rules and Deep Funding Cuts**\
+`Health systems are racing to guide millions of patients through new eligibility hoops, slated to go into effect Jan. 1.`\
+https://www.nytimes.com/2026/11/11/business/hospitals-medicaid-cuts.html
+
+**How Do I Create a Gallery Wall Without Spending Years Amassing Art?**\
+`To make a gallery wall that feels like it was collected over time, you must first embody the spirit of a collector.`\
+https://www.nytimes.com/2026/11/11/realestate/gallery-wall-how-to-collect.html
+
+**Kit Kemp Shares 5 Things She Wishes She’d Made**\
+`The designer Kit Kemp on five big ideas she wishes she could claim as her own.`\
+https://www.nytimes.com/2026/11/11/t-magazine/kit-kemp-favorite-things.html
+
+**‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
+`MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
+https://www.nytimes.com/2026/11/11/arts/design/hard-art-asks-hard-questions-about-daring-to-be-abstract.html
+
+**ICE Officer Involved in Maine Shooting Expressed Anti-Immigrant Hatred**\
+`The agent talked of foreign bloodlines, denounced noncitizens and more, according to emails obtained by The Times. His fatal shooting of a Colombian-born motorist in July remains under investigation.`\
+https://www.nytimes.com/2026/11/11/us/david-brouillette-ice-maine-shooting-anti-immigrant-hatred.html
+
+**25 Years After the Anthrax Attacks, America Remains Vulnerable**\
+`Letters filled with anthrax spores exposed flaws in the United States’ biosecurity systems. Experts say many of those issues still exist.`\
+https://www.nytimes.com/2026/11/11/science/25-years-since-anthrax-attacks-vulnerability.html
+
+**They’re in Ukraine. Why Do Their Phones Say They’re in Peru?**\
+`GPS-linked devices have been insisting that Ukrainians are in Lima, the Peruvian capital. The culprit is a jamming system built to thwart Russian airstrikes.`\
+https://www.nytimes.com/2026/11/11/world/europe/ukraine-lima-electronic-warefare-gps.html
+
+**Should I Have Eyelid Surgery?**\
+`An increasing number of people are seeking blepharoplasty, and patients under 35 represent the fastest growing group.`\
+https://www.nytimes.com/2026/11/11/well/blepharoplasty-eyelid-surgery.html
+
+**Robert Greene, Who Wrote “The 48 Laws of Power,” Bible of the Manosphere, Is Going Zen**\
+`After winning over fans like Joe Rogan, Theo Von and 50 Cent with his lessons in ruthlessness, the author Robert Greene now wants to cultivate the sublime.`\
+https://www.nytimes.com/2026/11/11/style/robert-greene-48-laws-of-power-sublime.html
+
+**4 New Poetry Books to Bring You the World**\
+`In their newest collections, Fady Joudah, Melissa Range, Maya C. Popa and Daljit Nagra survey the world and plumb the soul.`\
+https://www.nytimes.com/2026/11/11/books/review/new-poetry-fady-joudah-exhibit-g-maya-popa.html
+
+**Nonreligious Pilgrims? Why Secular Travelers Are Flocking to Sacred Spaces.**\
+`Burned out and searching for answers, many travelers are turning to ancient walking routes and hidden cloisters to find stillness and renewal.`\
+https://www.nytimes.com/2026/11/11/travel/nonreligious-pilgrims.html
+
+**Isaiah Rashad’s Most Powerful Secret Was Himself**\
+`After the leak of private video footage upended his life, the rapper took a more open approach to making music. It resulted in the best album of his career.`\
+https://www.nytimes.com/2026/11/11/arts/music/isaiah-rashad-interview-profile.html
+
+**‘The Flying Ace,’ Silent Film With All-Black Cast, Gets a Soaring Score**\
+`In 1926, a white director and all-Black cast filmed “The Flying Ace” in Florida. Six Black composers are giving it a full musical treatment with the Jacksonville Symphony.`\
+https://www.nytimes.com/2026/11/11/arts/music/the-flying-ace-silent-movie-jacksonville-symphony.html
+
+**Subtle Changes in Speech May Help Predict Dementia Risk**\
+`Signals can be detected in the way people talk years before symptoms of cognitive decline emerge, researchers are finding.`\
+https://www.nytimes.com/2026/11/11/well/speech-changes-speed-test-alzheimers-dementia.html
+
+**Could Your Voice Predict Your Dementia Risk?**\
+`Researchers are increasingly embracing what was once considered an intriguing but relatively fringe idea: that subtle changes in speech can help predict and track cognitive decline. Pam Belluck, a reporter for Well, explains the science and what it might mean for millions facing dementia and other neurodegenerative conditions.`\
+https://www.nytimes.com/video/well/100000010992847/dementia-predict-voice-speech.html
+
 **What We Lose When Satellite Images Go Dark**\
 `There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
 https://www.nytimes.com/video/opinion/100000011242544/what-we-lose-when-satellite-images-go-dark.html
@@ -105,96 +197,4 @@ https://www.nytimes.com/2026/11/10/us/bob-lee-cash-app-murder-sentencing.html
 **How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
 `Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
 https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html
-
-**Trump Trots Out His Chaotic Greatest Hits to a Weary Public**\
-`As he braces for Democrats to assume legislative control in Washington, President Trump has sought to take back center stage with some discordant maneuvers.`\
-https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.html
-
-**Storms Slam British Columbia and California Is Next**\
-`Northern California is likely to record some of its heaviest rain so far this season later this week.`\
-https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
-
-**Bessent Is Moved From D.C.-Area Home to Military Base Amid Iranian Threats**\
-`The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
-https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html
-
-**ICE Deportation Flight Carrying Iranians Turns Back and Lands in Arizona**\
-`The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
-https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html
-
-**Ballot Deadlines Pass in Mississippi Senate Race After Considerable Struggles**\
-`The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
-https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
-
-**New Research Compares Long-Term Relief From 21 Antidepressants**\
-`In the meta-analysis, a few drugs stood out for offering greater effectiveness over time.`\
-https://www.nytimes.com/2026/11/10/well/mind/antidepressants-efficacy-work.html
-
-**The Evening: House Republicans Shelve Hegseth Impeachment**\
-`Plus, worrisome inflation numbers. Here’s the latest at the end of Tuesday.`\
-https://www.nytimes.com/2026/11/10/briefing/hegseth-impeachment-inflation.html
-
-**Representative María Elvira Salazar Wins Re-Election in Florida**\
-`Ms. Salazar, a Republican, had released an ad in which she said the White House had “gone too far” on immigration amid worries of Hispanic voter backlash within her party.`\
-https://www.nytimes.com/2026/11/10/us/politics/florida-house-27-salazar-rodriguez.html
-
-**Release of Meghan Markle’s Father Is Revoked After Ankle Monitor Removal**\
-`Thomas Markle Sr., who is facing charges of possession of child sexual abuse images, had his house arrest rescinded by a federal judge in Florida.`\
-https://www.nytimes.com/2026/11/10/us/thomas-markle-ankle-monitor-jail.html
-
-**Did AI Make This NYC Gay Bar?**\
-`Before it can serve its first vodka soda, a Hell’s Kitchen bar has come under snarky and unsparing criticism for what some see as its lack of sidewalk appeal.`\
-https://www.nytimes.com/2026/11/10/style/pride-bar-hells-kitchen-ai.html
-
-**Failed Plot to Attack U.K. Was Directed From New York Jail, U.S. Says**\
-`Prosecutors say Mohammad Baqer Saad Dawood al-Saadi, a leader of an Iranian-backed militia, passed along coded messages that were delivered to operatives working on behalf of Iran.`\
-https://www.nytimes.com/2026/11/10/nyregion/iran-britain-plot-foiled-attack.html
-
-**Republicans Turn Back Effort to Impeach Hegseth**\
-`The G.O.P. banded together to shelve impeachment articles against the defense secretary, sparing him from a damaging rebuke and potential ouster.`\
-https://www.nytimes.com/2026/11/10/us/politics/house-hegseth-impeachment-vote.html
-
-**Kennedys Join Suit to Block Trump’s Arch, Saying It Would Mar J.F.K. Gravesite**\
-`The legal filing argues that the arch would cast a shadow on Kennedy family graves and disrupt the sightline from the eternal flame memorializing the former president.`\
-https://www.nytimes.com/2026/11/10/us/politics/kennedy-trump-arch-lawsuit.html
-
-**Animating ‘Living With a Visionary’**\
-`The animator and director Stephen P. Neary spent three years working in a shed in his backyard to animate the Op-Docs film “Living With a Visionary.” The film is based on the poet John Mathias’s memoir, which tells the story of how, after 50 years of marriage, he found himself caring for his wife, an art curator grappling with Parkinson’s disease. Stephen reached out to John in 2022 about adapting his words into an animated short film inspired by the work of the Canadian animator Frédéric Back. As artists worry about the impact of A.I. on the animation industry, Stephen found it extremely satisfying to hand-render the thousands of drawings on overlapping layers of vellum and watercolor paper. Watch the full film.`\
-https://www.nytimes.com/video/opinion/100000011274893/animating-living-with-a-visionary.html
-
-**Trump Officials Drop Threat to Colorado School District Over Transgender Issues**\
-`Trump administration officials had accused the district of allowing boys on girls’ teams, which they said violated a ban on sex discrimination in schools.`\
-https://www.nytimes.com/2026/11/10/us/politics/trump-colorado-transgender.html
-
-**Footage Shows Nvidia C.E.O. With Businesswoman Alice Huang**\
-`Photos and videos show multiple meetings between Nvidia’s C.E.O., Jensen Huang, and Alice Huang, a businesswoman who U.S. intelligence identified as a spy for China.`\
-https://www.nytimes.com/video/world/100000011275138/nvidia-jensen-huang-china-espionage-trump.html
-
-**It’s Time for Israelis to Throw Out Their Trump**\
-`The U.S. midterm election results should be a lesson to the Israeli opposition in rallying against Netanyahu.`\
-https://www.nytimes.com/2026/11/10/opinion/israel-elections-netanyahu-eisenkot-trump.html
-
-**Stanley Zabar Has Died. He Managed the Books, and the Slaw, at an N.Y.C. Landmark.**\
-`Zabar’s, a family business, became a renowned food emporium, which he ran with his brother Saul and another partner. He was 94.`\
-https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
-
-**Firing of Voice of America Chief Was Illegal, Appeals Court Rules**\
-`The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
-https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
-
-**Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
-`The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
-https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
-
-**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
-`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
-https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
-
-**Restaurant Review: El Califa de León in New York**\
-`On the bright side, there are more great options than ever in New York.`\
-https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-nyc.html
-
-**Will N.Y. Democrats Use Their Supermajority to Push Hochul to the Left?**\
-`Democratic socialists have expanded their political influence in New York, potentially setting up a showdown with the state’s moderate governor over raising taxes.`\
-https://www.nytimes.com/2026/11/10/nyregion/supermajority-new-york.html
 
