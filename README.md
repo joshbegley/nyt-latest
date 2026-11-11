@@ -1,3 +1,7 @@
+**Bernie Sanders Opposes Schumer as Majority Leader**\
+`The progressive leader was among a few Democrats who signaled skepticism about Senator Chuck Schumer of New York, though his allies offered support and called for party unity.`\
+https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-opposes-schumer-as-majority-leader.html
+
 **Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
 `He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
 https://www.nytimes.com/2026/11/10/arts/stacy-keach-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
 **Novaya Gazeta, Russia’s Bravest Newspaper, Closes**\
 `For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
 https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
-
-**Is Your Chatbot Conscious, or Just Code?**\
-`Readers respond to an Opinion guest essay about whether artificial intelligence can be conscious. Also: Justice in California; the White House ballroom.`\
-https://www.nytimes.com/2026/11/10/opinion/ai-consciousness.html
 
