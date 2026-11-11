@@ -1,5 +1,21 @@
+**Quote of the Day: Leo Is Pope. But in Argentina, Francis Looms as the Forever Pope.**\
+`Quotation of the Day for Wednesday, November 11, 2026.`\
+https://www.nytimes.com/2026/11/11/pageoneplus/quote-of-the-day-leo-is-pope-but-in-argentina-francis-looms-as-the-forever-pope.html
+
+**The United States Is Skipping COP31 in Turkey**\
+`President Trump refused to send an American delegation to the United Nations climate summit in Turkey.`\
+https://www.nytimes.com/2026/11/11/climate/trump-cop31-climate-turkey.html
+
+**On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
+`The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
+https://www.nytimes.com/2026/11/11/world/africa/on-dakars-packed-beaches-africa-welcomes-its-first-youth-olympics.html
+
+**From the Front Page: Fighting in World War I Ends on Nov. 11, 1918**\
+`An armistice between the Allies and Germany halted combat.`\
+https://www.nytimes.com/2026/11/11/learning/from-the-front-page-fighting-in-world-war-i-ends-on-nov-11-1918.html
+
 **Canadian Authorities Kill 4 Bears Involved in Deadly Attack on Hikers**\
-`Wildlife authorities said evidence, including animal DNA, conclusively linked the sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
+`Wildlife authorities said evidence, including animal DNA, conclusively linked a sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
 https://www.nytimes.com/2026/11/10/world/canada/british-columbia-bear-attack.html
 
 **Alina Habba Mildon Faces Discipline Over Settlement at Trump Golf Club**\
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaw
 **US Soldier Is Arrested in UK on Suspicion of Spying for Russia**\
 `The 41-year-old man, who was not named, was in custody pending possible charges after a joint investigation with the F.B.I. and U.S. military intelligence.`\
 https://www.nytimes.com/2026/11/10/world/europe/uk-us-army-arrest-espionage-russia.html
-
-**U.S. Marshals Detain Man Accused of 3 Rapes in Central Park**\
-`Dereck Rivera-Deleon, 30, was apprehended while working at a Burger King in Miami. The most recent attack happened on the east side of the park in October.`\
-https://www.nytimes.com/2026/11/10/nyregion/nyc-central-park-rape-arrest.html
-
-**My Flight With King Charles**\
-`A reporter who has traveled on Air Force One with U.S. presidents flew to the Bahamas with the monarch. What was royal travel like?`\
-https://www.nytimes.com/2026/11/10/insider/king-charles-royal-flight-caribbean.html
-
-**Alina Habba Mildon Loses $50 Million Contract That Enraged Trump**\
-`The former Trump lawyer had signed the contract with a family company weeks before the president gave the family’s patriarch a pardon.`\
-https://www.nytimes.com/2026/11/10/us/politics/alina-habba-fired-pardon.html
-
-**Rubio Says ‘Major Combat Operations’ in Iran War Are No Longer Needed**\
-`The U.S. secretary of state said that American economic pressure is doing sufficient damage to the leadership in Tehran.`\
-https://www.nytimes.com/2026/11/10/us/politics/rubio-iran-war.html
 

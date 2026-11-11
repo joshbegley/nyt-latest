@@ -1,3 +1,23 @@
+**Quote of the Day: Leo Is Pope. But in Argentina, Francis Looms as the Forever Pope.**\
+`Quotation of the Day for Wednesday, November 11, 2026.`\
+https://www.nytimes.com/2026/11/11/pageoneplus/quote-of-the-day-leo-is-pope-but-in-argentina-francis-looms-as-the-forever-pope.html
+
+**The United States Is Skipping COP31 in Turkey**\
+`President Trump refused to send an American delegation to the United Nations climate summit in Turkey.`\
+https://www.nytimes.com/2026/11/11/climate/trump-cop31-climate-turkey.html
+
+**On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
+`The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
+https://www.nytimes.com/2026/11/11/world/africa/on-dakars-packed-beaches-africa-welcomes-its-first-youth-olympics.html
+
+**From the Front Page: Fighting in World War I Ends on Nov. 11, 1918**\
+`An armistice between the Allies and Germany halted combat.`\
+https://www.nytimes.com/2026/11/11/learning/from-the-front-page-fighting-in-world-war-i-ends-on-nov-11-1918.html
+
+**Canadian Authorities Kill 4 Bears Involved in Deadly Attack on Hikers**\
+`Wildlife authorities said evidence, including animal DNA, conclusively linked a sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
+https://www.nytimes.com/2026/11/10/world/canada/british-columbia-bear-attack.html
+
 **Canadian Authorities Kill 4 Bears Involved in Deadly Attack on Hikers**\
 `Wildlife authorities said evidence, including animal DNA, conclusively linked the sow and her three cubs to the deaths of two women along a hiking trail in British Columbia.`\
 https://www.nytimes.com/2026/11/10/world/canada/british-columbia-bear-attack.html
