@@ -1,3 +1,7 @@
+**Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
+`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can stop them.`\
+https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
+
 **Recalling the S.S. United States as It Becomes a Florida Reef**\
 `A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
 https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memories.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/podcasts/supermodel-cult-boyfriend-hoyt-richa
 **A Chart Truce Brings YouTube Back to Billboard**\
 `A feud over what a stream is worth caused the online video giant to withdraw its data from Billboard’s charts, a move that disadvantaged some artists and genres.`\
 https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-data.html
-
-**This Trader Raised Alarm About Nvidia’s China Entanglements Months Ago**\
-`Christian Lamarco, a 31-year-old short seller and trader, warned about financial and personal problems at Nvidia in May.`\
-https://www.nytimes.com/2026/11/11/business/nvidia-megaspeed-christian-lamarco.html
 
