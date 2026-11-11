@@ -1,3 +1,7 @@
+**Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
+`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can stop them.`\
+https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
+
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
 `The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
