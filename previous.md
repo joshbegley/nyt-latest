@@ -1,3 +1,7 @@
+**Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
+`He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
+https://www.nytimes.com/2026/11/10/arts/stacy-keach-dead.html
+
 **Appeals Court Blocks Trump Administration Demand for Journalists’ LinkedIn Data**\
 `The court said that the request was too broad and could reveal numerous unrelated confidential sources.`\
 https://www.nytimes.com/2026/11/10/us/politics/doj-linkedin-data-reporters-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.htm
 **Is Your Chatbot Conscious, or Just Code?**\
 `Readers respond to an Opinion guest essay about whether artificial intelligence can be conscious. Also: Justice in California; the White House ballroom.`\
 https://www.nytimes.com/2026/11/10/opinion/ai-consciousness.html
-
-**Tony Butala, Member of the Lettermen, Has Died**\
-`His squeaky-clean vocal trio, the Lettermen, survived the Beatles and Jimi Hendrix to pepper the pop charts with lush, retro-tinged songs. He was 87.`\
-https://www.nytimes.com/2026/11/10/obituaries/tony-butala-dead.html
 

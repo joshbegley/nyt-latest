@@ -1,3 +1,7 @@
+**Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
+`He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
+https://www.nytimes.com/2026/11/10/arts/stacy-keach-dead.html
+
 **Appeals Court Blocks Trump Administration Demand for Journalists’ LinkedIn Data**\
 `The court said that the request was too broad and could reveal numerous unrelated confidential sources.`\
 https://www.nytimes.com/2026/11/10/us/politics/doj-linkedin-data-reporters-trump.html
