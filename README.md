@@ -96,7 +96,7 @@ https://www.nytimes.com/2026/11/11/realestate/car-free-living-where-it-works-bes
 
 **Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
 `Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
-https://www.nytimes.com/2026/11/11/us/politics/melania-trumps-initiative-for-women-appears-at-odds-with-dei-crackdown.html
+https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-programs.html
 
 **My I.R.L. Adventures in the Land of the Eagle Cam**\
 `I traveled to Big Bear Lake, home of a viral live feed of an eagle’s nest, and found very human shenanigans.`\

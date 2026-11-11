@@ -1,3 +1,7 @@
+**‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
+`MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
+https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-movement.html
+
 **Is Brain Stacking, TikTok’s New Trend, the Cure to Doomscrolling?**\
 `A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
 https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html

@@ -156,7 +156,7 @@ https://www.nytimes.com/2026/11/11/t-magazine/kit-kemp-favorite-things.html
 
 **‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
 `MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
-https://www.nytimes.com/2026/11/11/arts/design/hard-art-asks-hard-questions-about-daring-to-be-abstract.html
+https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-movement.html
 
 **ICE Officer Involved in Maine Shooting Expressed Anti-Immigrant Hatred**\
 `The agent talked of foreign bloodlines, denounced noncitizens and more, according to emails obtained by The Times. His fatal shooting of a Colombian-born motorist in July remains under investigation.`\
