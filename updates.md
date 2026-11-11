@@ -1,3 +1,7 @@
+**How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
+`Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
+https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html
+
 **Trump Trots Out His Chaotic Greatest Hits to a Weary Public**\
 `As he braces for Democrats to assume legislative control in Washington, President Trump has sought to take back center stage with some discordant maneuvers.`\
 https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.html

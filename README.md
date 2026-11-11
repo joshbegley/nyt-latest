@@ -1,7 +1,3 @@
-**How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
-`Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
-https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html
-
 **Trump Trots Out His Chaotic Greatest Hits to a Weary Public**\
 `As he braces for Democrats to assume legislative control in Washington, President Trump has sought to take back center stage with some discordant maneuvers.`\
 https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/11/10/business/weil-gotshal-shut-down.html
 **In Interview, Sonia Gandhi Recalls Love and Loss in India**\
 `In a new memoir and interview, the Italian-born woman who married into the Nehru-Gandhi dynasty recalls her political battles and the assassinations of her husband and mother-in-law.`\
 https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html
+
+**Who Is Alice Huang, the Woman in the Middle of Nvidia’s Spy Scandal?**\
+`Alice Huang, who U.S. intelligence determined is a Chinese asset, emerged from the high-flying world of Shanghai finance to work with tech titans and obtain essential A.I. chips.`\
+https://www.nytimes.com/2026/11/10/technology/alice-huang-megaspeed-nvidia-jensen-huang.html
 
