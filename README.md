@@ -1,3 +1,7 @@
+**What We Lose When Satellite Images Go Dark**\
+`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
+https://www.nytimes.com/video/opinion/100000011242544/what-we-lose-when-satellite-images-go-dark.html
+
 **Lebanon Faces Economic ‘Catastrophe’ After War and Years of Mismanagement**\
 `Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and driving many Lebanese to despair.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/lebanon-economy-crisis-corruption-war.html
@@ -178,13 +182,13 @@ https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
 
-**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
-`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
-https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
-
 **Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
 `The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
 https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
+
+**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
 
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/dining/restaurant-review-el-califa-de-leon-ny
 **Will N.Y. Democrats Use Their Supermajority to Push Hochul to the Left?**\
 `Democratic socialists have expanded their political influence in New York, potentially setting up a showdown with the state’s moderate governor over raising taxes.`\
 https://www.nytimes.com/2026/11/10/nyregion/supermajority-new-york.html
-
-**Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
-`Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
-https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
 

@@ -1,3 +1,7 @@
+**On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
+`The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
+https://www.nytimes.com/2026/11/11/world/africa/youth-olympics-senegal-dakar.html
+
 **Lebanon Faces Economic ‘Catastrophe’ After War and Years of Mismanagement**\
 `Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and driving many Lebanese to despair.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/lebanon-economy-crisis-corruption-war.html
