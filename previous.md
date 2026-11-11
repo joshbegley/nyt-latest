@@ -1,3 +1,7 @@
+**Seeking to Broaden Ukraine Talks, U.S. Urges Russia to Include Europe**\
+`As a round of negotiations ended in Abu Dhabi, President Trump’s envoys said they would go to Moscow as the Kremlin demands discussions on European security structures.`\
+https://www.nytimes.com/2026/11/11/world/europe/russia-ukraine-talks-abu-dhabi.html
+
 **Protesters Throw Projectiles at Biden During Dublin Trip**\
 `Video showed demonstrators from a pro-Palestinian protest throwing projectiles at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin on Tuesday.`\
 https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protesters-attack.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/ilhan-omar-ex-bodyguard-indicted-abdullahi
 **Where Car-Free Living Works Best**\
 `It’s the environmental ideal, but more practical in some places than others.`\
 https://www.nytimes.com/2026/11/11/realestate/car-free-living-where-it-works-best.html
-
-**Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
-`Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
-https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-programs.html
 
