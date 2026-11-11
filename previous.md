@@ -2,8 +2,8 @@
 `The state’s Office of Attorney Ethics recommended discipline for her role in brokering a sexual harassment settlement involving a waitress at the president’s golf club in Bedminster, N.J.`\
 https://www.nytimes.com/2026/11/10/nyregion/alina-habba-ethics-new-jersey-trump.html
 
-**Car Crashes Near Los Angeles Metro Station, Killing at Least 3**\
-`At least three others were critically injured after a vehicle crashed near a North Hollywood station, the authorities said. The cause of the crash was not immediately clear.`\
+**Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
+`At least three others were critically injured after an S.U.V. crashed near a North Hollywood station, the authorities said. The cause was not immediately clear.`\
 https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html
 
 **NYT Crossword Answers for Oct. 11, 2026**\
@@ -122,13 +122,13 @@ https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
 
-**Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
-`The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
-https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
-
 **They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
 `Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
 https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
+
+**Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
+`The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
+https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
 
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
