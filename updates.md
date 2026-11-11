@@ -1,3 +1,11 @@
+**How The Times Covered Mississippi’s Senate Race, Which Unexpectedly Became a Nail-Biter**\
+`Three Times journalists break down the twists and turns in a race that captured national attention.`\
+https://www.nytimes.com/2026/11/11/insider/mississippi-senate-race-coverage.html
+
+**United Airlines Blocks A.I. Agents From Booking Flights**\
+`The carrier said that to protect customers’ information and comply with regulations, it was barring the digital assistants from logging into accounts and managing reservations.`\
+https://www.nytimes.com/2026/11/11/business/united-airlines-ai-agents-booking-flights.html
+
 **5 Things to Know About Democrat Scott Colom, Mississippi’s Next Senator**\
 `Mr. Colom, a prosecutor, will become the first Black senator elected from Mississippi since Reconstruction, more than 150 years ago.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-race.html
