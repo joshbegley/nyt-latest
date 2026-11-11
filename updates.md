@@ -1,3 +1,7 @@
+**Ballot Deadlines Pass in Mississippi Senate Race After Considerable Struggles**\
+`The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
+https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
+
 **How a Misquote by a Supreme Court Justice Imperils Gun Restrictions**\
 `Justice Scalia incorrectly quoted an 18th-century legal scholar in a 2008 opinion — a decision with profound implications today.`\
 https://www.nytimes.com/interactive/2026/11/10/us/supreme-court-guns-misquote.html

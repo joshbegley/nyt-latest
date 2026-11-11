@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.h
 `The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
 https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html
 
-**After Considerable Struggles, Ballot Deadlines Pass in Mississippi**\
+**Ballot Deadlines Pass in Mississippi Senate Race After Considerable Struggles**\
 `The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
 https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
 
