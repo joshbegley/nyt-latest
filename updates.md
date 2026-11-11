@@ -1,3 +1,7 @@
+**From Argentina, a Warning to America’s Tech Right**\
+`Voters are turning on Javier Milei’s dreams of an A.I.-powered Argentina.`\
+https://www.nytimes.com/2026/11/11/opinion/argentina-milei-ai-musk.html
+
 **Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
 `Mayor Zohran Mamdani will begin contract talks with District Council 37, New York City’s largest municipal union, whose leader is seeking worker protections against artificial intelligence.`\
 https://www.nytimes.com/2026/11/11/nyregion/mamdani-dc37-contract-union.html

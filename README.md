@@ -1,3 +1,7 @@
+**United States Absent From United Nations Climate Summit**\
+`President Trump refused to send an American delegation to this year’s United Nations climate summit in Turkey.`\
+https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
+
 **Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
 `Mayor Zohran Mamdani will begin contract talks with District Council 37, New York City’s largest municipal union, whose leader is seeking worker protections against artificial intelligence.`\
 https://www.nytimes.com/2026/11/11/nyregion/mamdani-dc37-contract-union.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/business/anthropic-ipo-nvidia.html
 **Amazon and Google Will See Big Paydays from Anthropic IPO**\
 `Amazon and Google are the largest investors in the A.I. start-up, and their shares could gain hundreds of billions of dollars in value.`\
 https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-google-amazon.html
-
-**Ask DealBook**\
-`Andrew Ross Sorkin wants to hear your questions`\
-https://www.nytimes.com/2026/11/10/briefing/ask-dealbook.html
 

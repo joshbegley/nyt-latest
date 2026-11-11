@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/11/nyregion/measles-new-york-lewis-county-amish.
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/11/crosswords/spelling-bee-forum.html
 
-**Server Farms. Doomsday Bunkers. Has Argentina’s Milei Gone Too Far?**\
+**From Argentina, a Warning to America’s Tech Right**\
 `Voters are turning on Javier Milei’s dreams of an A.I.-powered Argentina.`\
 https://www.nytimes.com/2026/11/11/opinion/argentina-milei-ai-musk.html
 
