@@ -1,3 +1,11 @@
+**Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
+`Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-hints-at-immigration-deal-then-reverses-hes-done-that-before.html
+
+**Court Rules That Sexual Harassment Case Against SpaceX Can Proceed**\
+`The company had argued that the case, involving eight former workers, must be resolved before an arbitrator.`\
+https://www.nytimes.com/2026/11/11/business/sexual-harassment-spacex-elon-musk.html
+
 **Protests Throw Objects at Biden During Dublin Trip**\
 `Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
 https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
