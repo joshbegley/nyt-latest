@@ -1,3 +1,7 @@
+**Bernie Sanders Opposes Schumer as Majority Leader**\
+`The progressive leader was among a few Democrats who signaled skepticism about Senator Chuck Schumer of New York, though his allies offered support and called for party unity.`\
+https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-opposes-schumer-as-majority-leader.html
+
 **Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
 `He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
 https://www.nytimes.com/2026/11/10/arts/stacy-keach-dead.html
