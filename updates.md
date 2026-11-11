@@ -1,3 +1,11 @@
+**‘Fight Harder,’ U.N. Chief António Guterres Implores, Rousing Climate Ambassadors at COP31**\
+`The United Nations secretary general, António Guterres, spoke at COP31, a meeting aimed at reducing emissions, amid a sharp drop in attendance by world leaders.`\
+https://www.nytimes.com/2026/11/11/climate/cop31-antonio-guterres-un.html
+
+**Look Who Has a Southern Strategy**\
+`Republicans pioneered it. Do the Democrats finally have an answer?`\
+https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
+
 **Michael McCloskey Has Died. He Helped Make the Sierra Club a Political Force.**\
 `As executive director of the group from 1969 to 1985, he aligned its disparate local chapters and offices into a powerful lobby in Washington. He was 92.`\
 https://www.nytimes.com/2026/11/11/us/michael-mccloskey-dead.html
