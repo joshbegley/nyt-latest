@@ -1,5 +1,5 @@
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
-`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can stop them.`\
+`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
 https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
 
 **Recalling the S.S. United States as It Becomes a Florida Reef**\
