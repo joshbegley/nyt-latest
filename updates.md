@@ -1,3 +1,7 @@
+**Trump. Miller. Blanche. Jordan. Things Could Get Worse, and They Probably Will.**\
+`Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
+https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
+
 **Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
 `Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
 https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html

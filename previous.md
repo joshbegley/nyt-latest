@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
 `Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
 https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
 
-**Trump’s Reign of Terror Isn’t Over**\
+**Trump. Miller. Blanche. Jordan. Things Could Get Worse, and They Probably Will.**\
 `Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
 https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
 
