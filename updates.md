@@ -1,3 +1,11 @@
+**The Fed Has to Raise Rates. How Fast to Go Has Officials Divided.**\
+`The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
+https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
+
+**The View From Space the U.S. Government Doesn’t Want You to See**\
+`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
+https://www.nytimes.com/2026/11/11/opinion/satellite-images-us-government.html
+
 **Anthropic’s I.P.O. and the Clubby Business of A.I.**\
 `Some of the biggest investors in the artificial intelligence giant’s upcoming listing are also some of its most important business partners.`\
 https://www.nytimes.com/2026/11/11/business/dealbook/anthropic-ipo-nvidia.html
