@@ -174,13 +174,13 @@ https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
 
-**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
-`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
-https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
-
 **Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
 `The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
 https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
+
+**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
 
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
