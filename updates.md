@@ -1,3 +1,27 @@
+**White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
+`As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
+
+**Judge Allows Trump’s Defamation Lawsuit Against the BBC to Proceed**\
+`President Trump is seeking damages from the British broadcaster over a documentary it conceded was misleadingly edited.`\
+https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
+
+**Trump Officials Clashed Over Megaspeed, Firm at Heart of Nvidia Affair**\
+`Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
+https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
+
+**What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
+`Unlike millennial optimism, the post-election victory lap for some younger Democratic voters is imbued with a healthy dose of skepticism.`\
+https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
+
+**Trump Visits Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
+`An expanding legal fight over the proposed site of President Trump’s 250-foot triumphal arch looms over his visit to Arlington National Cemetery on Veterans Day.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.html
+
+**For Families of Those Who Died in the Iran War, a Veterans Day of Profound Loss**\
+`Military families are navigating feelings of grief, pride and anger, as well as seeking answers about the deaths of their loved ones.`\
+https://www.nytimes.com/2026/11/11/us/iran-war-deaths-survivors-veterans-day.html
+
 **Trump Officials Clashed Over Firm at Heart of Nvidia Affair**\
 `Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
 https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html

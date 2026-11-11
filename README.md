@@ -1,3 +1,7 @@
+**Protesters Throw Projectiles at Biden During Dublin Trip**\
+`Video showed demonstrators from a pro-Palestinian protest throwing projectiles at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin on Tuesday.`\
+https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protesters-attack.html
+
 **White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
 `As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/realestate/car-free-living-where-it-works-bes
 **Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
 `Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
 https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-programs.html
-
-**My I.R.L. Adventures in the Land of the Eagle Cam**\
-`I traveled to Big Bear Lake, home of a viral live feed of an eagle’s nest, and found very human shenanigans.`\
-https://www.nytimes.com/2026/11/11/magazine/eagle-cam-big-bear-lake.html
 
