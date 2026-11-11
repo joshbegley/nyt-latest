@@ -1,3 +1,11 @@
+**How a Suspected Chinese Spy Gained Access to Nvidia Chips**\
+`A woman whom U.S. intelligence identified as a Chinese spy had ties to Nvidia’s chief executive, Jensen Huang, dating to at least 2023. Ana Swanson, our reporter on trade and economics, explains what new photos show.`\
+https://www.nytimes.com/video/business/100000011273241/alice-huang-nvidia-china-spy.html
+
+**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
+
 **Read the document**\
 `Office of Attorney Ethics Complaint Against Alina Habba Mildon`\
 https://www.nytimes.com/interactive/2026/11/10/us/ah-amended-complaint-redacted-2.html

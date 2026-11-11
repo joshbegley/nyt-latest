@@ -1,3 +1,7 @@
+**How a Suspected Chinese Spy Gained Access to Nvidia Chips**\
+`A woman whom U.S. intelligence identified as a Chinese spy had ties to Nvidia’s chief executive, Jensen Huang, dating to at least 2023. Ana Swanson, our reporter on trade and economics, explains what new photos show.`\
+https://www.nytimes.com/video/business/100000011273241/alice-huang-nvidia-china-spy.html
+
 **Read the document**\
 `Office of Attorney Ethics Complaint Against Alina Habba Mildon`\
 https://www.nytimes.com/interactive/2026/11/10/us/ah-amended-complaint-redacted-2.html
@@ -106,13 +110,13 @@ https://www.nytimes.com/2026/11/10/obituaries/stanley-zabar-dead.html
 `The unanimous ruling upheld a lower-court decision and was the latest setback to the Trump administration, which has sought to shutter the independent news group.`\
 https://www.nytimes.com/2026/11/10/us/politics/voice-of-america-appeals-court.html
 
+**They Found Love Late in Life, and Then Died Within Weeks of Each Other**\
+`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
+https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
+
 **Toyota Plans to Sell a Kei Pickup Truck in the U.S.**\
 `The automaker plans to sell Americans “Kei” pickup trucks, which are very popular in Japan and with U.S. auto enthusiasts. Even President Trump is a fan.`\
 https://www.nytimes.com/2026/11/10/business/toyota-kei-pickup-truck.html
-
-**They Found Love Late in Life, and Then Died Within Days of Each Other**\
-`Marjorie Shelley, an arts conservator, and Doug Adams, an outdoorsman, discovered they were kindred spirits. She was 81; he was 71.`\
-https://www.nytimes.com/2026/11/10/style/marjorie-shelley-doug-adams-dead.html
 
 **Restaurant Review: El Califa de León in New York**\
 `On the bright side, there are more great options than ever in New York.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/dining/nyc-restaurant-news.html
 **Heavy Rain Triggers Deadly Sand Dune Collapse in Gaza**\
 `Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
 https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
-
-**Nvidia Hires Wachtell Lipton to Investigate CEO Jensen Huang’s Affair With Chinese Executive**\
-`Wachtell partner Joon H. Kim, a former acting U.S. attorney, is leading the inquiry into the chip maker’s chief executive.`\
-https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.html
 
