@@ -1,3 +1,11 @@
+**Protests Throw Objects at Biden During Dublin Trip**\
+`Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
+https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
+
+**An 8-Year-Old Was Separated From Family and Taken by ICE at a Check-In**\
+`The third grader from Haiti had been living with his uncle’s family since his father was deported last year. From a shelter where ICE sent him, “he cried and just begged to come home.”`\
+https://www.nytimes.com/2026/11/11/us/ice-detains-8-year-old.html
+
 **The Russian Scientist Behind the Deadly Novichok Nerve Agents Has Died**\
 `Vladimir Uglev, a lead developer of a Cold War-era chemical weapon used on the dissident Alexei Navalny, later turned against the government. He was 80.`\
 https://www.nytimes.com/2026/11/11/science/vladimir-uglev-dead.html
@@ -23,7 +31,7 @@ https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
 
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
-`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.  Watch the livestream.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
 
 **Kenya Starts Countdown to End of Ebola Outbreak**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/business/energy-environment/winter-heating-oi
 **What Is ‘WhimZ,’ Gen Z’s Take on Millennial Optimism?**\
 `Unlike millennial optimism, the post-election victory lap for some younger Democratic voters is imbued with a healthy dose of skepticism.`\
 https://www.nytimes.com/2026/11/11/style/whimz-gen-z-millennial-optimism.html
-
-**A New Democratic-Tied Dark-Money Group Draws Scrutiny Over Midterm Spending**\
-`More money in the political system is coming from shadowy nonprofits that appear out of nowhere and start spending big with little disclosure.`\
-https://www.nytimes.com/2026/11/11/us/democratic-dark-money-super-pac-complaint.html
-
-**Lots of Competition to Catholicism in Peru as Pope Returns for Visit**\
-`Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned to evangelical churches, seeking a more expressive and direct connection to God.`\
-https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
 

@@ -1,3 +1,15 @@
+**Protests Throw Objects at Biden During Dublin Trip**\
+`Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
+https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
+
+**An 8-Year-Old Was Separated From Family and Taken by ICE at a Check-In**\
+`The third grader from Haiti had been living with his uncle’s family since his father was deported last year. From a shelter where ICE sent him, “he cried and just begged to come home.”`\
+https://www.nytimes.com/2026/11/11/us/ice-detains-8-year-old.html
+
+**The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.  Watch the livestream.`\
+https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
+
 **The Russian Scientist Behind the Deadly Novichok Nerve Agents Has Died**\
 `Vladimir Uglev, a lead developer of a Cold War-era chemical weapon used on the dissident Alexei Navalny, later turned against the government. He was 80.`\
 https://www.nytimes.com/2026/11/11/science/vladimir-uglev-dead.html
