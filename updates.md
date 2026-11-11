@@ -1,3 +1,15 @@
+**Biden Calls His Disastrous 2024 Debate Performance ‘Not Very Consequential’**\
+`A debate against Donald Trump in which Mr. Biden, then the president, repeatedly lost his train of thought led to widespread Democratic pressure to end his campaign, which Mr. Biden eventually did.`\
+https://www.nytimes.com/2026/11/11/us/politics/biden-debate-trump-comments-interview.html
+
+**Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
+`Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-immigration-election-democrats-republicans.html
+
+**Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
+`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
+https://www.nytimes.com/2026/11/11/us/trump-federal-judges-senate-republicans.html
+
 **The Democrats’s Midterm Triumph Teaches A Lesson About America**\
 `This isn’t just about one election. It’s about the heart of the country.`\
 https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
