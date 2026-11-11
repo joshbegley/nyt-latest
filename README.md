@@ -1,4 +1,12 @@
-**Jensen Huang’s Affair Puts His Wife, Lori Huang, In the Spotlight**\
+**Tiny Love Stories: ‘To Shower With a Naked Stranger’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html
+
+**Behind the Trump-Xi Bonhomie, a Fierce Spy War Rages**\
+`That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
+https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
+
+**Nvidia Scandal Puts Lori Huang, Jensen Huang’s Wife, In the Spotlight**\
 `Lori Huang, who has been married to the Nvidia chief executive for more than 40 years, stands out among tech titan spouses for how private she has been.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-lori-huang.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/11/learning/how-much-does-being-able-to-drive-ma
 **Is Brain Stacking, TikTok’s New Trend, the Cure to Doomscrolling?**\
 `A trend promises the antidote to burnout and brain rot. There is some science to back it up.`\
 https://www.nytimes.com/2026/11/11/style/brainstacking-tiktok-hobbies-brain-rot.html
-
-**The View From Space the U.S. Government Doesn’t Want You to See**\
-`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
-https://www.nytimes.com/2026/11/11/opinion/satellite-images-us-government.html
-
-**Hospitals Brace for Medicaid Work Rules and Deep Funding Cuts**\
-`Health systems are racing to guide millions of patients through new eligibility hoops, slated to go into effect Jan. 1.`\
-https://www.nytimes.com/2026/11/11/business/hospitals-medicaid-cuts.html
 
