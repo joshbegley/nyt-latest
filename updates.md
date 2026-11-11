@@ -1,3 +1,7 @@
+**Kenya Starts Countdown to End of Ebola Outbreak**\
+`The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that have come in from Congo.`\
+https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
+
 **Silicon Valley Tech Allies Support Jensen Huang**\
 `Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be a Chinese spy as a personal lapse, not a security failure.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
