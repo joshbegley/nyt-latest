@@ -1,3 +1,11 @@
+**Nvidia’s Board Is Meeting to Discuss Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
+https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
+
+**Building Collapses in Brooklyn, Killing One and Critically Injuring 4**\
+`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday. People were trapped at the site.`\
+https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
+
 **How The Times Covered Mississippi’s Senate Race, Which Unexpectedly Became a Nail-Biter**\
 `Three Times journalists break down the twists and turns in a race that captured national attention.`\
 https://www.nytimes.com/2026/11/11/insider/mississippi-senate-race-coverage.html

@@ -22,7 +22,7 @@ https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 `Scott Colom, a Democrat and prosecutor, is the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
 https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
 
-**Nvidia’s Board Is Expected to Meet to Discuss Jensen Huang’s Future**\
+**Nvidia’s Board Is Meeting to Discuss Jensen Huang’s Future**\
 `Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
 
@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shou
 `The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
 https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
 
-**Building Collapses in Brooklyn, Killing One and Trapping Others**\
-`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday.`\
+**Building Collapses in Brooklyn, Killing One and Critically Injuring 4**\
+`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday. People were trapped at the site.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
 
 **Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
