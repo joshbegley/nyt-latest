@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.htm
 `Northern California is likely to record some of its heaviest rain so far this season later this week.`\
 https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
 
-**Bessent Moved to Military Base In Wake of Iranian Threats**\
+**Bessent Is Moved From D.C.-Area Home to Military Base Amid Iranian Threats**\
 `The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
 https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html
 

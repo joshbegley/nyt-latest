@@ -1,3 +1,7 @@
+**Bessent Is Moved From D.C.-Area Home to Military Base Amid Iranian Threats**\
+`The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
+https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html
+
 **Ballot Deadlines Pass in Mississippi Senate Race After Considerable Struggles**\
 `The tight race between Senator Cindy Hyde-Smith and her Democratic challenger, Scott Colom, has highlighted the difficulties that stringent elections laws present to voters.`\
 https://www.nytimes.com/2026/11/10/us/elections/mississippi-ballots-election-laws.html
