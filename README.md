@@ -1,3 +1,11 @@
+**Recalling the S.S. United States as It Becomes a Florida Reef**\
+`A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
+https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memories.html
+
+**‘Ghost Soldier’ Review: As Good as His Word**\
+`Jim Caviezel stars in this action film as a former Special Forces officer facing off against a ruthless corporate behemoth razing homes in a rural Wyoming town.`\
+https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
+
 **17-Year-Old Is Arrested in Murder of 15-Year-Old in the Bronx**\
 `Javits Frimpong was killed last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
 https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-da
 **This Trader Raised Alarm About Nvidia’s China Entanglements Months Ago**\
 `Christian Lamarco, a 31-year-old short seller and trader, warned about financial and personal problems at Nvidia in May.`\
 https://www.nytimes.com/2026/11/11/business/nvidia-megaspeed-christian-lamarco.html
-
-**Trump Visits Arlington Cemetery as His Proposed Arch Faces Growing Opposition**\
-`An expanding legal fight over the proposed site of President Trump’s 250-foot triumphal arch looms over his visit to Arlington National Cemetery on Veterans Day.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.html
-
-**A Museum’s ‘Wanted’ Poster Campaign Brings Looted Painting Back to France**\
-`The Orléans Fine Arts Museum is on a quest to recover hundreds of works stolen during World War II — and the director wants your help.`\
-https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
 
