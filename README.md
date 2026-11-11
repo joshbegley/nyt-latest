@@ -1,3 +1,11 @@
+**The Democrats’s Midterm Triumph Teaches A Lesson About America**\
+`This isn’t just about one election. It’s about the heart of the country.`\
+https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
+
+**After Hegseth Impeachment Vote Fails, Massie Vows More Tough Votes for GOP In His Final Days**\
+`Representative Thomas Massie, the Kentucky Republican, said he would use his waning time in office to prod his party to vote for “sanity” and break with President Trump.`\
+https://www.nytimes.com/2026/11/11/us/politics/massie-trump-difficult-republican-votes.html
+
 **How Democrats Invested Online to Overcome Their Cash Disadvantage**\
 `Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/crosswords/wordle-review-1972.html
 **Public Schools Have a New Crisis: Not Enough Students**\
 `Across the United States, the number of children in public education is dropping, leading many districts to question whether or where to close schools.`\
 https://www.nytimes.com/2026/11/11/podcasts/the-daily/closing-public-schools-enrollment-crisis.html
-
-**NYT Strands Hints for November 12, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
-https://www.nytimes.com/2026/11/11/crosswords/strands-sidekick-984.html
-
-**Look Who Has a Southern Strategy**\
-`Republicans pioneered it. Do the Democrats finally have an answer?`\
-https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
 
