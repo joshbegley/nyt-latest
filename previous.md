@@ -1,3 +1,11 @@
+**Silicon Valley Tech Allies Support Jensen Huang**\
+`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be Chinese spy as a personal lapse, not a security failure.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
+
+**Workers in Spain Stage a General Strike for the First Time in 14 Years**\
+`Workers in a wide range of industries walked off the job to protest rising rents and stagnant wages, which have become central issues in the campaign.`\
+https://www.nytimes.com/2026/11/11/world/europe/spain-general-strike.html
+
 **‘Cloud 9’: When the Sexual Revolution Was Radical, Messy and Utterly Playful**\
 `A London revival of Caryl Churchill’s satirical 1979 play leans into the exuberance of self-discovery, even as its era of anything-goes hedonism has, in many ways, past.`\
 https://www.nytimes.com/2026/11/11/theater/cloud-nine-national-theatre-london-review.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-h
 **Entertainment 360 Acquires Brigade, a Management Firm Rich in Substackers**\
 `With the purchase of Brigade, a small talent firm, Substack writers and podcast hosts are now managed by the same company as movie stars.`\
 https://www.nytimes.com/2026/11/11/style/brigade-entertainment-360-acquisition-max-stein.html
-
-**Word of the Day: chassis**\
-`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/11/learning/word-of-the-day-chassis.html
-
-**Book Review: ‘The Absent Woman,’ by Eve Sneider**\
-`The first biography of the formidable journalist draws on her archives to expose the complex — and contradictory — human being behind the legend.`\
-https://www.nytimes.com/2026/11/11/books/review/the-absent-woman-eve-sneider.html
 

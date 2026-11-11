@@ -1,3 +1,11 @@
+**Silicon Valley Tech Allies Support Jensen Huang**\
+`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be Chinese spy as a personal lapse, not a security failure.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
+
+**Workers in Spain Stage a General Strike for the First Time in 14 Years**\
+`Workers in a wide range of industries walked off the job to protest rising rents and stagnant wages, which have become central issues in the campaign.`\
+https://www.nytimes.com/2026/11/11/world/europe/spain-general-strike.html
+
 **‘Cloud 9’: When the Sexual Revolution Was Radical, Messy and Utterly Playful**\
 `A London revival of Caryl Churchill’s satirical 1979 play leans into the exuberance of self-discovery, even as its era of anything-goes hedonism has, in many ways, past.`\
 https://www.nytimes.com/2026/11/11/theater/cloud-nine-national-theatre-london-review.html
