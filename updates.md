@@ -1,3 +1,7 @@
+**Silicon Valley Tech Allies Support Jensen Huang**\
+`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be a Chinese spy as a personal lapse, not a security failure.`\
+https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
+
 **Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
 `Hundreds of schools in Italy were evacuated after receiving fake bomb threats, in the latest wave of disruptions to hit the continent. Threatening messages were also sent to schools in Ireland and Scotland.`\
 https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-italy-europe.html
