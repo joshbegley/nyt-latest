@@ -98,8 +98,8 @@ https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.htm
 `The Orléans Fine Arts Museum is on a quest to recover hundreds of works stolen during World War II — and the director wants your help.`\
 https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
 
-**Democrats Pulled in Moderates. Can They Hold On to Them?**\
-`Does Democratic success signal a broad realignment in American politics? Or is it a temporary turn away from an unpopular president?`\
+**The Moderates Who Chose Democrats. For Now.**\
+`Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
 https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
 
 **Honor and Anguish: A Veterans Day When the Losses Are New**\
