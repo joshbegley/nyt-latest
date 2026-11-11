@@ -1,3 +1,11 @@
+**The Russian Scientist Behind the Deadly Novichok Nerve Agents Has Died**\
+`Vladimir Uglev, a lead developer of a Cold War-era chemical weapon used on the dissident Alexei Navalny, later turned against the government. He was 80.`\
+https://www.nytimes.com/2026/11/11/science/vladimir-uglev-dead.html
+
+**Writer Michel Houellebecq Investigated Over Anti-Muslim Remarks**\
+`His comments in a 2022 interview have drawn accusations of incitement to violence and racial hatred — accusations that his lawyers reject.`\
+https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-muslim-remarks.html
+
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
 https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/us/democratic-dark-money-super-pac-complaint.
 **Lots of Competition to Catholicism in Peru as Pope Returns for Visit**\
 `Pope Leo spent nearly two decades in Peru, rising to bishop and becoming a citizen. But many Peruvians have turned to evangelical churches, seeking a more expressive and direct connection to God.`\
 https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html
-
-**‘Modern Love’: My Supermodel Boyfriend Was in a Cult**\
-`Donna Flagg and Hoyt Richards developed a deep emotional connection. Then, he disappeared.`\
-https://www.nytimes.com/2026/11/11/podcasts/supermodel-cult-boyfriend-hoyt-richards-donna-flagg.html
-
-**A Chart Truce Brings YouTube Back to Billboard**\
-`A feud over what a stream is worth caused the online video giant to withdraw its data from Billboard’s charts, a move that disadvantaged some artists and genres.`\
-https://www.nytimes.com/2026/11/11/arts/music/youtube-returns-billboard-chart-data.html
 
