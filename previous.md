@@ -14,8 +14,8 @@ https://www.nytimes.com/2026/11/11/world/europe/russian-ambassador-darchiev-dead
 `A debate against Donald Trump in which Mr. Biden, then the president, repeatedly lost his train of thought led to widespread Democratic pressure to end his campaign, which Mr. Biden eventually did.`\
 https://www.nytimes.com/2026/11/11/us/politics/biden-debate-trump-comments-interview.html
 
-**The Democrats’s Midterm Triumph Teaches A Lesson About America**\
-`This isn’t just about one election. It’s about the heart of the country.`\
+**The Political Center of Gravity Isn’t Trump. It’s Obama.**\
+`America just isn’t a center-right country.`\
 https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
 
 **After Hegseth Impeachment Vote Fails, Massie Vows More Tough Votes for GOP In His Final Days**\
