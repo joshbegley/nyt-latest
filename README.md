@@ -44,7 +44,7 @@ https://www.nytimes.com/2026/11/11/climate/trump-cop31-climate-turkey.html
 
 **On Dakar’s Packed Beaches, Africa Welcomes Its First Youth Olympics**\
 `The 2026 Youth Olympic Games are taking place in Senegal, where the beaches and streets are teeming with sports fans and fitness fanatics.`\
-https://www.nytimes.com/2026/11/11/world/africa/on-dakars-packed-beaches-africa-welcomes-its-first-youth-olympics.html
+https://www.nytimes.com/2026/11/11/world/africa/youth-olympics-senegal-dakar.html
 
 **From the Front Page: Fighting in World War I Ends on Nov. 11, 1918**\
 `An armistice between the Allies and Germany halted combat.`\
