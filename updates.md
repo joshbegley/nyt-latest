@@ -1,3 +1,11 @@
+**The Democrats’s Midterm Triumph Teaches A Lesson About America**\
+`This isn’t just about one election. It’s about the heart of the country.`\
+https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
+
+**After Hegseth Impeachment Vote Fails, Massie Vows More Tough Votes for GOP In His Final Days**\
+`Representative Thomas Massie, the Kentucky Republican, said he would use his waning time in office to prod his party to vote for “sanity” and break with President Trump.`\
+https://www.nytimes.com/2026/11/11/us/politics/massie-trump-difficult-republican-votes.html
+
 **How Democrats Invested Online to Overcome Their Cash Disadvantage**\
 `Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html

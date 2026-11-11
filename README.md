@@ -1,3 +1,7 @@
+**Biden Calls His Disastrous 2024 Debate Performance ‘Not Very Consequential’**\
+`A debate against Donald Trump in which Mr. Biden, then the president, repeatedly lost his train of thought led to widespread Democratic pressure to end his campaign, which Mr. Biden eventually did.`\
+https://www.nytimes.com/2026/11/11/us/politics/biden-debate-trump-comments-interview.html
+
 **The Democrats’s Midterm Triumph Teaches A Lesson About America**\
 `This isn’t just about one election. It’s about the heart of the country.`\
 https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
@@ -12,7 +16,7 @@ https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midter
 
 **Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
 `Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-hints-at-immigration-deal-then-reverses-hes-done-that-before.html
+https://www.nytimes.com/2026/11/11/us/politics/trump-immigration-election-democrats-republicans.html
 
 **Court Rules That Sexual Harassment Case Against SpaceX Can Proceed**\
 `The company had argued that the case, involving eight former workers, must be resolved before an arbitrator.`\
@@ -36,7 +40,7 @@ https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-mus
 
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
-https://www.nytimes.com/2026/11/11/us/republicans-begin-aggressive-lame-duck-push-to-install-trump-judges.html
+https://www.nytimes.com/2026/11/11/us/trump-federal-judges-senate-republicans.html
 
 **Recalling the S.S. United States as It Becomes a Florida Reef**\
 `A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/crosswords/connections-companion-1250.html
 **Today’s Wordle Hints for November 12, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
 https://www.nytimes.com/2026/11/11/crosswords/wordle-review-1972.html
-
-**Public Schools Have a New Crisis: Not Enough Students**\
-`Across the United States, the number of children in public education is dropping, leading many districts to question whether or where to close schools.`\
-https://www.nytimes.com/2026/11/11/podcasts/the-daily/closing-public-schools-enrollment-crisis.html
 
