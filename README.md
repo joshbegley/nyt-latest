@@ -1,6 +1,10 @@
+**Richard Holmes, Who Integrated Mississippi State University, Has Died**\
+`When he stepped onto campus in 1965, he said, he was met with “curiosity and disbelief.”`\
+https://www.nytimes.com/2026/11/10/obituaries/richard-holmes-mississippi-state-university-dead.html
+
 **Bernie Sanders Opposes Schumer as Majority Leader**\
 `The progressive leader was among a few Democrats who signaled skepticism about Senator Chuck Schumer of New York, though his allies offered support and called for party unity.`\
-https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-opposes-schumer-as-majority-leader.html
+https://www.nytimes.com/2026/11/10/us/politics/bernie-sanders-chuck-schumer-senate.html
 
 **Stacy Keach, Actor Who Embodied Hamlet and Mike Hammer, Dies at 85**\
 `He missed out on several major film roles, but found steady work in the theater, on TV and in movies.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is
 **Do I Need to Dress Sexier?**\
 `A slinky suiting brand got me thinking.`\
 https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
-
-**Novaya Gazeta, Russia’s Bravest Newspaper, Closes**\
-`For more than 30 years, the paper covered an increasingly repressive Russia. “The process of silencing us started many years ago,” one of its journalists said.`\
-https://www.nytimes.com/2026/11/10/world/europe/russia-novaya-gazeta-closure.html
 
