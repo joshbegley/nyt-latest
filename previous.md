@@ -1,3 +1,11 @@
+**Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
+`Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
+https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
+
+**My Wife Is Leaving the Divorce Details to Me. Can I Look Out for Myself?**\
+`We’re trying to avoid hiring lawyers because of the expense, which gives me an advantage.`\
+https://www.nytimes.com/2026/11/11/magazine/wife-divorce-settlement-ethics.html
+
 **Raman and the D.S.A.: Wariness, Skepticism and Hope**\
 `Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to advance the group’s priorities.`\
 https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/11/dining/thanksgiving-pies-prices-expensive-des
 **Blue Texas? Battleground Kansas? Both Parties Wonder if the Map Has Shifted.**\
 `The breadth of Democrats’ midterm victories has raised new questions about which states will be competitive going forward — particularly Texas, a crown jewel in the Electoral College.`\
 https://www.nytimes.com/2026/11/11/us/blue-texas-battleground-kansas-both-parties-wonder-if-the-map-has-shifted.html
-
-**Why Your Heating Bills Are Going Through the Roof**\
-`With diesel in short supply, staying warm is going to be expensive this winter.`\
-https://www.nytimes.com/2026/11/11/opinion/heating-bills-diesel-prices.html
-
-**Somali Bodyguard Was Indicted in a Bid to Incriminate Ilhan Omar**\
-`Prosecutors used statements made during a green card interview to pressure a former bodyguard to provide evidence against the Minnesota congresswoman, his lawyer said.`\
-https://www.nytimes.com/2026/11/11/us/ilhan-omar-ex-bodyguard-indicted-abdullahi-mohamed.html
 

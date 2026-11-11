@@ -1,3 +1,11 @@
+**Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
+`Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
+https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
+
+**My Wife Is Leaving the Divorce Details to Me. Can I Look Out for Myself?**\
+`We’re trying to avoid hiring lawyers because of the expense, which gives me an advantage.`\
+https://www.nytimes.com/2026/11/11/magazine/wife-divorce-settlement-ethics.html
+
 **Raman and the D.S.A.: Wariness, Skepticism and Hope**\
 `Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to advance the group’s priorities.`\
 https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
