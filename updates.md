@@ -1,3 +1,23 @@
+**What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
+`Plus, a priceless find in a desk drawer.`\
+https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
+
+**NYT Connections Answers for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/connections-companion-1250.html
+
+**Today’s Wordle Hints for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/wordle-review-1972.html
+
+**Public Schools Have a New Crisis: Not Enough Students**\
+`Across the United States, the number of children in public education is dropping, leading many districts to question whether or where to close schools.`\
+https://www.nytimes.com/2026/11/11/podcasts/the-daily/closing-public-schools-enrollment-crisis.html
+
+**NYT Strands Hints for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/strands-sidekick-984.html
+
 **Look Who Has a Southern Strategy Now**\
 `Republicans pioneered it. Do the Democrats finally have an answer?`\
 https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
