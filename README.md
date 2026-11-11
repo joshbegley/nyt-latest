@@ -1,3 +1,7 @@
+**The Fed Has to Raise Rates. How Fast To Go Has Officials Divided.**\
+`The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
+https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
+
 **Red Flags**\
 `We look into the history of the ICE officer who fatally shot a Colombian migrant in Maine.`\
 https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/travel/nonreligious-pilgrims.html
 **Isaiah Rashad’s Most Powerful Secret Was Himself**\
 `After the leak of private video footage upended his life, the rapper took a more open approach to making music. It resulted in the best album of his career.`\
 https://www.nytimes.com/2026/11/11/arts/music/isaiah-rashad-interview-profile.html
-
-**‘The Flying Ace,’ Silent Film With All-Black Cast, Gets a Soaring Score**\
-`In 1926, a white director and all-Black cast filmed “The Flying Ace” in Florida. Six Black composers are giving it a full musical treatment with the Jacksonville Symphony.`\
-https://www.nytimes.com/2026/11/11/arts/music/the-flying-ace-silent-movie-jacksonville-symphony.html
 
