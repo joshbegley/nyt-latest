@@ -1,3 +1,11 @@
+**The Fed Has to Raise Rates. How Fast To Go Has Officials Divided.**\
+`The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
+https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
+
+**Red Flags**\
+`We look into the history of the ICE officer who fatally shot a Colombian migrant in Maine.`\
+https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
+
 **Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
 `Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
 https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-programs.html
