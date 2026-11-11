@@ -1,3 +1,7 @@
+**Melania Trump’s Initiative for Women Appears at Odds With D.E.I. Crackdown**\
+`Its name and mission also overlap with a company that left the United States after the administration sought to end corporate networking programs for women and people of color.`\
+https://www.nytimes.com/2026/11/11/us/politics/melania-trump-imperia-women-dei-programs.html
+
 **‘Hard Art’ Asks Hard Questions About Daring to Be Abstract**\
 `MoMA PS1 brings together more than 40 Black artists in a search for their historical and artistic ties.`\
 https://www.nytimes.com/2026/11/11/arts/design/hard-art-moma-ps1-black-arts-movement.html

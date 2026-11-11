@@ -1,3 +1,7 @@
+**Red Flags**\
+`We look into the history of the ICE officer who fatally shot a Colombian migrant in Maine.`\
+https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
+
 **What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
 `Plus, a priceless find in a desk drawer.`\
 https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/11/arts/music/isaiah-rashad-interview-profile.ht
 **‘The Flying Ace,’ Silent Film With All-Black Cast, Gets a Soaring Score**\
 `In 1926, a white director and all-Black cast filmed “The Flying Ace” in Florida. Six Black composers are giving it a full musical treatment with the Jacksonville Symphony.`\
 https://www.nytimes.com/2026/11/11/arts/music/the-flying-ace-silent-movie-jacksonville-symphony.html
-
-**Subtle Changes in Speech May Help Predict Dementia Risk**\
-`Signals can be detected in the way people talk years before symptoms of cognitive decline emerge, researchers are finding.`\
-https://www.nytimes.com/2026/11/11/well/speech-changes-speed-test-alzheimers-dementia.html
 
