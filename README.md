@@ -1,3 +1,11 @@
+**Trump Officials Clashed Over Firm at Heart of Nvidia Affair**\
+`Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
+https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
+
+**Trump’s Reign of Terror Isn’t Over**\
+`Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
+https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
+
 **Silicon Valley Tech Allies Support Jensen Huang**\
 `Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be Chinese spy as a personal lapse, not a security failure.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/video/opinion/100000011272884/is-the-us-trying-to-censor
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/11/style/tiny-modern-love-stories-to-shower-with-a-naked-stranger.html
 
-**Behind the Trump-Xi Bonhomie, a Fierce Spy War Rages**\
+**Nvidia Scandal Unveils a Fierce Spy War Raging Behind Trump and Xi’s Diplomacy**\
 `That the United States suspected Nvidia’s leader was a Chinese spy target underscores the deep distrust between the two powers, even as their leaders try to stabilize ties.`\
 https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/us/100000011258246/what-we-learned-about-the-ice-a
 **N.Y.C. Holiday Theater: Not-To-Miss Shows This Festive Season**\
 `In New York City, experience a live radio play, a Nicole Kidman-inspired “Christmas Carol,” an interactive production for children and more.`\
 https://www.nytimes.com/2026/11/11/theater/nyc-holiday-theater-guide-winter-season.html
-
-**In ‘The Ripple, the Wave That Carried Me Home,’ Currents of Racism**\
-`One couple fights for swimming pool integration, and their daughter walks away from the battle, in Christina Anderson’s pensive play.`\
-https://www.nytimes.com/2026/11/11/theater/the-ripple-the-wave-that-carried-me-home-review.html
-
-**Entertainment 360 Acquires Brigade, a Management Firm Rich in Substackers**\
-`With the purchase of Brigade, a small talent firm, Substack writers and podcast hosts are now managed by the same company as movie stars.`\
-https://www.nytimes.com/2026/11/11/style/brigade-entertainment-360-acquisition-max-stein.html
 
