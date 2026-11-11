@@ -1,3 +1,7 @@
+**House Republicans Stunt Effort to Impeach Hegseth**\
+`House Republicans united on Tuesday to shelve an effort to impeach Defense Secretary Pete Hegseth. Hegseth had been accused of eight separate charges, including violating the Constitution to wage war in Iran. The vote referred the charges to a committee, allowing Republicans to slow the process indefinitely.`\
+https://www.nytimes.com/video/us/politics/100000011276547/house-votes-hegseth-impeachment.html
+
 **Richard Holmes, Who Integrated Mississippi State University, Has Died**\
 `When he stepped onto campus in 1965, he said, he was met with “curiosity and disbelief.”`\
 https://www.nytimes.com/2026/11/10/obituaries/richard-holmes-mississippi-state-university-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/business/nvidia-wachtell-lipton-jensen-huang.
 **Soundtrack to a Modern Dinner Party**\
 `Hear tracks from girlsweetvoiced, This Is Lorelei, Friendship and more while assuming host duties.`\
 https://www.nytimes.com/2026/11/10/arts/music/amplifier-newsletter-eliza-this-is-lorelei.html
-
-**Do I Need to Dress Sexier?**\
-`A slinky suiting brand got me thinking.`\
-https://www.nytimes.com/2026/11/10/style/husbands-suits-sexy-dressing.html
 
