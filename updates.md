@@ -1,3 +1,7 @@
+**Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
+`At least three others were critically injured after an S.U.V. crashed near a North Hollywood metro station, the authorities said. The cause was not immediately clear.`\
+https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html
+
 **Quote of the Day: Leo Is Pope. But in Argentina, Francis Looms as the Forever Pope.**\
 `Quotation of the Day for Wednesday, November 11, 2026.`\
 https://www.nytimes.com/2026/11/11/pageoneplus/quote-of-the-day-leo-is-pope-but-in-argentina-francis-looms-as-the-forever-pope.html
