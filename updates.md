@@ -1,3 +1,7 @@
+**How GLP-1 Drugs and a Revamp Revived Ro’s Business**\
+`The telehealth company said that its annualized revenue had grown nearly tenfold since it revamped its business and embraced weight-loss treatments.`\
+https://www.nytimes.com/2026/11/11/business/dealbook/ro-revenue-glp1.html
+
 **The Fed Has to Raise Rates. How Fast to Go Has Officials Divided.**\
 `The Federal Reserve’s gradual approach to raising rates is being tested by intensifying price pressures.`\
 https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
