@@ -1,3 +1,11 @@
+**Storms Slam British Columbia and California Is Next**\
+`Northern California is likely to record some of its heaviest rain so far this season later this week.`\
+https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
+
+**Bessent Moved to Military Base In Wake of Iranian Threats**\
+`The Treasury secretary, who is leading an economic pressure campaign against Iran, is the latest Trump official to leave his home over security concerns.`\
+https://www.nytimes.com/2026/11/10/us/politics/bessent-moved-base-iran-threats.html
+
 **ICE Deportation Flight Carrying Iranians Turns Back and Lands in Arizona**\
 `The Iranian immigrants in the plane were scheduled to be flown to Pakistan and then transferred to Iran, lawyers for the group said.`\
 https://www.nytimes.com/2026/11/10/world/asia/ice-deportation-flight-iran-mesa.html

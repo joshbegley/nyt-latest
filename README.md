@@ -1,3 +1,7 @@
+**Trump Trots Out His Chaotic Greatest Hits to a Weary Public**\
+`As he braces for Democrats to assume legislative control in Washington, President Trump has sought to take back center stage with some discordant maneuvers.`\
+https://www.nytimes.com/2026/11/10/us/politics/trump-midterm-elections-chaos.html
+
 **Storms Slam British Columbia and California Is Next**\
 `Northern California is likely to record some of its heaviest rain so far this season later this week.`\
 https://www.nytimes.com/2026/11/10/weather/california-rain-bc-pnw-atmospheric-river.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/world/asia/sonia-gandhi-india.html
 **Who Is Alice Huang, the Woman in the Middle of Nvidia’s Spy Scandal?**\
 `Alice Huang, who U.S. intelligence determined is a Chinese asset, emerged from the high-flying world of Shanghai finance to work with tech titans and obtain essential A.I. chips.`\
 https://www.nytimes.com/2026/11/10/technology/alice-huang-megaspeed-nvidia-jensen-huang.html
-
-**Richard Aurelio Has Died. He Helped Re-elect Mayor Lindsay.**\
-`A political and public relations virtuoso and journalist, he also worked for Senator Jacob Javits and brought an all-news cable channel to New York. He was 98.`\
-https://www.nytimes.com/2026/11/10/obituaries/metro-richard-aurelio-dead.html
 
