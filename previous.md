@@ -1,3 +1,7 @@
+**Lebanon Faces Economic ‘Catastrophe’ After War and Years of Mismanagement**\
+`Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and many Lebanese to despair.`\
+https://www.nytimes.com/2026/11/11/world/middleeast/lebanon-economy-crisis-corruption-war.html
+
 **15-Minute Lesson Plan: Math, Money and Midterm Predictions**\
 `How did the prediction markets perform, and what might that mean?`\
 https://www.nytimes.com/2026/11/11/learning/15-minute-lesson-plan-math-money-and-midterm-predictions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/nyregion/supermajority-new-york.html
 **Russia’s Independent Newspaper, Novaya Gazeta, Closes**\
 `Russia’s independent newspaper, Novaya Gazeta, closed its doors on Monday after the landlord refused to renew their lease and the banks said that they would stop processing their readers’ donations.`\
 https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-novaya-gazeta-closed.html
-
-**No Good Choices on Iran**\
-`As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
-https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
 
