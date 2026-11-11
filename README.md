@@ -1,3 +1,7 @@
+**How to Be a Better Gift Giver: Expert Advice and Picks**\
+`Ahead of the holidays, artists, chefs and designers share their tips — and their favorite items.`\
+https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
+
 **A.I. and Market Whiplash**\
 `A Times reporter who covers financial markets helps us make sense of tech turbulence.`\
 https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/business/fed-interest-rates-inflation.html
 **Red Flags**\
 `We look into the history of the ICE officer who fatally shot a Colombian migrant in Maine.`\
 https://www.nytimes.com/2026/11/11/briefing/maine-ice-shooting.html
-
-**What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
-`Plus, a priceless find in a desk drawer.`\
-https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
 
