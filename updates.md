@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Math, Money and Midterm Predictions**\
+`How did the prediction markets perform, and what might that mean?`\
+https://www.nytimes.com/2026/11/11/learning/15-minute-lesson-plan-math-money-and-midterm-predictions.html
+
 **United States Absent From United Nations Climate Summit**\
 `President Trump did not send an American delegation to this year’s United Nations climate summit in Turkey.`\
 https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
