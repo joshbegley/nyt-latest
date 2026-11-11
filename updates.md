@@ -1,3 +1,7 @@
+**‘Cloud 9’: When the Sexual Revolution Was Radical, Messy and Utterly Playful**\
+`A London revival of Caryl Churchill’s satirical 1979 play leans into the exuberance of self-discovery, even as its era of anything-goes hedonism has, in many ways, past.`\
+https://www.nytimes.com/2026/11/11/theater/cloud-nine-national-theatre-london-review.html
+
 **Is the U.S. Trying to Censor Our View From Space?**\
 `Satellite imagery has helped reveal destruction in Gaza, mass graves in Ukraine, internment camps in China and the Minab school strike in Iran. Now, open-source researchers like Ollie Ballinger are finding it increasingly difficult to get access to these images. “There’s a lot to lose when our view from space is blocked,” he says. “The public deserves to see the earth without government censorship.”`\
 https://www.nytimes.com/video/opinion/100000011272884/is-the-us-trying-to-censor-our-view-from-space.html
