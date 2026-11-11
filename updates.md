@@ -1,3 +1,7 @@
+**United States Absent From United Nations Climate Summit**\
+`President Trump refused to send an American delegation to this year’s United Nations climate summit in Turkey.`\
+https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
+
 **From Argentina, a Warning to America’s Tech Right**\
 `Voters are turning on Javier Milei’s dreams of an A.I.-powered Argentina.`\
 https://www.nytimes.com/2026/11/11/opinion/argentina-milei-ai-musk.html

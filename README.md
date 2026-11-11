@@ -1,3 +1,11 @@
+**Jimmy Kimmel Picks Apart Trump’s Impromptu Call-in**\
+`The late night host said the president has “nothing better to do” after he phoned in live to a C-SPAN show.`\
+https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html
+
+**Jim Jordan to Lead House G.O.P. After Midterm Losses**\
+`House Republicans elected Representative Jim Jordan of Ohio to be their leader on Tuesday as the party reeled from a crushing defeat in the midterm elections.`\
+https://www.nytimes.com/video/us/politics/100000011277103/republican-house-leader-jordan.html
+
 **United States Absent From United Nations Climate Summit**\
 `President Trump refused to send an American delegation to this year’s United Nations climate summit in Turkey.`\
 https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
 **How Times Reporters Uncovered the Nvidia C.E.O. Scandal**\
 `Nvidia’s chief executive, Jensen Huang, admitted over the weekend to having a romantic relationship with a tech executive who was identified by the U.S. as a Chinese spy. The Times’s Tripp Mickle joined Natalie Kitroeff on “The Daily” to explain the implications of the scandal.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011275758/how-timess-reporters-uncovered-the-nvidia-ceo-scandal.html
-
-**Anthropic’s Giant IPO Will Tie It Closer to Nvidia**\
-`Nvidia planned to invest $10 billion in Anthropic alongside its initial public offering, the largest of the new financial commitments from several giants to the A.I. company.`\
-https://www.nytimes.com/2026/11/10/business/anthropic-ipo-nvidia.html
-
-**Amazon and Google Will See Big Paydays from Anthropic IPO**\
-`Amazon and Google are the largest investors in the A.I. start-up, and their shares could gain hundreds of billions of dollars in value.`\
-https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-google-amazon.html
 
