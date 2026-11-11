@@ -1,3 +1,15 @@
+**Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
+`Mayor Zohran Mamdani will begin contract talks with District Council 37, New York City’s largest municipal union, whose leader is seeking worker protections against artificial intelligence.`\
+https://www.nytimes.com/2026/11/11/nyregion/mamdani-dc37-contract-union.html
+
+**When Measles Came to an Amish Community, Many Suffered and One Died**\
+`In Lewis County, N.Y., the highly contagious virus has swept through Amish homes. Public health experts fear there’s no end in sight.`\
+https://www.nytimes.com/2026/11/11/nyregion/measles-new-york-lewis-county-amish.html
+
+**NYT Spelling Bee Answers for November 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/11/crosswords/spelling-bee-forum.html
+
 **Car Crashes Into Crowd in Los Angeles, Killing at Least 3 Pedestrians**\
 `At least three others were critically injured after an S.U.V. jumped the curb near North Hollywood Metro station, the authorities said. The cause was not immediately clear.`\
 https://www.nytimes.com/2026/11/10/us/la-car-crash-north-hollywood.html

@@ -1,3 +1,15 @@
+**Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
+`Mayor Zohran Mamdani will begin contract talks with District Council 37, New York City’s largest municipal union, whose leader is seeking worker protections against artificial intelligence.`\
+https://www.nytimes.com/2026/11/11/nyregion/mamdani-dc37-contract-union.html
+
+**When Measles Came to an Amish Community, Many Suffered and One Died**\
+`In Lewis County, N.Y., the highly contagious virus has swept through Amish homes. Public health experts fear there’s no end in sight.`\
+https://www.nytimes.com/2026/11/11/nyregion/measles-new-york-lewis-county-amish.html
+
+**NYT Spelling Bee Answers for November 11, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/11/crosswords/spelling-bee-forum.html
+
 **Server Farms. Doomsday Bunkers. Has Argentina’s Milei Gone Too Far?**\
 `Voters are turning on Javier Milei’s dreams of an A.I.-powered Argentina.`\
 https://www.nytimes.com/2026/11/11/opinion/argentina-milei-ai-musk.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/10/technology/anthropic-ipo-google-amazon.html
 **Ask DealBook**\
 `Andrew Ross Sorkin wants to hear your questions`\
 https://www.nytimes.com/2026/11/10/briefing/ask-dealbook.html
-
-**Northeast Storm To Bring Cold Temperatures, But Heavy Snow Is Unlikely**\
-`A brewing storm system could bring some snow to the mountains, but most cities across the region will probably see rain, forecasters said.`\
-https://www.nytimes.com/2026/11/10/weather/noreaster-snow-cold.html
-
-**From Climate Activism to the House of Representatives**\
-`William Lawrence, a co-founder of the Sunrise Movement, flipped a seat in Michigan for the Democrats.`\
-https://www.nytimes.com/2026/11/10/climate/william-lawrence-sunrise-congress.html
-
-**On the Defense: Takeaways From Hegseth’s Remarks on Articles of Impeachment**\
-`Defense Secretary Pete Hegseth broke a monthslong drought of news briefings to defend his record in office.`\
-https://www.nytimes.com/2026/11/10/us/politics/hegseth-speech-impeachment-takeaways.html
 
