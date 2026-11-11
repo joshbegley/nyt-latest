@@ -1,3 +1,23 @@
+**What One ICE Officer’s Emails Revealed, and the Frantic Scramble Over New Medicaid Rules**\
+`Plus, a priceless find in a desk drawer.`\
+https://www.nytimes.com/2026/11/11/podcasts/the-headlines/ice-emails-medicaid-rules-martin-luther-king-jr.html
+
+**NYT Connections Answers for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/connections-companion-1250.html
+
+**Today’s Wordle Hints for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/wordle-review-1972.html
+
+**Public Schools Have a New Crisis: Not Enough Students**\
+`Across the United States, the number of children in public education is dropping, leading many districts to question whether or where to close schools.`\
+https://www.nytimes.com/2026/11/11/podcasts/the-daily/closing-public-schools-enrollment-crisis.html
+
+**NYT Strands Hints for November 12, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/11/crosswords/strands-sidekick-984.html
+
 **Look Who Has a Southern Strategy Now**\
 `Republicans pioneered it. Do the Democrats finally have an answer?`\
 https://www.nytimes.com/2026/11/11/opinion/democrats-voting-rights-southern-strategy.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/11/arts/music/the-flying-ace-silent-movie-jackso
 **Subtle Changes in Speech May Help Predict Dementia Risk**\
 `Signals can be detected in the way people talk years before symptoms of cognitive decline emerge, researchers are finding.`\
 https://www.nytimes.com/2026/11/11/well/speech-changes-speed-test-alzheimers-dementia.html
-
-**Could Your Voice Predict Your Dementia Risk?**\
-`Researchers are increasingly embracing what was once considered an intriguing but relatively fringe idea: that subtle changes in speech can help predict and track cognitive decline. Pam Belluck, a reporter for Well, explains the science and what it might mean for millions facing dementia and other neurodegenerative conditions.`\
-https://www.nytimes.com/video/well/100000010992847/dementia-predict-voice-speech.html
-
-**What We Lose When Satellite Images Go Dark**\
-`There are images from space that the U.S. government doesn’t want the public to see. Here’s why.`\
-https://www.nytimes.com/video/opinion/100000011242544/what-we-lose-when-satellite-images-go-dark.html
-
-**Lebanon Faces Economic ‘Catastrophe’ After War and Years of Mismanagement**\
-`Hezbollah’s conflict with Israel and the U.S.-Israel war with Iran have made systemic problems worse, causing the cost of living to soar and driving many Lebanese to despair.`\
-https://www.nytimes.com/2026/11/11/world/middleeast/lebanon-economy-crisis-corruption-war.html
-
-**15-Minute Lesson Plan: Math, Money and Midterm Predictions**\
-`How did the prediction markets perform, and what might that mean?`\
-https://www.nytimes.com/2026/11/11/learning/15-minute-lesson-plan-math-money-and-midterm-predictions.html
-
-**Jimmy Kimmel Picks Apart Trump’s Impromptu Call-in**\
-`The late night host said the president has “nothing better to do” after he phoned in live to a C-SPAN show.`\
-https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html
 
