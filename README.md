@@ -1,5 +1,9 @@
+**17-Year-Old Is Arrested in Murder of 15-Year-Old in the Bronx**\
+`Javits Frimpong was killed last month while walking to school. He had immigrated from Ghana a year ago to join his father.`\
+https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
+
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
-`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.`\
+`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible. Watch the livestream.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
 
 **Kenya Starts Countdown to End of Ebola Outbreak**\
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
 https://www.nytimes.com/2026/11/11/magazine/wife-divorce-settlement-ethics.html
 
 **Raman and the D.S.A.: Wariness, Skepticism and Hope**\
-`Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to advance the group’s priorities.`\
+`Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to align with all of the group’s priorities.`\
 https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
 
 **Seeking to Broaden Ukraine Talks, U.S. Urges Russia to Include Europe**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/11/us/politics/trump-arlington-cemetery-arch.htm
 **A Museum’s ‘Wanted’ Poster Campaign Brings Looted Painting Back to France**\
 `The Orléans Fine Arts Museum is on a quest to recover hundreds of works stolen during World War II — and the director wants your help.`\
 https://www.nytimes.com/2026/11/11/world/europe/france-art-wanted-poster.html
-
-**The Moderates Who Chose Democrats. For Now.**\
-`Does Democratic success with the political middle signal a broad realignment in the country? Or is it a temporary turn away from an unpopular president?`\
-https://www.nytimes.com/2026/11/11/us/elections/trump-voters-democrats-priorities.html
 
