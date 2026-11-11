@@ -1,3 +1,7 @@
+**United States Absent From United Nations Climate Summit**\
+`President Trump did not send an American delegation to this year’s United Nations climate summit in Turkey.`\
+https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
+
 **Jimmy Kimmel Picks Apart Trump’s Impromptu Call-in**\
 `The late night host said the president has “nothing better to do” after he phoned in live to a C-SPAN show.`\
 https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html

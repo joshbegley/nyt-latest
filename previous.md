@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html
 https://www.nytimes.com/video/us/politics/100000011277103/republican-house-leader-jordan.html
 
 **United States Absent From United Nations Climate Summit**\
-`President Trump refused to send an American delegation to this year’s United Nations climate summit in Turkey.`\
+`President Trump did not send an American delegation to this year’s United Nations climate summit in Turkey.`\
 https://www.nytimes.com/video/us/politics/100000011276834/united-states-cop31-climate-summit.html
 
 **Unions to Press on A.I. Threat in Mamdani’s First Labor Talks as Mayor**\
