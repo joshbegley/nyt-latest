@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 11, 2026**\
+`It’s hard to define the theme of Damon Gulczynski’s crossword.`\
+https://www.nytimes.com/2026/11/10/crosswords/daily-puzzle-2026-11-11.html
+
 **How a Suspected Chinese Spy Gained Access to Nvidia Chips**\
 `A woman whom U.S. intelligence identified as a Chinese spy had ties to Nvidia’s chief executive, Jensen Huang, dating to at least 2023. Ana Swanson, our reporter on trade and economics, explains what new photos show.`\
 https://www.nytimes.com/video/business/100000011273241/alice-huang-nvidia-china-spy.html

@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Oct. 11, 2026**\
+`It’s hard to define the theme of Damon Gulczynski’s crossword.`\
+https://www.nytimes.com/2026/11/10/crosswords/daily-puzzle-2026-11-11.html
+
 **How a Suspected Chinese Spy Gained Access to Nvidia Chips**\
 `A woman whom U.S. intelligence identified as a Chinese spy had ties to Nvidia’s chief executive, Jensen Huang, dating to at least 2023. Ana Swanson, our reporter on trade and economics, explains what new photos show.`\
 https://www.nytimes.com/video/business/100000011273241/alice-huang-nvidia-china-spy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/10/us/politics/trump-china-trip-nvidia.html
 **Bar Cosme Puts the Comal Front and Center**\
 `The space that was Enrique Olvera’s Atla gets a redo with an open kitchen surrounded by a granite bar, and other restaurant news.`\
 https://www.nytimes.com/2026/11/10/dining/nyc-restaurant-news.html
-
-**Heavy Rain Triggers Deadly Sand Dune Collapse in Gaza**\
-`Heavy rains in Gaza caused a sand dune to collapse on tents in Deir al-Balah. Thousands of other Palestinians lost their shelters and belongings in the weekend storm, according to Gaza authorities and the United Nations.`\
-https://www.nytimes.com/video/world/middleeast/100000011274880/gaza-flooding-israel.html
 
