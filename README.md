@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Math, Money and Midterm Predictions**\
+`How did the prediction markets perform, and what might that mean?`\
+https://www.nytimes.com/2026/11/11/learning/15-minute-lesson-plan-math-money-and-midterm-predictions.html
+
 **Jimmy Kimmel Picks Apart Trump’s Impromptu Call-in**\
 `The late night host said the president has “nothing better to do” after he phoned in live to a C-SPAN show.`\
 https://www.nytimes.com/2026/11/11/arts/television/jimmy-kimmel-trump-cspan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011275105/russia-newspaper-nova
 **No Good Choices on Iran**\
 `As top Trump aides clash over a strategy to end the war, the administration is weighing escalation, narrower strikes and diplomacy.`\
 https://www.nytimes.com/2026/11/10/world/iran-trump-war-hegseth-impeach.html
-
-**How Times Reporters Uncovered the Nvidia C.E.O. Scandal**\
-`Nvidia’s chief executive, Jensen Huang, admitted over the weekend to having a romantic relationship with a tech executive who was identified by the U.S. as a Chinese spy. The Times’s Tripp Mickle joined Natalie Kitroeff on “The Daily” to explain the implications of the scandal.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011275758/how-timess-reporters-uncovered-the-nvidia-ceo-scandal.html
 
