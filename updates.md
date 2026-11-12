@@ -1,3 +1,11 @@
+**Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
+`The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
+https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
+
+**Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
+`News that the chipmaker’s chief executive, Jensen Huang, stepped down drove Nvidia’s stock down and reverberated across global markets.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
+
 **Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\
 `In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
