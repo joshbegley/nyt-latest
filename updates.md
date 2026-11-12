@@ -1,3 +1,11 @@
+**France’s New Export? The Paris Opera Ballet’s Dance Method.**\
+`As part of a multiyear deal, the Teatro Municipal in Chile is receiving intensive training from the famed ballet school.`\
+https://www.nytimes.com/2026/11/12/arts/music/paris-opera-treatro-municipal-chile.html
+
+**Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
+`The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose personal relationships and sexual encounters got them in trouble.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
+
 **A Glamorous Paris Theater Where a Ballet in 1913 Caused a Riot**\
 `For his inaugural season as general director, Baptiste Charroing is channeling the Théâtre des Champs-Élysées’s iconic past.`\
 https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
