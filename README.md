@@ -1,3 +1,11 @@
+**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
+`His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
+https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
+
+**Nor’Easter Will Bring Cold Temperatures and Maybe a Little Snow to Millions**\
+`Millions of people from the Midwest to the Deep South will get a dose of winter weather this week.`\
+https://www.nytimes.com/2026/11/12/weather/noreaster-snow-cold.html
+
 **Deadly Shooting in Busy Washington, D.C., Neighborhood**\
 `A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with what appeared to be a self-inflicted gunshot wound, the police said.`\
 https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
@@ -171,7 +179,7 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 
 **Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
-`More than a dozen others were injured, at least two of them critically, when a three-story building in the Flatbush neighborhood collapsed.`\
+`Two of the dead were children, Mayor Zohran Mamdani said, and 18 others were injured when a three-story building collapsed. Search-and-rescue efforts continued in a steady rain.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-bl
 **The Best Possible A.I. Catastrophe**\
 `A cynic’s guide to reining in the reign of artificial intelligence C.E.O.s.`\
 https://www.nytimes.com/2026/11/12/podcasts/ai-catastrophe-josh-tyrangiel.html
-
-**When Can We Stop Talking About Trump?**\
-`If it walks like a lame duck and talks like a lame duck, you don’t have to ask what it is.`\
-https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
-
-**Are You a Hugger?**\
-`Do you ever feel like you could use a hug from a parent, a friend or a loved one?`\
-https://www.nytimes.com/2026/11/12/learning/are-you-a-hugger.html
 
