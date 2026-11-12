@@ -1,3 +1,15 @@
+**What’s Going On in This Picture? | Nov. 16, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/11/12/learning/whats-going-on-in-this-picture-nov-16-2026.html
+
+**A Warrior Secretary and a Lesson at the Tomb of the Unknowns**\
+`Defense Secretary Pete Hegseth’s highly cultivated brand took a hit during an encounter with an Army sentinel at Arlington Cemetery.`\
+https://www.nytimes.com/2026/11/12/us/politics/pete-hegseth-warrior-image.html
+
+**Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
+`He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
+https://www.nytimes.com/2026/11/12/us/anthony-clark-comic-and-yes-dear-star-dies-at-63.html
+
 **A Key Paris Agreement Goal Is Dead. What Now?**\
 `Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
 https://www.nytimes.com/2026/11/12/climate/a-key-paris-agreement-goal-is-dead-what-now.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midter
 **Jensen Huang, Nvidia’s Ousted CEO, Was the Face of the A.I. Boom Powering the U.S. Economy**\
 `Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
-
-**Jensen Huang’s Affairs That Upended Nvidia: Timeline of Events**\
-`News of the Nvidia co-founder’s relationship with a suspected Chinese spy, and his affair with an executive who reports to him, prompted his exit from the multi-trillion-dollar company.`\
-https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-affairs-timeline.html
-
-**Excavation Was Taking Place Next to Building in Brooklyn That Collapsed**\
-`New York City officials had ordered work at the construction site to stop after an apartment building in the Flatbush neighborhood collapsed onto it.`\
-https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-excavation-work.html
-
-**Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
-`The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
-https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 

@@ -1,3 +1,15 @@
+**What’s Going On in This Picture? | Nov. 16, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/11/12/learning/whats-going-on-in-this-picture-nov-16-2026.html
+
+**A Warrior Secretary and a Lesson at the Tomb of the Unknowns**\
+`Defense Secretary Pete Hegseth’s highly cultivated brand took a hit during an encounter with an Army sentinel at Arlington Cemetery.`\
+https://www.nytimes.com/2026/11/12/us/politics/pete-hegseth-warrior-image.html
+
+**Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
+`He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
+https://www.nytimes.com/2026/11/12/us/anthony-clark-comic-and-yes-dear-star-dies-at-63.html
+
 **A Key Paris Agreement Goal Is Dead. What Now?**\
 `Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
 https://www.nytimes.com/2026/11/12/climate/a-key-paris-agreement-goal-is-dead-what-now.html
