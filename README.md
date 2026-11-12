@@ -1,3 +1,7 @@
+**Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
+`He was the most-cited legal scholar of the latter half of the 20th century and an unapologetic iconoclast, favoring pragmatism over judicial tradition. He was 87.`\
+https://www.nytimes.com/2026/11/11/us/richard-posner-dead.html
+
 **The Man at the Center of Scott Colom’s Protein Ad**\
 `Russ Hudson was not expecting to become famous. But his deadpan drawl in Scott Colom’s viral protein ad made him a Mississippi sensation.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-protein-ad.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/11/magazine/wife-divorce-settlement-ethics.html
 **Raman and the D.S.A.: Wariness, Skepticism and Hope**\
 `Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to align with all of the group’s priorities.`\
 https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
-
-**Seeking to Broaden Ukraine Talks, U.S. Urges Russia to Include Europe**\
-`As a round of negotiations ended in Abu Dhabi, President Trump’s envoys said they would go to Moscow as the Kremlin demands discussions on European security structures.`\
-https://www.nytimes.com/2026/11/11/world/europe/russia-ukraine-talks-abu-dhabi.html
 

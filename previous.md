@@ -1,3 +1,11 @@
+**The Man at the Center of Scott Colom’s Protein Ad**\
+`Russ Hudson was not expecting to become famous. But his deadpan drawl in Scott Colom’s viral protein ad made him a Mississippi sensation.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-protein-ad.html
+
+**Nvidia Shares Plummet as Board Is Said to Consider C.E.O.’s Future**\
+`News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
+
 **Hyde-Smith Blocked Colom’s Path to the Bench. Now He’s Replacing Her.**\
 `Ms. Hyde-Smith, a Republican, blocked Scott Colom from consideration for a U.S. District Court vacancy in Mississippi. Mr. Colom will take her Senate seat in January.`\
 https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-blocked-coloms-path-to-the-bench-now-hes-replacing-her.html
@@ -42,8 +50,8 @@ https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-r
 `Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
 
-**Midterm Election Live Updates: Democrat Wins Mississippi Senate Seat in Historic Upset**\
-`Scott Colom, a prosecutor, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+**Midterm Election Live Updates: Black Mississippians Rejoice as Colom Wins Senate Seat**\
+`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 
 **Scott Colom, a Democrat, Wins Mississippi Senate Election**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-soci
 **Seeking to Broaden Ukraine Talks, U.S. Urges Russia to Include Europe**\
 `As a round of negotiations ended in Abu Dhabi, President Trump’s envoys said they would go to Moscow as the Kremlin demands discussions on European security structures.`\
 https://www.nytimes.com/2026/11/11/world/europe/russia-ukraine-talks-abu-dhabi.html
-
-**Protesters Throw Projectiles at Biden During Dublin Trip**\
-`Video showed demonstrators from a pro-Palestinian protest throwing projectiles at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin on Tuesday.`\
-https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protesters-attack.html
-
-**White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
-`As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
 
