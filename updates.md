@@ -1,3 +1,15 @@
+**Building Partially Collapses in Brooklyn, Killing at Least One**\
+`At least one person was killed and four were critically injured after a the three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
+https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
+
+**Midterm Election Live Updates: Streets Erupt in Celebration After Scott Colom’s Historic Victory**\
+`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
+
+**Scott Colom, a Democrat, Wins Mississippi Senate Election**\
+`Scott Colom, a Democrat and prosecutor who won in a major upset, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
+
 **Brooklyn Building Collapses, Killing 1 and Injuring Others in Flatbush, NY**\
 `The three-story structure`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
