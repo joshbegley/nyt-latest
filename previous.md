@@ -1,3 +1,19 @@
+**New York City Is Set to Ban Companies From Setting Variable Prices**\
+`The City Council is expected to pass a ban on surveillance pricing, the practice of charging customers different prices for the same things based on an algorithm.`\
+https://www.nytimes.com/2026/11/12/nyregion/surveillance-pricing-ban-stores-nyc.html
+
+**NYT Spelling Bee Answers for November 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/12/crosswords/spelling-bee-forum.html
+
+**The Workers on the Front Lines of Mamdani’s Free Child Care Plan**\
+`The mayor’s plan for universal child care relies on tens of thousands of workers who are among New York City’s lowest paid. He pledged to raise their pay, but doing so requires more state funding.`\
+https://www.nytimes.com/2026/11/12/nyregion/mamdani-universal-child-care-workers.html
+
+**How 4 Seasoned Commuters Make It From New Jersey to Manhattan**\
+`Crossing the Hudson River on a weekday this fall has required planning, patience and, sometimes, luck. Four New York Times employees put their routes to the test.`\
+https://www.nytimes.com/2026/11/12/nyregion/how-4-seasoned-commuters-make-it-from-new-jersey-to-manhattan.html
+
 **Indonesia’s Vice President, Gibran, Resigns**\
 `Gibran Rakabuming Raka, who is stepping down amid a scandal over his academic credentials, was a symbol of the partnership that elevated President Prabowo Subianto into office.`\
 https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html
@@ -161,20 +177,4 @@ https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
 **Alexander Darchiev, Russia’s Ambassador to the U.S., Dies at 66**\
 `The death of Alexander Darchiev was announced by Russia’s foreign ministry. He was appointed to his post in Washington in 2025, as relations between the Kremlin and the White House warmed.`\
 https://www.nytimes.com/2026/11/11/world/europe/russian-ambassador-darchiev-dead.html
-
-**Biden Calls His Disastrous 2024 Debate Performance ‘Not Very Consequential’**\
-`A debate against Donald Trump in which Mr. Biden, then the president, repeatedly lost his train of thought led to widespread Democratic pressure to end his campaign, which Mr. Biden eventually did.`\
-https://www.nytimes.com/2026/11/11/us/politics/biden-debate-trump-comments-interview.html
-
-**The Political Center of Gravity Isn’t Trump. It’s Obama.**\
-`America just isn’t a center-right country.`\
-https://www.nytimes.com/2026/11/11/opinion/midterms-politics-culture.html
-
-**After Hegseth Impeachment Vote Fails, Massie Vows More Tough Votes for GOP In His Final Days**\
-`Representative Thomas Massie, the Kentucky Republican, said he would use his waning time in office to prod his party to vote for “sanity” and break with President Trump.`\
-https://www.nytimes.com/2026/11/11/us/politics/massie-trump-difficult-republican-votes.html
-
-**How Democrats Invested Online to Overcome Their Cash Disadvantage**\
-`Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
-https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html
 

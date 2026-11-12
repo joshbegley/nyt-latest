@@ -1,3 +1,19 @@
+**New York City Is Set to Ban Companies From Setting Variable Prices**\
+`The City Council is expected to pass a ban on surveillance pricing, the practice of charging customers different prices for the same things based on an algorithm.`\
+https://www.nytimes.com/2026/11/12/nyregion/surveillance-pricing-ban-stores-nyc.html
+
+**NYT Spelling Bee Answers for November 12, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/12/crosswords/spelling-bee-forum.html
+
+**The Workers on the Front Lines of Mamdani’s Free Child Care Plan**\
+`The mayor’s plan for universal child care relies on tens of thousands of workers who are among New York City’s lowest paid. He pledged to raise their pay, but doing so requires more state funding.`\
+https://www.nytimes.com/2026/11/12/nyregion/mamdani-universal-child-care-workers.html
+
+**How 4 Seasoned Commuters Make It From New Jersey to Manhattan**\
+`Crossing the Hudson River on a weekday this fall has required planning, patience and, sometimes, luck. Four New York Times employees put their routes to the test.`\
+https://www.nytimes.com/2026/11/12/nyregion/how-4-seasoned-commuters-make-it-from-new-jersey-to-manhattan.html
+
 **Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
