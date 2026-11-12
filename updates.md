@@ -1,3 +1,11 @@
+**The End of Russia’s Bravest Newspaper**\
+`For more than 30 years, the paper covered an increasingly repressive state under Vladimir Putin.`\
+https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html
+
+**Employee of Prestigious Law Firm Is Charged With Insider Trading**\
+`A document processor who had worked at the firm since 1989 made about $70,000 in illicit profits off inside knowledge, prosecutors said.`\
+https://www.nytimes.com/2026/11/12/nyregion/insider-trading-indictment-cravath-swaine-moore.html
+
 **Black Turnout Rose in Georgia, Powered by Younger Voters**\
 `Black voters under 30 outpaced young white voters for the first time since 2012, contributing to a statewide sweep by Democrats.`\
 https://www.nytimes.com/2026/11/12/us/black-turnout-georgia.html
