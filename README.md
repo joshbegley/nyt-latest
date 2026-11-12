@@ -1,3 +1,11 @@
+**Jensen Huang Is Out at Nvidia**\
+`Times reporters Ana Swanson and Ryan Mac and biographer Stephen Witt explain Jensen Huang’s exit from Nvidia and what it means for the company and the A.I. boom.`\
+https://www.nytimes.com/video/podcasts/100000011279780/jensen-huang-is-out-at-nvidia.html
+
+**Rescue Ends in Brooklyn After 8 Die in Building Collapse**\
+`The Fire Department said the search for victims on Flatbush Avenue was over, while city investigators began looking into an excavation occurring next door.`\
+https://www.nytimes.com/2026/11/12/us/brooklyn-building-collapse-deaths.html
+
 **Paul Barril, French ‘Supergendarme’ Turned Mercenary, Has Died**\
 `After years in elite police units, he drew scrutiny from human rights groups for selling arms and providing other services to unsavory governments. He was 80.`\
 https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
 `State Senator Cindy Holscher won the race. Though Kansas is reliably Republican in presidential elections, its voters often break for Democrats in midterms.`\
 https://www.nytimes.com/2026/11/12/us/kansas-governor-democrat-holscher-wins.html
 
-**7 People Nvidia Could Consider For Its Next C.E.O.**\
+**7 People Nvidia Could Consider for Its Next C.E.O.**\
 `President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
 
@@ -150,8 +158,8 @@ https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-e
 `Paul LePage defeated a progressive Democrat, Matt Dunlap, in the state’s rural Second Congressional District.`\
 https://www.nytimes.com/2026/11/12/sports/paul-lepage-maine-house-race.html
 
-**What We Know About the Victims of the Brooklyn Building Collapse**\
-`At least eight people were killed when a three-story building fell into a neighboring construction site Wednesday afternoon. The search for survivors continued into the next day.`\
+**Eight Who Died in Building Collapse Reflected New York’s Diversity**\
+`The victims included construction workers, a food deliveryman and two school-age children. Many had come to the city looking for a better life.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-victims.html
 
 **Pregnant Woman Among Those Rescued From Brooklyn Building Collapse**\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
 **At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
 `An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
-
-**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
-`His wife, Angela Paxton, filed for divorce last year, citing adultery and “biblical grounds.”`\
-https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
-
-**Nor’Easter Will Bring Cold Temperatures and Maybe a Little Snow to Millions**\
-`Millions of people from the Midwest to the Deep South will get a dose of winter weather this week.`\
-https://www.nytimes.com/2026/11/12/weather/noreaster-snow-cold.html
 
