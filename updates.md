@@ -1,3 +1,31 @@
+**Jensen Huang Is Out at Nvidia**\
+`Times reporters Ana Swanson and Ryan Mac and biographer Stephen Witt explain Jensen Huang’s exit from Nvidia and what it means for the company and the A.I. boom.`\
+https://www.nytimes.com/video/podcasts/100000011279780/jensen-huang-is-out-at-nvidia.html
+
+**Rescue Ends in Brooklyn After 8 Die in Building Collapse**\
+`The Fire Department said the search for victims on Flatbush Avenue was over, while city investigators began looking into an excavation occurring next door.`\
+https://www.nytimes.com/2026/11/12/us/brooklyn-building-collapse-deaths.html
+
+**Paul Barril, French ‘Supergendarme’ Turned Mercenary, Has Died**\
+`After years in elite police units, he drew scrutiny from human rights groups for selling arms and providing other services to unsavory governments. He was 80.`\
+https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
+
+**Holscher Wins Kansas Governor Race, Retaining Seat for Democrats**\
+`State Senator Cindy Holscher won the race. Though Kansas is reliably Republican in presidential elections, its voters often break for Democrats in midterms.`\
+https://www.nytimes.com/2026/11/12/us/kansas-governor-democrat-holscher-wins.html
+
+**7 People Nvidia Could Consider for Its Next C.E.O.**\
+`President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
+
+**Republican Setbacks Swell in the South With Stinging Loss in Mississippi**\
+`The Democrat Scott Colom’s stunning Senate upset punctuated a dismal midterm showing for the G.O.P. in a region they had dominated for years.`\
+https://www.nytimes.com/2026/11/12/us/politics/republican-defeats-south-mississippi-midterms.html
+
+**Eight Who Died in Building Collapse Reflected New York’s Diversity**\
+`The victims included construction workers, a food deliveryman and two school-age children. Many had come to the city looking for a better life.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-victims.html
+
 **California Could Face 50-Foot Waves as Storms Slam Its Coast**\
 `Back-to-back systems over the next few days will deliver the season’s first widespread rain. Here’s what to know about the forecast.`\
 https://www.nytimes.com/2026/11/12/weather/california-storm-west-coast-rain.html
