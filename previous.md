@@ -1,3 +1,7 @@
+**Employees Say Jensen Huang Had Relationship With Nvidia Executive**\
+`Five employees at Nvidia who spoke on the condition of anonymity said that Jensen Huang, the company’s leader, had an extramarital relationship with an executive who reports to him. He is already under investigation for an affair with a woman who U.S. officials determined to be a Chinese spy.`\
+https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarital-relationship.html
+
 **Partial Building Collapse in Brooklyn**\
 `At least two people were killed after a three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artific
 **Kenya Starts Countdown to End of Ebola Outbreak**\
 `The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that have come in from Congo.`\
 https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
-
-**Hundreds of Schools Evacuated in Italy As Bomb Threats Rattle Europe**\
-`Hundreds of schools in Italy were evacuated after receiving fake bomb threats, in the latest wave of disruptions to hit the continent. Threatening messages were also sent to schools in Ireland and Scotland.`\
-https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-italy-europe.html
 

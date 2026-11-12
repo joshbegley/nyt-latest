@@ -1,3 +1,7 @@
+**Employees Say Jensen Huang Had Relationship With Nvidia Executive**\
+`Five employees at Nvidia who spoke on the condition of anonymity said that Jensen Huang, the company’s leader, had an extramarital relationship with an executive who reports to him. He is already under investigation for an affair with a woman who U.S. officials determined to be a Chinese spy.`\
+https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarital-relationship.html
+
 **Partial Building Collapse in Brooklyn**\
 `At least two people were killed after a three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
