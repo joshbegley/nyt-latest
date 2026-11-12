@@ -1,3 +1,11 @@
+**A Key Paris Agreement Goal Is Dead. What Now?**\
+`Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
+https://www.nytimes.com/2026/11/12/climate/a-key-paris-agreement-goal-is-dead-what-now.html
+
+**Jensen Huang Steps Down as Nvidia’s C.E.O.**\
+`Jensen Huang resigned as Nvidia’s chief executive, the company’s board of directors said. His departure came after revelations that he had extramarital affairs.`\
+https://www.nytimes.com/video/business/economy/100000011279681/nvidia-jensen-huang-ceo-resigns-affairs.html
+
 **Jensen Huang, Nvidia’s Ousted CEO, Was the Face of the A.I. Boom Powering the U.S. Economy**\
 `Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html

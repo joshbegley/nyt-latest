@@ -1,3 +1,7 @@
+**Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
+`He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
+https://www.nytimes.com/2026/11/12/us/anthony-clark-comic-and-yes-dear-star-dies-at-63.html
+
 **A Key Paris Agreement Goal Is Dead. What Now?**\
 `Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
 https://www.nytimes.com/2026/11/12/climate/a-key-paris-agreement-goal-is-dead-what-now.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-affairs-timeline
 **Excavation Was Taking Place Next to Building in Brooklyn That Collapsed**\
 `New York City officials had ordered work at the construction site to stop after an apartment building in the Flatbush neighborhood collapsed onto it.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-excavation-work.html
-
-**Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
-`The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
-https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 
