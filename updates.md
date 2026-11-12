@@ -1,3 +1,11 @@
+**Jensen Huang Was the Face of the A.I. Boom Powering the U.S. Economy**\
+`Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
+**5 People Are Shot in Washington, D.C., Officials Say**\
+`The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
 **The Concession Call to an Election Winner Is No Longer a Given**\
 `In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
 https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
