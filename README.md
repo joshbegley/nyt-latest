@@ -1,3 +1,7 @@
+**House Passes Competing Veterans Bills in a Fight Over Funding**\
+`Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
+https://www.nytimes.com/2026/11/12/us/politics/house-passes-competing-veterans-bills-in-a-fight-over-funding.html
+
 **Fed Will Not Hold Policy Vote at October 2027 Meeting**\
 `The shift to a strategy meeting next October is just the first step in a broader plan by Kevin M. Warsh, the chairman of the Federal Reserve, to change how the central bank operates.`\
 https://www.nytimes.com/2026/11/12/business/economy/fed-warsh-october.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011278056/ss-united-states-ship-sinking-f
 **Onlookers Wait at Brooklyn Building Collapse Site Hoping for News of Rescues**\
 `Emergency workers were combing through the rubble early Thursday after at least two people were killed when a three-story apartment building collapsed in New York City.`\
 https://www.nytimes.com/2026/11/12/nyregion/nyc-brooklyn-building-collapse-rescue-wait.html
-
-**A Second Affair Revelation Rocks Nvidia, and a Democrat Wins Mississippi in a Major Senate Upset**\
-`Plus, the downfall of Russia’s most daring newspaper.`\
-https://www.nytimes.com/2026/11/12/podcasts/the-headlines/jensen-huang-nvidia-scott-colom-mississippi-senate.html
 
