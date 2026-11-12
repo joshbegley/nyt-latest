@@ -1,3 +1,7 @@
+**Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang, CEO’s, Future**\
+`News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
+
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-republicans.html
