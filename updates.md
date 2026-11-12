@@ -1,3 +1,23 @@
+**Gen Z Optimism**\
+`We look at a new term that has emerged online.`\
+https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
+
+**Impeach Pete Hegseth Before More Harm Is Done**\
+`We cannot give up on holding the secretary of defense to account.`\
+https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
+
+**Here’s Genevieve Ko’s Baked Curry Chicken and Rice**\
+`A golden tray of cozy comfort.`\
+https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
+
+**Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
+`Letters that tell companies and officials not to destroy documents signal the direction of potential investigations next year.`\
+https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
+
+**Crediting Others**\
+`Plus: Reporting on the Mississippi Senate race, flying with the king and answering A.I. questions.`\
+https://www.nytimes.com/2026/11/12/insider/crediting-reporting-of-others.html
+
 **5 Shot in Washington D.C.’s Logan Circle Neighborhood**\
 `The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html

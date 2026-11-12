@@ -1,3 +1,23 @@
+**Gen Z Optimism**\
+`We look at a new term that has emerged online.`\
+https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
+
+**Impeach Pete Hegseth Before More Harm Is Done**\
+`We cannot give up on holding the secretary of defense to account.`\
+https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
+
+**Here’s Genevieve Ko’s Baked Curry Chicken and Rice**\
+`A golden tray of cozy comfort.`\
+https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
+
+**Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
+`Letters that tell companies and officials not to destroy documents signal the direction of potential investigations next year.`\
+https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
+
+**Crediting Others**\
+`Plus: Reporting on the Mississippi Senate race, flying with the king and answering A.I. questions.`\
+https://www.nytimes.com/2026/11/12/insider/crediting-reporting-of-others.html
+
 **Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
 `The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose romantic relationships got them in trouble.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/12/opinion/republicans-campaign-money-midterms.h
 **He Dressed Up for the Opera. As Abraham Lincoln.**\
 `Gary O’Connor has attended dozens of operas dressed as characters in the productions. His latest appearance was at “Lincoln in the Bardo” at the Met.`\
 https://www.nytimes.com/2026/11/12/nyregion/met-opera-lincoln-bardo-costume.html
-
-**Why New England’s Republican Governors Withstood the Blue Wave**\
-`The low-key approach modeled by Gov. Phil Scott of Vermont and Gov. Kelly Ayotte of New Hampshire may gain new relevance as their party looks to recover from a national drubbing.`\
-https://www.nytimes.com/2026/11/12/us/scott-vermont-ayotte-nh-governor-republican.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are in Briarcliff Manor, N.Y., and Stamford, Conn.`\
-https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-new-york-and-connecticut.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in the financial district, Washington Heights and Bushwick.`\
-https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-manhattan-and-brooklyn.html
-
-**Help! A Broken Toilet Grounded My Plane, and the Airline Won’t Cover a Hotel.**\
-`Turkish Airlines tried to wiggle out of paying for a passenger’s $512 overnight stay after a stomach-churning malfunction forced it to cancel a flight in Denver.`\
-https://www.nytimes.com/2026/11/12/travel/turkish-airlines-flight-delay-hotel-refund.html
-
-**Pony Hair Is Everywhere**\
-`Craving texture and looking to spruce up basics, shoppers are drawn to bristled belts, bags and (especially) shoes.`\
-https://www.nytimes.com/2026/11/12/style/pony-hair-purses-shoes-trend.html
 
