@@ -1,3 +1,7 @@
+**Storm Charles Pummels Portugal and Disrupts Flights**\
+`More than 200 flights were canceled on Wednesday as torrential rain and powerful winds lashed the country.`\
+https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
+
 **Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
 `News that the chip-maker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/magazine/air-travel-safety-faa-aviation.html
 **W.N.B.A. Star Caitlin Clark on Her New Book for Kids**\
 `“She doesn’t let other people tell her what she can or can’t do,” says the W.N.B.A. star, who just published an inspirational book for kids.`\
 https://www.nytimes.com/2026/11/12/books/review/caitlin-clark-extraordinary.html
-
-**Book Review: ‘The First House,’ by Avni Doshi**\
-`“The First House” follows a woman trying to understand why her life went awry.`\
-https://www.nytimes.com/2026/11/12/books/review/the-first-house-avni-doshi.html
 

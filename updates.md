@@ -1,3 +1,7 @@
+**Storm Charles Pummels Portugal and Disrupts Flights**\
+`More than 200 flights were canceled on Wednesday as torrential rain and powerful winds lashed the country.`\
+https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
+
 **Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
 `News that the chip-maker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
