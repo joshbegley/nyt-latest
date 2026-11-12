@@ -1,3 +1,7 @@
+**Five People Are Shot in Washington, D.C., Officials Say**\
+`The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
 **Jensen Huang Was the Mascot for the A.I. Boom Powering the U.S. Economy**\
 `Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html

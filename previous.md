@@ -18,8 +18,8 @@ https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 `Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
 
-**Several People Are Shot in Washington, D.C., Officials Say**\
-`The shooting took place in Logan Circle, a busy area of coffee shops, a gym and other businesses not far from the White House. A suspect was barricaded in a building, the police said.`\
+**Five People Are Shot in Washington, D.C., Officials Say**\
+`The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 
 **Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\
