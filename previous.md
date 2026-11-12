@@ -86,7 +86,7 @@ https://www.nytimes.com/2026/11/11/us/richard-posner-dead.html
 `Russ Hudson was not expecting to become famous. But his deadpan drawl in Scott Colom’s viral protein ad made him a Mississippi sensation.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-protein-ad.html
 
-**Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang, CEO’s, Future**\
+**Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang’s Future as CEO**\
 `News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
 https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
 

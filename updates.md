@@ -1,3 +1,7 @@
+**Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang’s Future as CEO**\
+`News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
+
 **What to Know About the Deadly Building Collapse in Brooklyn**\
 `At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
 https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
