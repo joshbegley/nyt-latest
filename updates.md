@@ -1,3 +1,7 @@
+**5 Shot in Washington D.C.’s Logan Circle Neighborhood**\
+`The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
 **Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
 `The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose romantic relationships got them in trouble.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
