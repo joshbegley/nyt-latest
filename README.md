@@ -1,3 +1,11 @@
+**A Key Paris Agreement Goal Is Dead. What Now?**\
+`Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
+https://www.nytimes.com/2026/11/12/climate/a-key-paris-agreement-goal-is-dead-what-now.html
+
+**Jensen Huang Steps Down as Nvidia’s C.E.O.**\
+`Jensen Huang resigned as Nvidia’s chief executive, the company’s board of directors said. His departure came after revelations that he had extramarital affairs.`\
+https://www.nytimes.com/video/business/economy/100000011279681/nvidia-jensen-huang-ceo-resigns-affairs.html
+
 **What Are Those Strange Noises Trump Makes?**\
 `These are erratic executive eruptions.`\
 https://www.nytimes.com/2026/11/12/opinion/trump-speech-midterms.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-excavatio
 **Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
 `The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
 https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
-
-**Who Is Colette Kress, the Interim Nvidia CEO Replacing Jensen Huang?**\
-`Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
-https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
-
-**One Dead and Four Wounded in Shooting Around Washington D.C. Condo Building**\
-`The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
-https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 

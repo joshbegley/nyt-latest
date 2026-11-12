@@ -1,3 +1,7 @@
+**Jensen Huang, Nvidia’s Ousted CEO, Was the Face of the A.I. Boom Powering the U.S. Economy**\
+`Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
 **What Are Those Strange Noises Trump Makes?**\
 `These are erratic executive eruptions.`\
 https://www.nytimes.com/2026/11/12/opinion/trump-speech-midterms.html
