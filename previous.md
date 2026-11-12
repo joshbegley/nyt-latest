@@ -1,9 +1,9 @@
 **Partial Building Collapse in Brooklyn**\
-`At least two people were killed, and at least 10 others were injured, after a the three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
+`At least two people were killed after a three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
 
-**Live Updates: At Least 1 Dead in Brooklyn Building Collapse**\
-`Four other people were critically injured when the three-story structure in Flatbush collapsed. People were trapped at the site.`\
+**Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
+`At least 17 others were critically injured when the three-story structure in Flatbush collapsed. People were trapped at the site.`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
 
 **Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
