@@ -1,3 +1,11 @@
+**Robert K. Brown, Publisher of Soldier of Fortune Magazine, Has Died**\
+`An Army Green Beret and revered combat veteran, he created a magazine that was a purveyor of gonzo military journalism. He was 93.`\
+https://www.nytimes.com/2026/11/12/obituaries/robert-k-brown-dead.html
+
+**The Face of the A.I. Boom Powering the U.S. Economy Is Gone**\
+`Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
 **A Frantic Search for Survivors in the Brooklyn Building Collapse**\
 `At one moment, an apartment building was standing. At another, it had tumbled into a hole. Ruin, and death, followed.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html

@@ -1,3 +1,7 @@
+**Robert K. Brown, Publisher of Soldier of Fortune Magazine, Has Died**\
+`An Army Green Beret and revered combat veteran, he created a magazine that was a purveyor of gonzo military journalism. He was 93.`\
+https://www.nytimes.com/2026/11/12/obituaries/robert-k-brown-dead.html
+
 **SpaceX Plans $74 Billion Investment to Build Data Centers in Texas and Arizona**\
 `Elon Musk’s rocket and artificial intelligence company has spent billions to develop the giant warehouses full of computer servers that power the technology.`\
 https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
@@ -146,8 +150,8 @@ https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
 `In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
 https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
 
-**Jensen Huang Was the Face of the A.I. Boom Powering the U.S. Economy**\
-`Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
+**The Face of the A.I. Boom Powering the U.S. Economy Is Gone**\
+`Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
 
 **Jensen Huang’s Affairs That Upended Nvidia: Timeline of Events**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple
 **Storm Charles Pummels Portugal and Disrupts Flights**\
 `More than 200 flights were canceled on Wednesday as torrential rain and powerful winds lashed the country.`\
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
-
-**Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
-`News that the chipmaker’s chief executive, Jensen Huang, resigned drove Nvidia’s stock down, though the broader market rose slightly.`\
-https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
 
