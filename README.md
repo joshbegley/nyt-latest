@@ -1,3 +1,11 @@
+**In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks**\
+`The Kremlin, taking a hard line, is pushing to widen negotiations to overhaul European security structures.`\
+https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.html
+
+**Corinne Winters, a Soprano Who Finds Fulfillment in Tragedy**\
+`Corinne Winters will make her Paris Opera debut in Janacek’s “Kat’a Kabanova,” a role she is currently performing in the Czech Republic.`\
+https://www.nytimes.com/2026/11/12/arts/music/paris-opera-corinne-winters.html
+
 **France’s New Export? The Paris Opera Ballet’s Dance Method.**\
 `As part of a multiyear deal, the Teatro Municipal in Chile is receiving intensive training from the famed ballet school.`\
 https://www.nytimes.com/2026/11/12/arts/music/paris-opera-treatro-municipal-chile.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
 https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
 
 **Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
-`Letters that tell companies and officials not to destroy documents signal the direction of potential investigations next year.`\
+`Letters sent by two key House committees signal the direction of potential investigations next year.`\
 https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
 
 **Crediting Others**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/pageoneplus/corrections-nov-12-2026.html
 **Data Centers Will Continue to Be Built, Despite Midterm Elections**\
 `Big technology companies saw the tide turn against their giant A.I. projects, but they have the means to weather delays.`\
 https://www.nytimes.com/2026/11/12/technology/voters-data-centers-construction.html
-
-**Democrats Have Power Now. They Shouldn’t Waste It on Woke.**\
-`This leftist thinker is skeptical that they can govern without lecturing the country.`\
-https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-catherine-liu.html
-
-**36 Hours on the Eastside of Los Angeles: Things to Do and See**\
-`Encompassing parts of Downtown Los Angeles and areas north and east of it, the Eastside is defined less by geography and more by how cool it is.`\
-https://www.nytimes.com/interactive/2026/11/12/travel/things-to-do-eastside-los-angeles.html
 
