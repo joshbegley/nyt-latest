@@ -1,3 +1,7 @@
+**Live Updates: Crews Scour Rubble for Survivors After Deadly Brooklyn Building Collapse**\
+`At least two people were killed and several others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **A Concerned Californian’s Guide to El Niño**\
 `The weather pattern is a familiar companion to the state’s residents. But it doesn’t always behave how they think it will.`\
 https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/opinion/mind-reading-ai.html
 **Could $1 Million Get Them the Manhattan Two-Bedroom They Wanted?**\
 `Hoori Rafieian and Anubhav Aggarwal tried the suburbs, but decided the city suited their needs.`\
 https://www.nytimes.com/quiz/2026/11/12/realestate/12re-hunt-rafieian-aggarwal.html
-
-**The Fragile Truce Between the Working Class and the Woke Left**\
-`Democrats have power now. They shouldn’t waste it on culture wars.`\
-https://www.nytimes.com/video/opinion/100000011274186/the-fragile-truce-between-the-working-class-and-the-woke-left.html
 
