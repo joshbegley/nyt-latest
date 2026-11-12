@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
 
 **Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
-`News that the chip-maker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
+`News that the chipmaker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
 
 **Flight Risks**\
