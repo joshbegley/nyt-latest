@@ -180,7 +180,7 @@ https://www.nytimes.com/2026/11/12/arts/design/adaa-fair-american-art-dealers-ar
 
 **‘Ebenezer’ Review: Holiday Humbug**\
 `Johnny Depp returns as the miser of the Dickens holiday classic. But he isn’t playing Scrooge so much as trying to mount a comeback on a get-up and déjà vu.`\
-https://www.nytimes.com/2026/11/12/movies/ebenezer-review-holiday-humbug.html
+https://www.nytimes.com/2026/11/12/movies/ebenezer-review-johnny-depp.html
 
 **In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks**\
 `The Kremlin, taking a hard line, is pushing to widen negotiations to overhaul European security structures.`\
