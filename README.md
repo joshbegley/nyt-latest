@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.ht
 `The shooting took place in Logan Circle, a busy area of coffee shops, a gym and other businesses not far from the White House. A suspect was barricaded in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 
-**Singapore Says U.S. Not Helpful on Megaspeed Investigation**\
+**Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\
 `In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
 
