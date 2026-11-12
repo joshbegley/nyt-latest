@@ -1,3 +1,7 @@
+**Singapore Says U.S. Not Helpful on Megaspeed Investigation**\
+`In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
+
 **Wall Street Sees the Writing on the Wall for Jensen Huang**\
 `The company’s board is weighing the fate of its chief executive. Silicon Valley and Washington are steeling themselves for life without him.`\
 https://www.nytimes.com/2026/11/12/business/dealbook/wall-street-nvidia-huang-spy.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
 
 **Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
-`News that the chipmaker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
+`News that the chipmaker’s chief executive, Jensen Huang, stepped down drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
 
 **Flight Risks**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/arts/design/hard-art-review-moma-ps1.html
 **three ASFOUR: Cool Before Influencers Were a Thing**\
 `A new film asks if the brand of downtown cool that threeASFOUR once epitomized is gone for good.`\
 https://www.nytimes.com/2026/11/12/style/new-york-asfour-collective-cool.html
-
-**Easy, Elegant Looks for Fall Outings**\
-`The season’s standout pieces are ideal for exploring your personal style, and the world around you.`\
-https://www.nytimes.com/2026/11/12/t-magazine/fall-fashion-separates.html
 

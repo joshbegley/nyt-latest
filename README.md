@@ -1,6 +1,14 @@
+**Several People Are Shot in Washington, D.C., Officials Say**\
+`The shooting took place in Logan Circle, a busy area of coffee shops, a gym and other businesses not far from the White House. A suspect was barricaded in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
 **Singapore Says U.S. Not Helpful on Megaspeed Investigation**\
 `In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
+
+**Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
+`The longtime head of the chip-making colossus admitted to an affair with a woman identified as a spy for China. He was also said to have had a relationship with an executive who reported to him.`\
+https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
 
 **Wall Street Sees the Writing on the Wall for Jensen Huang**\
 `The company’s board is weighing the fate of its chief executive. Silicon Valley and Washington are steeling themselves for life without him.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/science/these-killer-female-apes-challenge-th
 **‘Being Heumann’ Review: Disabled People Righting Wrongs, Staking Out Rights**\
 `A weekslong occupation of a federal building by activists, including Judy Heumann, the “mother of the disability rights movement,” is detailed in this lively docudrama.`\
 https://www.nytimes.com/2026/11/12/movies/being-heumann-review.html
-
-**Hitting Art Hard With Innovation**\
-`The very existence of a show devoted to “Black abstraction” raises questions. Is it valid to continue to sort art by identity? On the evidence of “Hard Art,” the answer is yes.`\
-https://www.nytimes.com/2026/11/12/arts/design/hard-art-review-moma-ps1.html
-
-**three ASFOUR: Cool Before Influencers Were a Thing**\
-`A new film asks if the brand of downtown cool that threeASFOUR once epitomized is gone for good.`\
-https://www.nytimes.com/2026/11/12/style/new-york-asfour-collective-cool.html
 
