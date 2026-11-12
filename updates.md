@@ -1,3 +1,7 @@
+**Deadly Shooting in Busy Washington, D.C., Neighborhood**\
+`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with a fatal gunshot wound, the police said.`\
+https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
+
 **Kalshi Severs Its Relationship With Donald Trump Jr.**\
 `The country’s largest prediction market says it ended its contract with the president’s eldest son after his investment firm took a larger stake in its prime competitor.`\
 https://www.nytimes.com/2026/11/12/us/politics/kalshi-donald-trump-jr.html
