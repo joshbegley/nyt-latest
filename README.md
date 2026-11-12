@@ -1,3 +1,7 @@
+**The Fall of the A.I. King**\
+`How to understand Jensen Huang’s stunning departure.`\
+https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
+
 **Thanksgiving Month**\
 `Why wait for the holiday to load up on turkey, pie and all the fixings?`\
 https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/movies/ebenezer-review-johnny-depp.html
 **In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks**\
 `The Kremlin, taking a hard line, is pushing to widen negotiations to overhaul European security structures.`\
 https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.html
-
-**Corinne Winters, a Soprano Who Finds Fulfillment in Tragedy**\
-`Corinne Winters will make her Paris Opera debut in Janacek’s “Kat’a Kabanova,” a role she is currently performing in the Czech Republic.`\
-https://www.nytimes.com/2026/11/12/arts/music/paris-opera-corinne-winters.html
 
