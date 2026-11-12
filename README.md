@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 12, 2026**\
+`Jared Cappel’s puzzle tells us to grow up.`\
+https://www.nytimes.com/2026/11/11/crosswords/daily-puzzle-2026-11-12.html
+
+**‘The Lowdown’ Season 2 Episode 6 Recap: The Last Ride**\
+`Lee takes a road trip with his father and learns they might have more in common than he thinks.`\
+https://www.nytimes.com/2026/11/11/arts/television/the-lowdown-season-2-episode-6-recap.html
+
 **Pope Leo XIV Goes Home to Peru, Meeting Ghosts of His Past**\
 `In Peru, where Leo XIV lived for two decades and became a citizen, the pope was met by President Keiko Fujimori, whose father’s policies he had protested.`\
 https://www.nytimes.com/2026/11/11/world/europe/pope-leo-peru-visit-lima.html
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memor
 **‘Ghost Soldier’ Review: As Good as His Word**\
 `Jim Caviezel stars in this action film as a former Special Forces officer facing off against a ruthless corporate behemoth razing homes in a rural Wyoming town.`\
 https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
-
-**He Was Killed at Age 15. Now a 17-Year-Old Is Arrested in His Murder.**\
-`Javits Frimpong came to New York from Ghana with big dreams. Just over a year later, he was fatally shot on the way to school in the Bronx.`\
-https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimpong.html
-
-**The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
-`The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.  Watch the livestream.`\
-https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
 
