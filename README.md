@@ -1,3 +1,7 @@
+**Who Is Colette Kress, the Interim Nvidia CEO Replacing Jensen Huang?**\
+`Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
+
 **Several People Are Shot in Washington, D.C., Officials Say**\
 `The shooting took place in Logan Circle, a busy area of coffee shops, a gym and other businesses not far from the White House. A suspect was barricaded in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
