@@ -1,3 +1,7 @@
+**SpaceX Plans $74 Billion Investment to Build Data Centers in Texas and Arizona**\
+`Elon Musk’s rocket and artificial intelligence company has spent billions to develop the giant warehouses full of computer servers that power the technology.`\
+https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
+
 **A Frantic Search for Survivors in the Brooklyn Building Collapse**\
 `(No description)`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
@@ -50,12 +54,16 @@ https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-pop
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
 https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
 
+**Colapso en Brooklyn, en vivo: hay al menos 8 personas muertas**\
+`Dos de los fallecidos eran niños, dijo el alcalde Zohran Mamdani, y otras 18 personas resultaron heridas al derrumbarse un edificio de tres plantas. Las labores de búsqueda y rescate seguían bajo la lluvia.`\
+https://www.nytimes.com/live/2026/11/12/espanol/edificio-colapso-nueva-york
+
 **At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
 `An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
 
-**Ken and Angela Paxton’s Divorce Is Final, His Lawyer Says**\
-`His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
+**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
+`His wife, Angela Paxton, filed for divorce last year, citing adultery and “biblical grounds.”`\
 https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
 
 **Nor’Easter Will Bring Cold Temperatures and Maybe a Little Snow to Millions**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-cancel
 **Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
 `News that the chipmaker’s chief executive, Jensen Huang, resigned drove Nvidia’s stock down, though the broader market rose slightly.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
-
-**Flight Risks**\
-`As we head into the holiday travel season, we’ll answer a question: Is air travel getting less safe?`\
-https://www.nytimes.com/2026/11/12/briefing/flight-risks.html
-
-**What to Know About New Prostate Cancer Screening Recommendations**\
-`Universal screening for the disease has long been a subject of controversy.`\
-https://www.nytimes.com/2026/11/12/well/prostate-cancer-screening-guideline.html
 

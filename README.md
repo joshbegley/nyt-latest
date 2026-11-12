@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
 
 **A Frantic Search for Survivors in the Brooklyn Building Collapse**\
-`(No description)`\
+`At one moment, an apartment building was standing. At another, it had tumbled into a hole. Ruin, and death, followed.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
 
 **Books Our Editors Love This Week**\

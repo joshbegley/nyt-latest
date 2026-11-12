@@ -1,3 +1,15 @@
+**SpaceX Plans $74 Billion Investment to Build Data Centers in Texas and Arizona**\
+`Elon Musk’s rocket and artificial intelligence company has spent billions to develop the giant warehouses full of computer servers that power the technology.`\
+https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
+
+**Colapso en Brooklyn, en vivo: hay al menos 8 personas muertas**\
+`Dos de los fallecidos eran niños, dijo el alcalde Zohran Mamdani, y otras 18 personas resultaron heridas al derrumbarse un edificio de tres plantas. Las labores de búsqueda y rescate seguían bajo la lluvia.`\
+https://www.nytimes.com/live/2026/11/12/espanol/edificio-colapso-nueva-york
+
+**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
+`His wife, Angela Paxton, filed for divorce last year, citing adultery and “biblical grounds.”`\
+https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
+
 **A Frantic Search for Survivors in the Brooklyn Building Collapse**\
 `(No description)`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
