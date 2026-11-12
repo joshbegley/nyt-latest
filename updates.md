@@ -1,3 +1,11 @@
+**Flight Risks**\
+`As we head into the holiday travel season, we’ll answer a question: Is air travel getting less safe?`\
+https://www.nytimes.com/2026/11/12/briefing/flight-risks.html
+
+**Live Updates: At Least 6 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`At least 19 others were injured, four of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **What to Know About New Prostate Cancer Screening Recommendations**\
 `Universal screening for the disease has long been a subject of controversy.`\
 https://www.nytimes.com/2026/11/12/well/prostate-cancer-screening-guideline.html
