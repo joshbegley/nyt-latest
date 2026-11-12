@@ -1,3 +1,7 @@
+**Pregnant Woman Among Those Rescued From Brooklyn Building Collapse**\
+`The woman’s husband found out from a journalist at the scene of a collapsed building in Flatbush, Brooklyn, that his wife was still alive.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-pregnant-woman-rescued.html
+
 **Joanna Kotze’s New Work: A Dance Doomed to Repeat**\
 `Joanna Kotze’s “this is the beginning, this is the end” is a high-strung evocation of cyclical turmoil.`\
 https://www.nytimes.com/2026/11/12/arts/dance/joanna-kotze-new-york-live-arts-this-is-the-beginning-this-is-the-end.html

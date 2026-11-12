@@ -1,3 +1,7 @@
+**Pregnant Woman Among Those Rescued From Brooklyn Building Collapse**\
+`The woman’s husband found out from a journalist at the scene of a collapsed building in Flatbush, Brooklyn, that his wife was still alive.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-pregnant-woman-rescued.html
+
 **Joanna Kotze’s New Work: A Dance Doomed to Repeat**\
 `Joanna Kotze’s “this is the beginning, this is the end” is a high-strung evocation of cyclical turmoil.`\
 https://www.nytimes.com/2026/11/12/arts/dance/joanna-kotze-new-york-live-arts-this-is-the-beginning-this-is-the-end.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/podcasts/the-daily/jensen-huang-nvidia-affair
 **Malawi Farmers Brace for Drought From ‘Super El Niño’**\
 `Our global climate correspondent Chico Harlan visits a remote village in southern Malawi to see how farmers are preparing for an imminent drought caused by this year’s “Super El Niño.”`\
 https://www.nytimes.com/video/climate/100000011222904/super-el-nino-malawi-drought-farmers.html
-
-**NYT Strands Hints for November 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
-https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
 
