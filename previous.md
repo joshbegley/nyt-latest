@@ -1,3 +1,7 @@
+**Pope Leo XIV Goes Home to Peru, Meeting Ghosts of His Past**\
+`In Peru, where Leo XIV lived for two decades and became a citizen, the pope was met by President Keiko Fujimori, whose father’s policies he had protested.`\
+https://www.nytimes.com/2026/11/11/world/europe/pope-leo-peru-visit-lima.html
+
 **Employees Say Jensen Huang Had Relationship With Nvidia Executive**\
 `Five employees at Nvidia who spoke on the condition of anonymity said that Jensen Huang, the company’s leader, had an extramarital relationship with an executive who reports to him. He is already under investigation for an affair with a woman who U.S. officials determined to be a Chinese spy.`\
 https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarital-relationship.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/11/nyregion/nyc-bronx-murder-arrest-javits-frimp
 **The S.S. United States, a Historic Supership, Heads to the Ocean Floor**\
 `The 20th-century ocean liner will become an artificial reef, ending efforts to save a ship that was fast, luxurious and (almost) indestructible.  Watch the livestream.`\
 https://www.nytimes.com/2026/11/11/climate/ss-united-states-ship-sinking-artificial-reef-florida.html
-
-**Kenya Starts Countdown to End of Ebola Outbreak**\
-`The milestone is further evidence that African countries have mostly succeeded in preventing community transmission and isolating the small number of cases that have come in from Congo.`\
-https://www.nytimes.com/2026/11/11/world/africa/kenya-ebola-countdown.html
 

@@ -1,3 +1,7 @@
+**Pope Leo XIV Goes Home to Peru, Meeting Ghosts of His Past**\
+`In Peru, where Leo XIV lived for two decades and became a citizen, the pope was met by President Keiko Fujimori, whose father’s policies he had protested.`\
+https://www.nytimes.com/2026/11/11/world/europe/pope-leo-peru-visit-lima.html
+
 **Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang, CEO’s, Future**\
 `News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
 https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
