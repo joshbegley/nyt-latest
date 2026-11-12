@@ -1,3 +1,7 @@
+**Indonesia’s Vice President, Gibran, Resigns**\
+`Gibran Rakabuming Raka, who is stepping down amid a scandal over his academic credentials, was a symbol of the partnership that elevated President Prabowo Subianto into office.`\
+https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html
+
 **She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
 `Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
 https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
