@@ -1,3 +1,7 @@
+**France’s New Export? The Paris Opera Ballet’s Dance Method.**\
+`As part of a multiyear deal, the Teatro Municipal in Chile is receiving intensive training from the famed ballet school.`\
+https://www.nytimes.com/2026/11/12/arts/music/paris-opera-treatro-municipal-chile.html
+
 **A Glamorous Paris Theater Where a Ballet in 1913 Caused a Riot**\
 `For his inaugural season as general director, Baptiste Charroing is channeling the Théâtre des Champs-Élysées’s iconic past.`\
 https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letter
 https://www.nytimes.com/2026/11/12/insider/crediting-reporting-of-others.html
 
 **Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
-`The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose romantic relationships got them in trouble.`\
+`The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose personal relationships and sexual encounters got them in trouble.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
 
 **The Concession Call to an Election Winner Is No Longer a Given**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-cat
 **36 Hours on the Eastside of Los Angeles: Things to Do and See**\
 `Encompassing parts of Downtown Los Angeles and areas north and east of it, the Eastside is defined less by geography and more by how cool it is.`\
 https://www.nytimes.com/interactive/2026/11/12/travel/things-to-do-eastside-los-angeles.html
-
-**What the Retail Greeting ‘Welcome in’ Says About What Customers Really Want**\
-`The phrase has started showing up everywhere. It reveals a lot about our discomforts with both human and robotic interactions.`\
-https://www.nytimes.com/2026/11/12/magazine/welcome-in-retail.html
 

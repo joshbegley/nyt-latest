@@ -1,3 +1,7 @@
+**A Glamorous Paris Theater Where a Ballet in 1913 Caused a Riot**\
+`For his inaugural season as general director, Baptiste Charroing is channeling the Théâtre des Champs-Élysées’s iconic past.`\
+https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
+
 **‘How to Rob a Bank’ Review: Heist Humor Worthy of TikTok**\
 `A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
 https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html

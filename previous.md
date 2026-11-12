@@ -1,3 +1,7 @@
+**A Glamorous Paris Theater Where a Ballet in 1913 Caused a Riot**\
+`For his inaugural season as general director, Baptiste Charroing is channeling the Théâtre des Champs-Élysées’s iconic past.`\
+https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
+
 **‘How to Rob a Bank’ Review: Heist Humor Worthy of TikTok**\
 `A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
 https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/12/travel/things-to-do-eastside-los-
 **What the Retail Greeting ‘Welcome in’ Says About What Customers Really Want**\
 `The phrase has started showing up everywhere. It reveals a lot about our discomforts with both human and robotic interactions.`\
 https://www.nytimes.com/2026/11/12/magazine/welcome-in-retail.html
-
-**20 Ideas for What to Drink With Thanksgiving Dinner**\
-`These bottles, mostly wine, with a cider and two nonalcoholic options, are energetic and will go with almost anything. They run $15 to $40.`\
-https://www.nytimes.com/2026/11/12/dining/drinks/thanksgiving-wine-cider-nonalcoholic-drinks.html
 
