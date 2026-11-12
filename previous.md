@@ -1,3 +1,11 @@
+**California Could Face 50-Foot Waves as Storms Slam Its Coast**\
+`Back-to-back systems over the next few days will deliver the season’s first widespread rain. Here’s what to know about the forecast.`\
+https://www.nytimes.com/2026/11/12/weather/california-storm-west-coast-rain.html
+
+**An A.I. Titan Resigns**\
+`Also, a Brooklyn building collapse kills eight, including two children. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/11/12/briefing/nvidia-ceo-resigns-brooklyn-collapse.html
+
 **Nvidia Scandal Unleashes a Flood of AI-Generated Memes**\
 `The revelations surrounding Jensen Huang, who resigned from Nvidia over extramarital affairs, inspired social media posts using the very technology his company helped develop.`\
 https://www.nytimes.com/2026/11/12/world/asia/nvidia-ceo-huang-ai-memes.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/12/us/politics/the-docket-supreme-court-congress
 **Mortgage Rates Remain High as Affordability Challenges Persist**\
 `The average 30-year, fixed-rate home loan fell slightly, to 7.11 percent, pushing buyers and sellers to the sidelines until conditions improve.`\
 https://www.nytimes.com/2026/11/12/business/mortgage-rates-home-sales-housing-market.html
-
-**After Hiatus, American Art Dealers Look to the Heady and Light**\
-`The ADAA Fair offers the gamut of modern and contemporary art, from big-color abstraction to mournful, quiet paintings.`\
-https://www.nytimes.com/2026/11/12/arts/design/adaa-fair-american-art-dealers-armory-hopper.html
-
-**‘Ebenezer’ Review: Holiday Humbug**\
-`Johnny Depp returns as the miser of the Dickens holiday classic. But he isn’t playing Scrooge so much as trying to mount a comeback on a get-up and déjà vu.`\
-https://www.nytimes.com/2026/11/12/movies/ebenezer-review-johnny-depp.html
 

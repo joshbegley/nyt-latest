@@ -1,3 +1,11 @@
+**California Could Face 50-Foot Waves as Storms Slam Its Coast**\
+`Back-to-back systems over the next few days will deliver the season’s first widespread rain. Here’s what to know about the forecast.`\
+https://www.nytimes.com/2026/11/12/weather/california-storm-west-coast-rain.html
+
+**An A.I. Titan Resigns**\
+`Also, a Brooklyn building collapse kills eight, including two children. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/11/12/briefing/nvidia-ceo-resigns-brooklyn-collapse.html
+
 **Nvidia Scandal Unleashes a Flood of AI-Generated Memes**\
 `The revelations surrounding Jensen Huang, who resigned from Nvidia over extramarital affairs, inspired social media posts using the very technology his company helped develop.`\
 https://www.nytimes.com/2026/11/12/world/asia/nvidia-ceo-huang-ai-memes.html
