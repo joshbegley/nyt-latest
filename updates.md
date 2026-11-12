@@ -1,3 +1,19 @@
+**Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck**\
+`Seven Chinese tourists, a dozen villagers and a couple of journalists forded streams and bushwhacked to the downed plane of Isoroku Yamamoto, the Japanese admiral. Machetes proved handy.`\
+https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html
+
+**Quote of the Day: A Father’s Dream of Antarctica and a Son’s Unfinished Quest**\
+`Quotation of the Day for Thursday, November 12, 2026.`\
+https://www.nytimes.com/2026/11/12/pageoneplus/quote-of-the-day-a-fathers-dream-of-antarctica-and-a-sons-unfinished-quest.html
+
+**ALT: She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
+`Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
+https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
+
+**Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
+`At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
+https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
+
 **From the Front Page: Voyager 1 Flies Past Saturn on Nov. 12, 1980**\
 `The space probe made its closest approach to the planet, capturing detailed images that included Saturnian rings and moons.`\
 https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
