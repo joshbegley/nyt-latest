@@ -1,3 +1,63 @@
+**When Can We Stop Talking About Trump?**\
+`If it walks like a lame duck and talks like a lame duck, you don’t have to ask what it is.`\
+https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
+
+**Are You a Hugger?**\
+`Do you ever feel like you could use a hug from a parent, a friend or a loved one?`\
+https://www.nytimes.com/2026/11/12/learning/are-you-a-hugger.html
+
+**The Road to ‘Rocky’: Making the Underdog Biopic Had Its Struggles, Too**\
+`“I Play Rocky,” which revisits Sylvester Stallone’s breakout role, became a surprise festival hit this year. But getting it made was a long-shot undertaking.`\
+https://www.nytimes.com/2026/11/12/movies/i-play-rocky-how-it-got-made.html
+
+**Takeaways From the Times’s Report on Aviation Safety**\
+`How alarmed should we be about the state of air travel?`\
+https://www.nytimes.com/2026/11/12/magazine/safety-air-travel-takeaways.html
+
+**How ‘Rivals’ Helped David Tennant Fall for Romance**\
+`The British actor hadn’t read Jilly Cooper’s racy novels before signing on to star in Hulu’s adaptation. Now he compares her to Charles Dickens.`\
+https://www.nytimes.com/2026/11/12/arts/television/rivals-david-tennant.html
+
+**The First Thing Democrats Should Do to Show They’re Serious on Affordability**\
+`A party that just won an election on affordability should not pass up a chance to deliver immediately.`\
+https://www.nytimes.com/2026/11/12/opinion/democrats-congress-affordability-reform.html
+
+**Corrections: Nov. 12, 2026**\
+`Corrections that appeared in print on Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/12/pageoneplus/corrections-nov-12-2026.html
+
+**Data Centers Will Continue to Be Built, Despite Midterm Elections**\
+`Big technology companies saw the tide turn against their giant A.I. projects, but they have the means to weather delays.`\
+https://www.nytimes.com/2026/11/12/technology/voters-data-centers-construction.html
+
+**The Fragile Truce Between the Working Class and the Woke Left**\
+`Democrats have power now. They shouldn’t waste it on culture wars.`\
+https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-catherine-liu.html
+
+**36 Hours on the Eastside of Los Angeles: Things to Do and See**\
+`Encompassing parts of Downtown Los Angeles and areas north and east of it, the Eastside is defined less by geography and more by how cool it is.`\
+https://www.nytimes.com/interactive/2026/11/12/travel/things-to-do-eastside-los-angeles.html
+
+**What the Retail Greeting ‘Welcome in’ Says About What Customers Really Want**\
+`The phrase has started showing up everywhere. It reveals a lot about our discomforts with both human and robotic interactions.`\
+https://www.nytimes.com/2026/11/12/magazine/welcome-in-retail.html
+
+**20 Ideas for What to Drink With Thanksgiving Dinner**\
+`These bottles, mostly wine, with a cider and two nonalcoholic options, are energetic and will go with almost anything. They run $15 to $40.`\
+https://www.nytimes.com/2026/11/12/dining/drinks/thanksgiving-wine-cider-nonalcoholic-drinks.html
+
+**Republicans Prove Why Money Can’t Fix Losing Campaigns**\
+`While tons of money can powerfully amplify a great campaign message, it cannot alone create one.`\
+https://www.nytimes.com/2026/11/12/opinion/republicans-campaign-money-midterms.html
+
+**He Dressed Up for the Opera. As Abraham Lincoln.**\
+`Gary O’Connor has attended dozens of operas dressed as characters in the productions. His latest appearance was at “Lincoln in the Bardo” at the Met.`\
+https://www.nytimes.com/2026/11/12/nyregion/met-opera-lincoln-bardo-costume.html
+
+**Why New England’s Republican Governors Withstood the Blue Wave**\
+`The low-key approach modeled by Gov. Phil Scott of Vermont and Gov. Kelly Ayotte of New Hampshire may gain new relevance as their party looks to recover from a national drubbing.`\
+https://www.nytimes.com/2026/11/12/us/scott-vermont-ayotte-nh-governor-republican.html
+
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are in Briarcliff Manor, N.Y., and Stamford, Conn.`\
 https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-new-york-and-connecticut.html
@@ -137,64 +197,4 @@ https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-sc
 **Lesson Plan | Fake Health Influencers**\
 `What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
 https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
-
-**What to Know About the Deadly Building Collapse in Brooklyn**\
-`At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
-https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
-
-**Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
-`“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
-https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
-
-**New York City Is Set to Ban Companies From Setting Variable Prices**\
-`The City Council is expected to pass a ban on surveillance pricing, the practice of charging customers different prices for the same things based on an algorithm.`\
-https://www.nytimes.com/2026/11/12/nyregion/surveillance-pricing-ban-stores-nyc.html
-
-**NYT Spelling Bee Answers for November 12, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/12/crosswords/spelling-bee-forum.html
-
-**The Workers on the Front Lines of Mamdani’s Free Child Care Plan**\
-`The mayor’s plan for universal child care relies on tens of thousands of workers who are among New York City’s lowest paid. He pledged to raise their pay, but doing so requires more state funding.`\
-https://www.nytimes.com/2026/11/12/nyregion/mamdani-universal-child-care-workers.html
-
-**How 4 Seasoned Commuters Make It From New Jersey to Manhattan**\
-`Crossing the Hudson River on a weekday this fall has required planning, patience and, sometimes, luck. Four New York Times employees put their routes to the test.`\
-https://www.nytimes.com/2026/11/12/nyregion/how-4-seasoned-commuters-make-it-from-new-jersey-to-manhattan.html
-
-**Indonesia’s Vice President, Gibran, Resigns**\
-`Gibran Rakabuming Raka, who is stepping down amid a scandal over his academic credentials, was a symbol of the partnership that elevated President Prabowo Subianto into office.`\
-https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html
-
-**The Spanish Shylock Problem**\
-`The language’s watchdog, Spain’s Royal Academy, holds fast to a dubious definition of “Jew.”`\
-https://www.nytimes.com/2026/11/12/opinion/spanish-dictionary-jewish.html
-
-**Tech Giants Invest in German Robotics Start-Up at $8.5 Billion Valuation**\
-`Agile Robots plans to expand in the United States and increase production in Europe after raising funds in a round led by SoftBank.`\
-https://www.nytimes.com/2026/11/12/business/softbank-nvidia-agile-robots.html
-
-**Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck**\
-`Seven Chinese tourists, a dozen villagers and a couple of journalists forded streams and bushwhacked to the downed plane of Isoroku Yamamoto, the Japanese admiral. Machetes proved handy.`\
-https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html
-
-**Quote of the Day: A Father’s Dream of Antarctica and a Son’s Unfinished Quest**\
-`Quotation of the Day for Thursday, November 12, 2026.`\
-https://www.nytimes.com/2026/11/12/pageoneplus/quote-of-the-day-a-fathers-dream-of-antarctica-and-a-sons-unfinished-quest.html
-
-**She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
-`Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
-https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
-
-**From the Front Page: Voyager 1 Flies Past Saturn on Nov. 12, 1980**\
-`The space probe made its closest approach to the planet, capturing detailed images that included Saturnian rings and moons.`\
-https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
-
-**Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
-`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had struck a “senior Hamas terrorist.”`\
-https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
-
-**At Least 2 Dead in Brooklyn Building Collapse**\
-`At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
-https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
 

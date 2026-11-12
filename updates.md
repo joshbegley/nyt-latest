@@ -1,3 +1,63 @@
+**When Can We Stop Talking About Trump?**\
+`If it walks like a lame duck and talks like a lame duck, you don’t have to ask what it is.`\
+https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
+
+**Are You a Hugger?**\
+`Do you ever feel like you could use a hug from a parent, a friend or a loved one?`\
+https://www.nytimes.com/2026/11/12/learning/are-you-a-hugger.html
+
+**The Road to ‘Rocky’: Making the Underdog Biopic Had Its Struggles, Too**\
+`“I Play Rocky,” which revisits Sylvester Stallone’s breakout role, became a surprise festival hit this year. But getting it made was a long-shot undertaking.`\
+https://www.nytimes.com/2026/11/12/movies/i-play-rocky-how-it-got-made.html
+
+**Takeaways From the Times’s Report on Aviation Safety**\
+`How alarmed should we be about the state of air travel?`\
+https://www.nytimes.com/2026/11/12/magazine/safety-air-travel-takeaways.html
+
+**How ‘Rivals’ Helped David Tennant Fall for Romance**\
+`The British actor hadn’t read Jilly Cooper’s racy novels before signing on to star in Hulu’s adaptation. Now he compares her to Charles Dickens.`\
+https://www.nytimes.com/2026/11/12/arts/television/rivals-david-tennant.html
+
+**The First Thing Democrats Should Do to Show They’re Serious on Affordability**\
+`A party that just won an election on affordability should not pass up a chance to deliver immediately.`\
+https://www.nytimes.com/2026/11/12/opinion/democrats-congress-affordability-reform.html
+
+**Corrections: Nov. 12, 2026**\
+`Corrections that appeared in print on Thursday, Nov. 12, 2026.`\
+https://www.nytimes.com/2026/11/12/pageoneplus/corrections-nov-12-2026.html
+
+**Data Centers Will Continue to Be Built, Despite Midterm Elections**\
+`Big technology companies saw the tide turn against their giant A.I. projects, but they have the means to weather delays.`\
+https://www.nytimes.com/2026/11/12/technology/voters-data-centers-construction.html
+
+**The Fragile Truce Between the Working Class and the Woke Left**\
+`Democrats have power now. They shouldn’t waste it on culture wars.`\
+https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-catherine-liu.html
+
+**36 Hours on the Eastside of Los Angeles: Things to Do and See**\
+`Encompassing parts of Downtown Los Angeles and areas north and east of it, the Eastside is defined less by geography and more by how cool it is.`\
+https://www.nytimes.com/interactive/2026/11/12/travel/things-to-do-eastside-los-angeles.html
+
+**What the Retail Greeting ‘Welcome in’ Says About What Customers Really Want**\
+`The phrase has started showing up everywhere. It reveals a lot about our discomforts with both human and robotic interactions.`\
+https://www.nytimes.com/2026/11/12/magazine/welcome-in-retail.html
+
+**20 Ideas for What to Drink With Thanksgiving Dinner**\
+`These bottles, mostly wine, with a cider and two nonalcoholic options, are energetic and will go with almost anything. They run $15 to $40.`\
+https://www.nytimes.com/2026/11/12/dining/drinks/thanksgiving-wine-cider-nonalcoholic-drinks.html
+
+**Republicans Prove Why Money Can’t Fix Losing Campaigns**\
+`While tons of money can powerfully amplify a great campaign message, it cannot alone create one.`\
+https://www.nytimes.com/2026/11/12/opinion/republicans-campaign-money-midterms.html
+
+**He Dressed Up for the Opera. As Abraham Lincoln.**\
+`Gary O’Connor has attended dozens of operas dressed as characters in the productions. His latest appearance was at “Lincoln in the Bardo” at the Met.`\
+https://www.nytimes.com/2026/11/12/nyregion/met-opera-lincoln-bardo-costume.html
+
+**Why New England’s Republican Governors Withstood the Blue Wave**\
+`The low-key approach modeled by Gov. Phil Scott of Vermont and Gov. Kelly Ayotte of New Hampshire may gain new relevance as their party looks to recover from a national drubbing.`\
+https://www.nytimes.com/2026/11/12/us/scott-vermont-ayotte-nh-governor-republican.html
+
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are in Briarcliff Manor, N.Y., and Stamford, Conn.`\
 https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-new-york-and-connecticut.html
