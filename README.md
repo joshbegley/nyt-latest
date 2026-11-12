@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/12/insider/crediting-reporting-of-others.html
 `The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose personal relationships and sexual encounters got them in trouble.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
 
-**The Concession Call to an Election Winner Is No Longer a Given**\
-`In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
-https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
-
