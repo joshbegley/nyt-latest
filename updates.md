@@ -1,3 +1,7 @@
+**Wall Street Sees the Writing on the Wall for Jensen Huang**\
+`The company’s board is weighing the fate of its chief executive. Silicon Valley and Washington are steeling themselves for life without him.`\
+https://www.nytimes.com/2026/11/12/business/dealbook/wall-street-nvidia-huang-spy.html
+
 **Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
 `News that the chipmaker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html

@@ -1,3 +1,7 @@
+**Wall Street Sees the Writing on the Wall for Jensen Huang**\
+`The company’s board is weighing the fate of its chief executive. Silicon Valley and Washington are steeling themselves for life without him.`\
+https://www.nytimes.com/2026/11/12/business/dealbook/wall-street-nvidia-huang-spy.html
+
 **Steve Carell and John C. Reilly Lead Broadway ‘Odd Couple’ Revival**\
 `The Neil Simon comedy will begin performances in March; the cast will also include the Tony winners Laura Benanti and James Monroe Iglehart.`\
 https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple-broadway.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/style/new-york-asfour-collective-cool.html
 **Easy, Elegant Looks for Fall Outings**\
 `The season’s standout pieces are ideal for exploring your personal style, and the world around you.`\
 https://www.nytimes.com/2026/11/12/t-magazine/fall-fashion-separates.html
-
-**Is Air Travel Getting Less Safe?**\
-`Experts fear the Trump administration is ignoring the enormous strain on the U.S. aviation system, even as accidents and close calls increase.`\
-https://www.nytimes.com/2026/11/12/magazine/air-travel-safety-faa-aviation.html
 
