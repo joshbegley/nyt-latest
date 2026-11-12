@@ -1,3 +1,7 @@
+**Black Turnout Rose in Georgia, Powered by Younger Voters**\
+`Black voters under 30 outpaced young white voters for the first time since 2012, contributing to a statewide sweep by Democrats.`\
+https://www.nytimes.com/2026/11/12/us/black-turnout-georgia.html
+
 **What’s Going On in This Picture? | Nov. 16, 2026**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/11/12/learning/whats-going-on-in-this-picture-nov-16-2026.html
