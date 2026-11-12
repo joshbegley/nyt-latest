@@ -1,3 +1,7 @@
+**Security Camera Footage Captures Brooklyn Building Collapse**\
+`Video from a security camera shows the moment a building in Brooklyn collapsed on Wednesday.`\
+https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
+
 **I Wrote Jensen Huang’s Biography. Here’s What Led to His Downfall.**\
 `How to understand the former Nvidia chief’s stunning departure.`\
 https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html

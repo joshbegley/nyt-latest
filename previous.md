@@ -1,3 +1,7 @@
+**Security Camera Footage Captures Brooklyn Building Collapse**\
+`Video from a security camera shows the moment a building in Brooklyn collapsed on Wednesday.`\
+https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
+
 **What Does 2026 Mean for the Map in 2028?**\
 `Mississippi and other states have created new uncertainty about what, exactly, a red state is.`\
 https://www.nytimes.com/2026/11/12/us/politics/midterm-elections-2028-presidential-map.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/us/politics/rfk-jr-democrats-impeach.html
 **What Do You Want to Know About New York Times Journalism and A.I.?**\
 `New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
 https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
-
-**Democrats Unite on Economic Populism After Midterm Victories**\
-`Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
-https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
 
