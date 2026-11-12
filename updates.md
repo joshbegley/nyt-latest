@@ -1,3 +1,19 @@
+**What Are Those Strange Noises Trump Makes?**\
+`These are erratic executive eruptions.`\
+https://www.nytimes.com/2026/11/12/opinion/trump-speech-midterms.html
+
+**Why 2026 Midterm Polls Underestimated Democratic Support**\
+`Democratic gains were expected, but surveys almost uniformly underestimated how well the left would do. Many pollsters seem to have made similar mistakes.`\
+https://www.nytimes.com/2026/11/12/us/politics/poll-error-democrats-midterms.html
+
+**Dementia Stole His Mother’s Memories. Can Sound Help?**\
+`In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
+https://www.nytimes.com/2026/11/12/opinion/dementia-memory-alaska-wilderness-sounds.html
+
+**Listen**\
+`In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
+https://www.nytimes.com/video/opinion/100000011233698/listen.html
+
 **How Does Search, Rescue and Recovery Work for a Building Collapse?**\
 `The Fire Department’s efforts in Brooklyn are following a standard playbook that has been deployed countless times after similar disasters around the world.`\
 https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html

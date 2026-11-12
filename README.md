@@ -170,7 +170,7 @@ https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
 `In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
 https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
 
-**The Face of the A.I. Boom Powering the U.S. Economy Is Gone**\
+**Jensen Huang, Nvidia’s Ousted CEO, Was the Face of the A.I. Boom Powering the U.S. Economy**\
 `Jensen Huang, Nvidia’s ousted leader, was a unique rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
 
