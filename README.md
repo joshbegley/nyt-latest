@@ -24,7 +24,7 @@ https://www.nytimes.com/2026/11/12/us/politics/pete-hegseth-warrior-image.html
 
 **Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
 `He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
-https://www.nytimes.com/2026/11/12/us/anthony-clark-comic-and-yes-dear-star-dies-at-63.html
+https://www.nytimes.com/2026/11/12/us/anthony-clark-dead.html
 
 **A Key Paris Agreement Goal Is Dead. What Now?**\
 `Leaders at COP31 are confronting a new reality as global warming enters the “unsafe zone.”`\
