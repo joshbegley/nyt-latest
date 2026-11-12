@@ -1,3 +1,7 @@
+**Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
+`He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
+https://www.nytimes.com/2026/11/12/us/anthony-clark-dead.html
+
 **Army Officer Accused of Trying to Spy for Russia Is Afghan War Veteran**\
 `The officer, who served at a NATO base in Britain, is expected to be charged in the coming days, two officials said.`\
 https://www.nytimes.com/2026/11/12/world/europe/army-britain-arrest-spy-russia.html
