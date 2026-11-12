@@ -1,3 +1,7 @@
+**One Dead and Four Wounded in Shooting Around Washington D.C. Condo Building**\
+`The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html

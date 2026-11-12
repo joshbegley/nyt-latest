@@ -1,3 +1,7 @@
+**A Frantic Search for Survivors in the Brooklyn Building Collapse**\
+`(No description)`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
+
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/briefing/flight-risks.html
 **What to Know About New Prostate Cancer Screening Recommendations**\
 `Universal screening for the disease has long been a subject of controversy.`\
 https://www.nytimes.com/2026/11/12/well/prostate-cancer-screening-guideline.html
-
-**Historic S.S. United States Sinks to Ocean Floor**\
-`After years of planning, the S.S. United States was deliberately sunk on Wednesday. Once a luxury ocean liner carrying celebrities and politicians, it is now set to become an artificial reef and diving destination.`\
-https://www.nytimes.com/video/us/100000011278056/ss-united-states-ship-sinking-florida.html
 
