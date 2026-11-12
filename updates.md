@@ -1,3 +1,7 @@
+**Hyde-Smith Blocked Colom’s Path to the Bench. Now He’s Replacing Her.**\
+`Ms. Hyde-Smith, a Republican, blocked Scott Colom from consideration for a U.S. District Court vacancy in Mississippi. Mr. Colom will take her Senate seat in January.`\
+https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-blocked-coloms-path-to-the-bench-now-hes-replacing-her.html
+
 **Scott Colom Will Be Mississippi’s Third Black Senator. Who Were the First Two?**\
 `Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html

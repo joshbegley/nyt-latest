@@ -1,3 +1,7 @@
+**Hyde-Smith Blocked Colom’s Path to the Bench. Now He’s Replacing Her.**\
+`Ms. Hyde-Smith, a Republican, blocked Scott Colom from consideration for a U.S. District Court vacancy in Mississippi. Mr. Colom will take her Senate seat in January.`\
+https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-blocked-coloms-path-to-the-bench-now-hes-replacing-her.html
+
 **Hyde-Smith Concedes to Colom: ‘I Respect the Decision of Mississippi Voters’**\
 `Senator Cindy Hyde-Smith, the first woman to represent Mississippi in Congress, said that her campaign “worked tirelessly to ensure every legally cast vote was counted.”`\
 https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-concedes-senate-colom.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protest
 **White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
 `As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
-
-**Judge Allows Trump’s Defamation Lawsuit Against the BBC to Proceed**\
-`President Trump is seeking damages from the British broadcaster over a documentary it conceded was misleadingly edited.`\
-https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
 
