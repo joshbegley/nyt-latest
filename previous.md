@@ -1,3 +1,11 @@
+**Hyde-Smith Concedes to Colom: ‘I Respect the Decision of Mississippi Voters’**\
+`Senator Cindy Hyde-Smith, the first woman to represent Mississippi in Congress, said that her campaign “worked tirelessly to ensure every legally cast vote was counted.”`\
+https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-concedes-senate-colom.html
+
+**Bruce Giudici Is on the Cusp of Victory in This California Election. He Died Months Ago.**\
+`In a race for a board of supervisors seat in California, a dead candidate holds a huge lead.`\
+https://www.nytimes.com/2026/11/11/us/california-election-dead-candidate.html
+
 **Which Metropolitan Diary Illustration Is Your Favorite?**\
 `Agnes Lee, Metropolitan Diary’s illustrator, picked five drawings she is especially proud of. Vote for your favorite.`\
 https://www.nytimes.com/quiz/2026/11/12/nyregion/metropolitan-diary-illustration-poll.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversigh
 **Judge Allows Trump’s Defamation Lawsuit Against the BBC to Proceed**\
 `President Trump is seeking damages from the British broadcaster over a documentary it conceded was misleadingly edited.`\
 https://www.nytimes.com/2026/11/11/world/europe/trump-bbc-lawsuit.html
-
-**Trump Officials Clashed Over Megaspeed, Firm at Heart of Nvidia Affair**\
-`Treasury Secretary Scott Bessent confronted Commerce Secretary Howard Lutnick last week about why the administration had not put restrictions on advanced chip sales to Megaspeed.`\
-https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lutnick.html
-
-**Trump. Miller. Blanche. Jordan. Things Could Get Worse, and They Probably Will.**\
-`Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
-https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
 
