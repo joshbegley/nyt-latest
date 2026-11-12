@@ -1,3 +1,7 @@
+**What Do You Want to Know About New York Times Journalism and A.I.?**\
+`New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
+https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
+
 **For Democrats, Economic Populism Is Cutting Through Party Divides**\
 `Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
 https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
@@ -143,7 +147,7 @@ https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
 
 **Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
-`News that the chipmaker’s chief executive, Jensen Huang, stepped down drove Nvidia’s stock down and reverberated across global markets.`\
+`News that the chipmaker’s chief executive, Jensen Huang, resigned drove Nvidia’s stock down, though the broader market rose slightly.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
 
 **Flight Risks**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 **Masterpieces From Paris Go Town to Town in a Semi-Truck**\
 `Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
-
-**Live Updates: 2 Children Among 8 Dead in Brooklyn Building Collapse**\
-`Mayor Zohran Mamdani said 18 others were injured when a three-story building fell onto a construction site. Search-and-rescue efforts were continuing in a heavy rain.`\
-https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 

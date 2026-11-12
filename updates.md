@@ -1,3 +1,15 @@
+**For Democrats, Economic Populism Is Cutting Through Party Divides**\
+`Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
+https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
+
+**I’m Thankful for This Glorious Stuffed Pumpkin**\
+`Filled with jeweled rice and crispy shallots, it’s a surefire showstopper.`\
+https://www.nytimes.com/2026/11/12/dining/im-thankful-for-this-glorious-stuffed-pumpkin.html
+
+**Ken and Angela Paxton’s Divorce Is Final, His Lawyer Says**\
+`His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
+https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
+
 **Fixing America: A Bounty of Ideas**\
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
 https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html

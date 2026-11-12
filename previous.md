@@ -1,3 +1,11 @@
+**For Democrats, Economic Populism Is Cutting Through Party Divides**\
+`Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
+https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
+
+**I’m Thankful for This Glorious Stuffed Pumpkin**\
+`Filled with jeweled rice and crispy shallots, it’s a surefire showstopper.`\
+https://www.nytimes.com/2026/11/12/dining/im-thankful-for-this-glorious-stuffed-pumpkin.html
+
 **Fixing America: A Bounty of Ideas**\
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
 https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
 `An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
 
-**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
+**Ken and Angela Paxton’s Divorce Is Final, His Lawyer Says**\
 `His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
 https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 **Live Updates: 2 Children Among 8 Dead in Brooklyn Building Collapse**\
 `Mayor Zohran Mamdani said 18 others were injured when a three-story building fell onto a construction site. Search-and-rescue efforts were continuing in a heavy rain.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
-
-**A Concerned Californian’s Guide to El Niño**\
-`The weather pattern is a familiar companion to the state’s residents. But it doesn’t always behave how they think it will.`\
-https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html
-
-**Russell Brands Accounts Removed From Facebook and Instagram**\
-`Meta said it had disabled his accounts because of his rape conviction. His team announced the ban on X, whose owner, Elon Musk, continues to express support for Brand.`\
-https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
 
