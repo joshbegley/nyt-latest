@@ -1,3 +1,11 @@
+**Thanksgiving Month**\
+`Why wait for the holiday to load up on turkey, pie and all the fixings?`\
+https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
+
+**Mexican Prosecutor Who Helped C.I.A. Secretly Operate in His State Flees to the U.S.**\
+`The prosecutor, who faces arrest in Mexico after allowing C.I.A. officers into Chihuahua state, is under the protection of the U.S. government, according to U.S. and Mexican officials.`\
+https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
+
 **Two Children and 6 Adults Among Deceased After Brooklyn Building Collapse**\
 `A Brooklyn apartment building collapsed into a construction site on Wednesday, killing at least 8 people.`\
 https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
