@@ -1,3 +1,19 @@
+**‘How to Rob a Bank’ Review: Heist Humor Worthy of TikTok**\
+`A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
+https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
+
+**Jensen Huang’s Ouster From Nvidia Could Complicate Billions in Philanthropic Giving**\
+`Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
+
+**Impeach Pete Hegseth Before More Damage Is Done**\
+`We cannot give up on holding the secretary of defense to account.`\
+https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
+
+**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`More than a dozen others were injured, some of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said. Mayor Zohran Mamdani is set to provide updates from the site at noon.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **Gen Z Optimism**\
 `We look at a new term that has emerged online.`\
 https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
