@@ -1,3 +1,19 @@
+**What Are Those Strange Noises Trump Makes?**\
+`These are erratic executive eruptions.`\
+https://www.nytimes.com/2026/11/12/opinion/trump-speech-midterms.html
+
+**Why 2026 Midterm Polls Underestimated Democratic Support**\
+`Democratic gains were expected, but surveys almost uniformly underestimated how well the left would do. Many pollsters seem to have made similar mistakes.`\
+https://www.nytimes.com/2026/11/12/us/politics/poll-error-democrats-midterms.html
+
+**Dementia Stole His Mother’s Memories. Can Sound Help?**\
+`In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
+https://www.nytimes.com/2026/11/12/opinion/dementia-memory-alaska-wilderness-sounds.html
+
+**Listen**\
+`In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
+https://www.nytimes.com/video/opinion/100000011233698/listen.html
+
 **How Does Search, Rescue and Recovery Work for a Building Collapse?**\
 `The Fire Department’s efforts in Brooklyn are following a standard playbook that has been deployed countless times after similar disasters around the world.`\
 https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.ht
 **One Dead and Four Wounded in Shooting Around Washington D.C. Condo Building**\
 `The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
-
-**Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\
-`In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
-https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
-
-**Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
-`Mr. Huang, the founder of the chip-making colossus, had been entangled with a woman identified by U.S. intelligence as a Chinese spy and with an executive who reported to him. His departure immediately reverberated through the tech industry.`\
-https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
-
-**Wall Street Sees the Writing on the Wall for Jensen Huang**\
-`The company’s board is weighing the fate of its chief executive. Silicon Valley and Washington are steeling themselves for life without him.`\
-https://www.nytimes.com/2026/11/12/business/dealbook/wall-street-nvidia-huang-spy.html
-
-**Steve Carell and John C. Reilly Lead Broadway ‘Odd Couple’ Revival**\
-`The Neil Simon comedy will begin performances in March; the cast will also include the Tony winners Laura Benanti and James Monroe Iglehart.`\
-https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple-broadway.html
 

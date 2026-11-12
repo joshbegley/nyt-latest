@@ -1,3 +1,7 @@
+**How Does Search, Rescue and Recovery Work for a Building Collapse?**\
+`The Fire Department’s efforts in Brooklyn are following a standard playbook that has been deployed countless times after similar disasters around the world.`\
+https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html
+
 **Robert K. Brown, Publisher of Soldier of Fortune Magazine, Has Died**\
 `An Army Green Beret and revered combat veteran, he created a magazine that was a purveyor of gonzo military journalism. He was 93.`\
 https://www.nytimes.com/2026/11/12/obituaries/robert-k-brown-dead.html
