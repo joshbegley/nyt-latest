@@ -1,6 +1,10 @@
-**Building Partially Collapses in Brooklyn, Killing at Least One**\
-`At least one person was killed and four were critically injured after a the three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
+**Partial Building Collapse in Brooklyn**\
+`At least two people were killed, and at least 10 others were injured, after a the three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
+
+**Live Updates: At Least 1 Dead in Brooklyn Building Collapse**\
+`Four other people were critically injured when the three-story structure in Flatbush collapsed. People were trapped at the site.`\
+https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
 
 **Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
 `He was the most-cited legal scholar of the latter half of the 20th century and an unapologetic iconoclast, favoring pragmatism over judicial tradition. He was 87.`\
@@ -77,10 +81,6 @@ https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shou
 **Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
 `The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
 https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
-
-**Brooklyn Building Collapses, Killing 1 and Injuring Others in Flatbush, NY**\
-`The three-story structure`\
-https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
 
 **Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
 `Chastain will portray an actress with dementia whose most vivid memories are of rehearsing for the title role in “King Lear.”`\
@@ -185,8 +185,4 @@ https://www.nytimes.com/video/world/europe/100000011277374/schools-bomb-threats-
 **U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors**\
 `Washington wants to intensify its economic pressure campaign on Iran by closing its land borders. Neighboring states, fearing economic fallout, are pushing back.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html
-
-**Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
-`Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
-https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
 
