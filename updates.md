@@ -1,3 +1,7 @@
+**Steve Carell and John C. Reilly Lead Broadway ‘Odd Couple’ Revival**\
+`The Neil Simon comedy will begin performances in March; the cast will also include the Tony winners Laura Benanti and James Monroe Iglehart.`\
+https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple-broadway.html
+
 **Storm Charles Pummels Portugal and Disrupts Flights**\
 `More than 200 flights were canceled on Wednesday as torrential rain and powerful winds lashed the country.`\
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
