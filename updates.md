@@ -1,3 +1,11 @@
+**Jensen Huang’s Resignation From Nvidia Could Complicate Billions in Philanthropic Giving**\
+`Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
+
+**Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
+`Letters sent by two key House committees tell companies and officials not to destroy documents.`\
+https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
+
 **Ken Paxton Divorce Is Finalized, His Lawyer Says**\
 `His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
 https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html

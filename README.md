@@ -1,3 +1,7 @@
+**At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
+`An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
+
 **Ken Paxton Divorce Is Finalized, His Lawyer Says**\
 `His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
 https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 `Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
 
-**5 Shot in Washington D.C.’s Logan Circle Neighborhood**\
+**One Shot Dead and Four Wounded at Washington, D.C., Condo Building**\
 `The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 
@@ -178,8 +182,8 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 `Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 
-**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
-`Two of the dead were children, Mayor Zohran Mamdani said, and 18 others were injured when a three-story building collapsed. Search-and-rescue efforts continued in a steady rain.`\
+**Live Updates: 2 Children Among 8 Dead in Brooklyn Building Collapse**\
+`Mayor Zohran Mamdani said 18 others were injured when a three-story building fell onto a construction site. Search-and-rescue efforts were continuing in a heavy rain.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
 **In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
 `At Tougaloo College, supporters danced and wept over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
 https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
-
-**The Best Possible A.I. Catastrophe**\
-`A cynic’s guide to reining in the reign of artificial intelligence C.E.O.s.`\
-https://www.nytimes.com/2026/11/12/podcasts/ai-catastrophe-josh-tyrangiel.html
 

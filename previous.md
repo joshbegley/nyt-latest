@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
 `A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
 https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
 
-**Jensen Huang’s Ouster From Nvidia Could Complicate Billions in Philanthropic Giving**\
+**Jensen Huang’s Resignation From Nvidia Could Complicate Billions in Philanthropic Giving**\
 `Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
 
@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
 https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
 
 **Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
-`Letters sent by two key House committees signal the direction of potential investigations into Trump’s science and climate cuts.`\
+`Letters sent by two key House committees tell companies and officials not to destroy documents.`\
 https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
 
 **Crediting Others**\
