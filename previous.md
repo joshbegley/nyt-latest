@@ -1,3 +1,7 @@
+**The Concession Call to an Election Winner Is No Longer a Given**\
+`In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
+https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
+
 **Jensen Huang Was the Mascot for the A.I. Boom Powering the U.S. Economy**\
 `Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/style/pony-hair-purses-shoes-trend.html
 **Want to Short a Stock? Kalshi and C.T.F.C. Allow It as ‘Perpetual Trades.’**\
 `After a federal regulator allowed wagering on stocks and cryptocurrencies, two powerful trading clearinghouses filed lawsuits saying traders would not be properly protected.`\
 https://www.nytimes.com/2026/11/12/us/politics/kalshi-commodity-futures-stocks.html
-
-**‘threeASFOUR: FULL CIRCLE’ Review: Clothes as Pure Art**\
-`Sean Ono Lennon directs this documentary about the experimental fashion collective and its struggles despite its high-profile status.`\
-https://www.nytimes.com/2026/11/12/movies/threeasfour-full-circle-review-clothes-as-pure-art.html
 
