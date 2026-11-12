@@ -1,3 +1,7 @@
+**Books Our Editors Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html
+
 **House Passes Competing Veterans Bills in a Fight Over Funding**\
 `Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
 https://www.nytimes.com/2026/11/12/us/politics/house-veterans-benefits-bill-funding.html
