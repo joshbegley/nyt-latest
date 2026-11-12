@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougai
 `Quotation of the Day for Thursday, November 12, 2026.`\
 https://www.nytimes.com/2026/11/12/pageoneplus/quote-of-the-day-a-fathers-dream-of-antarctica-and-a-sons-unfinished-quest.html
 
-**ALT: She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
+**She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
 `Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
 https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
 
