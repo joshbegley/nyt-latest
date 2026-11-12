@@ -1,5 +1,5 @@
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
-`Nassar Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
+`Nasser Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
 **NYT Crossword Answers for Nov. 12, 2026**\
@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-r
 `Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
 
-**Midterm Election Live Updates: Colom Speaks to Supporters After Winning Mississippi Senate Race**\
-`Scott Colom upset the Republican incumbent and will become the first Black senator to represent Mississippi in nearly 150 years. He is speaking at Tougaloo College, a longtime haven for civil rights leaders.`\
+**Midterm Election Live Updates: Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
+`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 
 **Scott Colom, a Democrat, Wins Mississippi Senate Election**\

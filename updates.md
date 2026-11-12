@@ -1,4 +1,12 @@
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
+`Nasser Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
+https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
+
+**Midterm Election Live Updates: Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
+`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
+
+**Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
 `Nassar Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
