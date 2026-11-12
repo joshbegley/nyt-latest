@@ -1,3 +1,7 @@
+**What to Know About the Deadly Building Collapse in Brooklyn**\
+`At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
+https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
+
 **Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
 `“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
 https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.
 **How to Be a Better Gift Giver: Expert Advice and Picks**\
 `Ahead of the holidays, artists, chefs and designers share their tips — and their favorite items.`\
 https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
-
-**A.I. and Market Whiplash**\
-`A Times reporter who covers financial markets helps us make sense of tech turbulence.`\
-https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
 

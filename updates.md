@@ -1,3 +1,7 @@
+**Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
+`“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
+https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
+
 **New York City Is Set to Ban Companies From Setting Variable Prices**\
 `The City Council is expected to pass a ban on surveillance pricing, the practice of charging customers different prices for the same things based on an algorithm.`\
 https://www.nytimes.com/2026/11/12/nyregion/surveillance-pricing-ban-stores-nyc.html
