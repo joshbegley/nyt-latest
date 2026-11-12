@@ -1,3 +1,7 @@
+**Russell Brands Accounts Removed From Facebook and Instagram**\
+`Meta said it had disabled his accounts because of his rape conviction. His team announced the ban on X, whose owner, Elon Musk, continues to express support for Brand.`\
+https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
+
 **In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
 `At Tougaloo College, supporters danced and wept and over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
 https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011274186/the-fragile-truce-between-
 **They Left Iran, but Now the Regime Is Seizing Their Assets to Silence Them**\
 `The Iranian authorities are pursuing diaspora dissidents and journalists, extending the government’s repressive apparatus far beyond its borders.`\
 https://www.nytimes.com/2026/11/12/world/middleeast/iran-confiscations-assets-dissidents.html
-
-**In China’s Spy Operations, Romance Can Be a Long Game**\
-`Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
-https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
 
