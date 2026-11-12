@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougai
 `Quotation of the Day for Thursday, November 12, 2026.`\
 https://www.nytimes.com/2026/11/12/pageoneplus/quote-of-the-day-a-fathers-dream-of-antarctica-and-a-sons-unfinished-quest.html
 
-**ALT: She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
+**She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
 `Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
 https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
 
@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.h
 https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
 
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
-`Nasser Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
+`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had targeted a “senior Hamas terrorist.”`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
 **NYT Crossword Answers for Nov. 12, 2026**\

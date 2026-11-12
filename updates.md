@@ -1,3 +1,11 @@
+**She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
+`Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
+https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
+
+**Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
+`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had targeted a “senior Hamas terrorist.”`\
+https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
+
 **The Spanish Shylock Problem**\
 `The language’s watchdog, Spain’s Royal Academy, holds fast to a dubious definition of “Jew.”`\
 https://www.nytimes.com/2026/11/12/opinion/spanish-dictionary-jewish.html
