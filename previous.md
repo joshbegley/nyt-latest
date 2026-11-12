@@ -1,3 +1,15 @@
+**Jensen Huang Was the Mascot for the A.I. Boom Powering the U.S. Economy**\
+`Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
+**Jensen Huang’s Affairs That Upended Nvidia: Timeline of Events**\
+`News of the Nvidia co-founder’s relationship with a suspected Chinese spy, and his affair with an executive who reports to him, prompted his exit from the multi-trillion-dollar company.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-affairs-timeline.html
+
+**Excavation Was Taking Place Next to Building in Brooklyn That Collapsed**\
+`New York City officials had ordered work at the construction site to stop after an apartment building in the Flatbush neighborhood collapsed onto it.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-excavation-work.html
+
 **Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
 `The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
 https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
@@ -15,7 +27,7 @@ https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
 
 **Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
-`The longtime head of the chip-making colossus admitted to an affair with a woman identified as a spy for China. He was also said to have had a relationship with an executive who reported to him.`\
+`Mr. Huang, the founder of the chip-making colossus, had been entangled with a woman identified by U.S. intelligence as a Chinese spy. His departure immediately reverberated through the tech industry.`\
 https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
 
 **Wall Street Sees the Writing on the Wall for Jensen Huang**\
@@ -62,8 +74,8 @@ https://www.nytimes.com/2026/11/12/crosswords/connections-companion-1251.html
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
 https://www.nytimes.com/2026/11/12/crosswords/wordle-review-1973.html
 
-**What Jensen Huang’s Potential Ouster Could Mean for A.I.**\
-`Nvidia’s board is considering firing Jensen Huang after revelations that he had affairs with an executive who reports to him and a woman who U.S. officials say is a Chinese spy.`\
+**What Jensen Huang’s Resignation Could Mean for A.I.**\
+`The Nvidia leader stepped down after reports that he had affairs with a subordinate and a woman who U.S. officials say is a Chinese spy.`\
 https://www.nytimes.com/2026/11/12/podcasts/the-daily/jensen-huang-nvidia-affairs.html
 
 **Malawi Farmers Brace for Drought From ‘Super El Niño’**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/12/us/politics/kalshi-commodity-futures-stocks.h
 **‘threeASFOUR: FULL CIRCLE’ Review: Clothes as Pure Art**\
 `Sean Ono Lennon directs this documentary about the experimental fashion collective and its struggles despite its high-profile status.`\
 https://www.nytimes.com/2026/11/12/movies/threeasfour-full-circle-review-clothes-as-pure-art.html
-
-**‘Victorian Psycho’ Review: Who’s the Sanest of Them All?**\
-`A deliciously deranged psychological horror thriller pokes at the patriarchy and spills a lot of blood.`\
-https://www.nytimes.com/2026/11/12/movies/victorian-psycho-review.html
-
-**‘Paper Tiger’ Review: An American Tragedy**\
-`Adam Driver, Scarlett Johansson and Miles Teller star in James Gray’s moody period crime thriller about a family caught up in gangland violence.`\
-https://www.nytimes.com/2026/11/12/movies/paper-tiger-review-an-american-tragedy.html
-
-**‘Bitter Christmas’ Review: A Layered Spanish Melodrama**\
-`Pedro Almodóvar combines the stories of two filmmakers into a movie about the pleasure and the price of turning one’s life into art.`\
-https://www.nytimes.com/2026/11/12/movies/bitter-christmas-review.html
 

@@ -1,3 +1,23 @@
+**Jensen Huang Was the Mascot for the A.I. Boom Powering the U.S. Economy**\
+`Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
+**Jensen Huang’s Affairs That Upended Nvidia: Timeline of Events**\
+`News of the Nvidia co-founder’s relationship with a suspected Chinese spy, and his affair with an executive who reports to him, prompted his exit from the multi-trillion-dollar company.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-affairs-timeline.html
+
+**Excavation Was Taking Place Next to Building in Brooklyn That Collapsed**\
+`New York City officials had ordered work at the construction site to stop after an apartment building in the Flatbush neighborhood collapsed onto it.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-excavation-work.html
+
+**Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
+`Mr. Huang, the founder of the chip-making colossus, had been entangled with a woman identified by U.S. intelligence as a Chinese spy. His departure immediately reverberated through the tech industry.`\
+https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
+
+**What Jensen Huang’s Resignation Could Mean for A.I.**\
+`The Nvidia leader stepped down after reports that he had affairs with a subordinate and a woman who U.S. officials say is a Chinese spy.`\
+https://www.nytimes.com/2026/11/12/podcasts/the-daily/jensen-huang-nvidia-affairs.html
+
 **Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
 `The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
 https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
