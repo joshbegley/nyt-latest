@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
 
 **5 Shot in Washington D.C.’s Logan Circle Neighborhood**\
-`The shooting took place outside a gym in Logan Circle, not far from the White House. A suspect was barricaded in a building, the police said.`\
+`The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 
 **Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\

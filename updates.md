@@ -1,3 +1,35 @@
+**Deadly Shooting in Busy Washington, D.C., Neighborhood**\
+`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with what appeared to be a self-inflicted gunshot wound, the police said.`\
+https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
+
+**We Were Warned of Deceptive A.I. Fakes. We Got Memes.**\
+`The surge of A.I. fakes that emerged this election season was different than what researchers had feared. The results are also a reckoning.`\
+https://www.nytimes.com/2026/11/12/technology/artifical-intelligence-fakes-midterm-memes.html
+
+**Will the Supreme Court Thwart Congressional Investigations?**\
+`Lawmakers must dodge rulings on immunity, standing and “valid legislative purpose.”`\
+https://www.nytimes.com/2026/11/12/us/politics/the-docket-supreme-court-congressional-investigations.html
+
+**Mortgage Rates Remain High as Affordability Challenges Persist**\
+`The average 30-year, fixed-rate home loan fell slightly, to 7.11 percent, pushing buyers and sellers to the sidelines until conditions improve.`\
+https://www.nytimes.com/2026/11/12/business/mortgage-rates-home-sales-housing-market.html
+
+**After Hiatus, American Art Dealers Look to the Heady and Light**\
+`The ADAA Fair offers the gamut of modern and contemporary art, from big-color abstraction to mournful, quiet paintings.`\
+https://www.nytimes.com/2026/11/12/arts/design/adaa-fair-american-art-dealers-armory-hopper.html
+
+**‘Ebenezer’ Review: Holiday Humbug**\
+`Johnny Depp returns as the miser of the Dickens holiday classic. But he isn’t playing Scrooge so much as trying to mount a comeback on a get-up and déjà vu.`\
+https://www.nytimes.com/2026/11/12/movies/ebenezer-review-holiday-humbug.html
+
+**Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
+`Letters sent by two key House committees signal the direction of potential investigations into Trump’s science and climate cuts.`\
+https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
+
+**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`More than a dozen others were injured, at least two of them critically, when a three-story building in the Flatbush neighborhood collapsed.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks**\
 `The Kremlin, taking a hard line, is pushing to widen negotiations to overhaul European security structures.`\
 https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.html
