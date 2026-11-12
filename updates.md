@@ -1,3 +1,11 @@
+**What to Know About New Prostate Cancer Screening Recommendations**\
+`Universal screening for the disease has long been a subject of controversy.`\
+https://www.nytimes.com/2026/11/12/well/prostate-cancer-screening-guideline.html
+
+**Historic S.S. United States Sinks to Ocean Floor**\
+`After years of planning, the S.S. United States was deliberately sunk on Wednesday. Once a luxury ocean liner carrying celebrities and politicians, it is now set to become an artificial reef and diving destination.`\
+https://www.nytimes.com/video/us/100000011278056/ss-united-states-ship-sinking-florida.html
+
 **Onlookers Wait at Brooklyn Building Collapse Site Hoping for News of Rescues**\
 `Emergency workers were combing through the rubble early Thursday after at least two people were killed when a three-story apartment building collapsed in New York City.`\
 https://www.nytimes.com/2026/11/12/nyregion/nyc-brooklyn-building-collapse-rescue-wait.html
