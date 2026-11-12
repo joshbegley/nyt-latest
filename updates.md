@@ -1,3 +1,7 @@
+**Singapore Says US Not Helpful on Investigation Into Alice Huang and Megaspeed**\
+`In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
+
 **Who Is Colette Kress, the Interim Nvidia CEO Replacing Jensen Huang?**\
 `Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html

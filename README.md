@@ -1,3 +1,7 @@
+**Trump Says He’s Pulling Vance Off Iran Talks to Focus on Fraud Campaign**\
+`The announcement on social media deepened questions about what the president’s plan is to end the war. “We don’t need a deal with Iran,” he wrote.`\
+https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
+
 **Who Is Colette Kress, the Interim Nvidia CEO Replacing Jensen Huang?**\
 `Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
@@ -26,7 +30,7 @@ https://www.nytimes.com/2026/11/12/theater/steve-carell-john-c-reilly-odd-couple
 `More than 200 flights were canceled on Wednesday as torrential rain and powerful winds lashed the country.`\
 https://www.nytimes.com/2026/11/12/weather/storm-charles-portugal-flights-canceled.html
 
-**Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
+**Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
 `News that the chipmaker’s chief executive, Jensen Huang, stepped down drove Nvidia’s stock down and reverberated across global markets.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/movies/paper-tiger-review-an-american-tragedy
 **‘Bitter Christmas’ Review: A Layered Spanish Melodrama**\
 `Pedro Almodóvar combines the stories of two filmmakers into a movie about the pleasure and the price of turning one’s life into art.`\
 https://www.nytimes.com/2026/11/12/movies/bitter-christmas-review.html
-
-**These Killer Female Apes Challenge the ‘Man the Hunter’ Origin Story**\
-`Bonobos are as closely related to humans as chimps. New evidence that female bonobos are the primary hunters could radically alter our understanding of early human societies.`\
-https://www.nytimes.com/2026/11/12/science/these-killer-female-apes-challenge-the-man-the-hunter-origin-story.html
 
