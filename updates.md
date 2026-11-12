@@ -1,3 +1,7 @@
+**Long Before Scott Colom, There Was Hiram Revels and Blanche Bruce.**\
+`Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
+
 **Hegseth’s Group Scolded at Tomb of the Unknowns**\
 `A soldier at the war memorial yelled at Defense Secretary Pete Hegseth’s group on Wednesday, telling them to show “respect” after laughter broke out.`\
 https://www.nytimes.com/video/us/100000011277675/hegseth-unknown-solider-shout-veterans-day.html

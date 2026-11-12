@@ -1,3 +1,7 @@
+**Long Before Scott Colom, There Was Hiram Revels and Blanche Bruce.**\
+`Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
+
 **Hegseth’s Group Scolded at Tomb of the Unknowns**\
 `A soldier at the war memorial yelled at Defense Secretary Pete Hegseth’s group on Wednesday, telling them to show “respect” after laughter broke out.`\
 https://www.nytimes.com/video/us/100000011277675/hegseth-unknown-solider-shout-veterans-day.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support
 **Workers in Spain Stage a General Strike for the First Time in 14 Years**\
 `Workers in a wide range of industries walked off the job to protest rising rents and stagnant wages, which have become central issues in the campaign.`\
 https://www.nytimes.com/2026/11/11/world/europe/spain-general-strike.html
-
-**‘Cloud 9’: When the Sexual Revolution Was Radical, Messy and Utterly Playful**\
-`A London revival of Caryl Churchill’s satirical 1979 play leans into the exuberance of self-discovery, even as its era of anything-goes hedonism has, in many ways, past.`\
-https://www.nytimes.com/2026/11/11/theater/cloud-nine-national-theatre-london-review.html
 
