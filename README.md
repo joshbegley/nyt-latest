@@ -1,3 +1,7 @@
+**Jensen Huang Was the Mascot for the A.I. Boom Powering the U.S. Economy**\
+`Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
+https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html
+
 **Jensen Huang’s Affairs That Upended Nvidia: Timeline of Events**\
 `News of the Nvidia co-founder’s relationship with a suspected Chinese spy, and his affair with an executive who reports to him, prompted his exit from the multi-trillion-dollar company.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-affairs-timeline.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
 
 **Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
-`The longtime head of the chip-making colossus admitted to an affair with a woman identified as a spy for China. He was also said to have had a relationship with an executive who reported to him.`\
+`Mr. Huang, the founder of the chip-making colossus, had been entangled with a woman identified by U.S. intelligence as a Chinese spy. His departure immediately reverberated through the tech industry.`\
 https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
 
 **Wall Street Sees the Writing on the Wall for Jensen Huang**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/us/politics/kalshi-commodity-futures-stocks.h
 **‘threeASFOUR: FULL CIRCLE’ Review: Clothes as Pure Art**\
 `Sean Ono Lennon directs this documentary about the experimental fashion collective and its struggles despite its high-profile status.`\
 https://www.nytimes.com/2026/11/12/movies/threeasfour-full-circle-review-clothes-as-pure-art.html
-
-**‘Victorian Psycho’ Review: Who’s the Sanest of Them All?**\
-`A deliciously deranged psychological horror thriller pokes at the patriarchy and spills a lot of blood.`\
-https://www.nytimes.com/2026/11/12/movies/victorian-psycho-review.html
 
