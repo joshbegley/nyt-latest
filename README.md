@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shou
 https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
 
 **Brooklyn Building Collapses, Killing 1 and Injuring Others in Flatbush, NY**\
-`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday. People were trapped at the site.`\
+`The three-story structure`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
 
 **Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
