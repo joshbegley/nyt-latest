@@ -1,3 +1,7 @@
+**Fixing America: A Bounty of Ideas**\
+`Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
+https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
+
 **At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
 `An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
 https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html
 **Russell Brands Accounts Removed From Facebook and Instagram**\
 `Meta said it had disabled his accounts because of his rape conviction. His team announced the ban on X, whose owner, Elon Musk, continues to express support for Brand.`\
 https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
-
-**In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
-`At Tougaloo College, supporters danced and wept over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
-https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
 

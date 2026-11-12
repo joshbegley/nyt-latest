@@ -1,3 +1,7 @@
+**Fixing America: A Bounty of Ideas**\
+`Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
+https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
+
 **One Shot Dead and Four Wounded Around Washington, D.C., Condo Building**\
 `The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
