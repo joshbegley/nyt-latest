@@ -1,3 +1,7 @@
+**The Spanish Shylock Problem**\
+`The language’s watchdog, Spain’s Royal Academy, holds fast to a dubious definition of “Jew.”`\
+https://www.nytimes.com/2026/11/12/opinion/spanish-dictionary-jewish.html
+
 **Tech Giants Invest in German Robotics Start-Up at $8.5 Billion Valuation**\
 `Agile Robots plans to expand in the United States and increase production in Europe after raising funds in a round led by SoftBank.`\
 https://www.nytimes.com/2026/11/12/business/softbank-nvidia-agile-robots.html
@@ -110,8 +114,8 @@ https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 `Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
 https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
 
-**Nvidia’s Board Is Meeting to Discuss Jensen Huang’s Future**\
-`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
+**Nvidia’s Board Is Weighing Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as for a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
 
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midter
 **Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
 `Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-immigration-election-democrats-republicans.html
-
-**Court Rules That Sexual Harassment Case Against SpaceX Can Proceed**\
-`The company had argued that the case, involving eight former workers, must be resolved before an arbitrator.`\
-https://www.nytimes.com/2026/11/11/business/sexual-harassment-spacex-elon-musk.html
 

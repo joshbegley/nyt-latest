@@ -1,3 +1,11 @@
+**The Spanish Shylock Problem**\
+`The language’s watchdog, Spain’s Royal Academy, holds fast to a dubious definition of “Jew.”`\
+https://www.nytimes.com/2026/11/12/opinion/spanish-dictionary-jewish.html
+
+**Nvidia’s Board Is Weighing Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as for a relationship with an executive at his A.I. chip company.`\
+https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
+
 **Tech Giants Invest in German Robotics Start-Up at $8.5 Billion Valuation**\
 `Agile Robots plans to expand in the United States and increase production in Europe after raising funds in a round led by SoftBank.`\
 https://www.nytimes.com/2026/11/12/business/softbank-nvidia-agile-robots.html
