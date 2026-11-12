@@ -1,3 +1,7 @@
+**Indonesia’s Vice President, Gibran, Resigns**\
+`Gibran Rakabuming Raka, who is stepping down amid a scandal over his academic credentials, was a symbol of the partnership that elevated President Prabowo Subianto into office.`\
+https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html
+
 **The Spanish Shylock Problem**\
 `The language’s watchdog, Spain’s Royal Academy, holds fast to a dubious definition of “Jew.”`\
 https://www.nytimes.com/2026/11/12/opinion/spanish-dictionary-jewish.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/us/politics/massie-trump-difficult-republican
 **How Democrats Invested Online to Overcome Their Cash Disadvantage**\
 `Strategists for Senate Democrats say they spent record sums reaching voters, particularly younger ones, on nontraditional platforms such as YouTube and various streaming sites.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-digital-spending-midterm-election.html
-
-**Trump Hints at Immigration Deal, Then Reverses. He’s Done That Before.**\
-`Democrats and some Republicans say President Trump is missing an opportunity to find consensus on an issue that has bedeviled past administrations.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-immigration-election-democrats-republicans.html
 
