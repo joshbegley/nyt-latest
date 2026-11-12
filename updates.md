@@ -1,3 +1,15 @@
+**What Students Are Saying About Law Enforcement in Schools**\
+`Teenagers weigh in on whether police officers make schools feel safer and how much of a role they should have in disciplining students.`\
+https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-enforcement-in-schools.html
+
+**Paul LePage, Ex-Governor of Maine, Flips House Seat to Republicans**\
+`Paul LePage defeated a progressive Democrat, Matt Dunlap, in the state’s rural Second Congressional District.`\
+https://www.nytimes.com/2026/11/12/sports/paul-lepage-maine-house-race.html
+
+**What We Know About the Victims of the Brooklyn Building Collapse**\
+`At least eight people were killed when a three-story building fell into a neighboring construction site Wednesday afternoon. The search for survivors continued into the next day.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-victims.html
+
 **Pregnant Woman Among Those Rescued From Brooklyn Building Collapse**\
 `The woman’s husband found out from a journalist at the scene of a collapsed building in Flatbush, Brooklyn, that his wife was still alive.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-pregnant-woman-rescued.html

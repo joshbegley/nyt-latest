@@ -1,3 +1,7 @@
+**Fed Will Not Hold Policy Vote at October 2027 Meeting**\
+`The shift to a strategy meeting next October is just the first step in a broader plan by Kevin M. Warsh, the chairman of the Federal Reserve, to change how the central bank operates.`\
+https://www.nytimes.com/2026/11/12/business/economy/fed-warsh-october.html
+
 **What Students Are Saying About Law Enforcement in Schools**\
 `Teenagers weigh in on whether police officers make schools feel safer and how much of a role they should have in disciplining students.`\
 https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-enforcement-in-schools.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/nyregion/nyc-brooklyn-building-collapse-rescu
 **A Second Affair Revelation Rocks Nvidia, and a Democrat Wins Mississippi in a Major Senate Upset**\
 `Plus, the downfall of Russia’s most daring newspaper.`\
 https://www.nytimes.com/2026/11/12/podcasts/the-headlines/jensen-huang-nvidia-scott-colom-mississippi-senate.html
-
-**NYT Connections Answers for November 13, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
-https://www.nytimes.com/2026/11/12/crosswords/connections-companion-1251.html
 
