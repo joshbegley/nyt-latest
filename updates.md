@@ -1,3 +1,11 @@
+**I Wrote Jensen Huang’s Biography. Here’s What Led to His Downfall.**\
+`How to understand the former Nvidia chief’s stunning departure.`\
+https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
+
+**My Mother Has Dementia. These Sounds Help Bring Her Back.**\
+`In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
+https://www.nytimes.com/2026/11/12/opinion/dementia-memory-alaska-wilderness-sounds.html
+
 **What Does 2026 Mean for the Map in 2028?**\
 `Mississippi and other states have created new uncertainty about what, exactly, a red state is.`\
 https://www.nytimes.com/2026/11/12/us/politics/midterm-elections-2028-presidential-map.html
