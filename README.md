@@ -1,3 +1,7 @@
+**Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
+`“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
+https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
+
 **New York City Is Set to Ban Companies From Setting Variable Prices**\
 `The City Council is expected to pass a ban on surveillance pricing, the practice of charging customers different prices for the same things based on an algorithm.`\
 https://www.nytimes.com/2026/11/12/nyregion/surveillance-pricing-ban-stores-nyc.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
 **A.I. and Market Whiplash**\
 `A Times reporter who covers financial markets helps us make sense of tech turbulence.`\
 https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
-
-**Alexander Darchiev, Russia’s Ambassador to the U.S., Dies at 66**\
-`The death of Alexander Darchiev was announced by Russia’s foreign ministry. He was appointed to his post in Washington in 2025, as relations between the Kremlin and the White House warmed.`\
-https://www.nytimes.com/2026/11/11/world/europe/russian-ambassador-darchiev-dead.html
 
