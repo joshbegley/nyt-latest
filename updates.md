@@ -1,3 +1,7 @@
+**Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
+`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
+https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-republicans.html
+
 **Employees Say Jensen Huang Had Relationship With Nvidia Executive**\
 `Five employees at Nvidia who spoke on the condition of anonymity said that Jensen Huang, the company’s leader, had an extramarital relationship with an executive who reports to him. He is already under investigation for an affair with a woman who U.S. officials determined to be a Chinese spy.`\
 https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarital-relationship.html
