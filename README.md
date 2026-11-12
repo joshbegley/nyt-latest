@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-r
 `Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
 
-**Midterm Election Live Updates: Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
+**Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
 `Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 

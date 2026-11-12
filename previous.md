@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegset
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 
 **Scott Colom, a Democrat, Wins Mississippi Senate Election**\
-`Scott Colom, a Democrat and prosecutor who won in a major upset, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+`Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
 https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
 
 **Nvidia’s Board Is Meeting to Discuss Jensen Huang’s Future**\

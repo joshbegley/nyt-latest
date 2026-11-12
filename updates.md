@@ -1,3 +1,7 @@
+**Scott Colom, a Democrat, Wins Mississippi Senate Election**\
+`Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
+https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
+
 **Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
 `(No description)`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
