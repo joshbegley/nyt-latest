@@ -1,6 +1,6 @@
 **House Passes Competing Veterans Bills in a Fight Over Funding**\
 `Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
-https://www.nytimes.com/2026/11/12/us/politics/house-passes-competing-veterans-bills-in-a-fight-over-funding.html
+https://www.nytimes.com/2026/11/12/us/politics/house-veterans-benefits-bill-funding.html
 
 **Fed Will Not Hold Policy Vote at October 2027 Meeting**\
 `The shift to a strategy meeting next October is just the first step in a broader plan by Kevin M. Warsh, the chairman of the Federal Reserve, to change how the central bank operates.`\

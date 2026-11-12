@@ -1,3 +1,11 @@
+**House Passes Competing Veterans Bills in a Fight Over Funding**\
+`Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
+https://www.nytimes.com/2026/11/12/us/politics/house-passes-competing-veterans-bills-in-a-fight-over-funding.html
+
+**Fed Will Not Hold Policy Vote at October 2027 Meeting**\
+`The shift to a strategy meeting next October is just the first step in a broader plan by Kevin M. Warsh, the chairman of the Federal Reserve, to change how the central bank operates.`\
+https://www.nytimes.com/2026/11/12/business/economy/fed-warsh-october.html
+
 **What Students Are Saying About Law Enforcement in Schools**\
 `Teenagers weigh in on whether police officers make schools feel safer and how much of a role they should have in disciplining students.`\
 https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-enforcement-in-schools.html
