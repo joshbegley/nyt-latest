@@ -1,3 +1,15 @@
+**Two Children and 6 Adults Among Deceased After Brooklyn Building Collapse**\
+`A Brooklyn apartment building collapsed into a construction site on Wednesday, killing at least 8 people.`\
+https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
+
+**Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
+`The company said that some of its servers were unexpectedly unavailable, straining the remaining infrastructure, and that it was working to bring users back online.`\
+https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
+
+**Roger Taylor, Drummer for Duran Duran, Quits Band Because of Tinnitus**\
+`Roger Taylor, who has played with the Grammy-winning synth-pop group for decades, said his worsening tinnitus was forcing him to retire.`\
+https://www.nytimes.com/2026/11/12/arts/music/duran-duran-roger-taylor-tinnitus-drummer.html
+
 **Deadly Shooting in Busy Washington, D.C., Neighborhood**\
 `A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with a fatal gunshot wound, the police said.`\
 https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html

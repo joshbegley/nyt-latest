@@ -1,3 +1,11 @@
+**Thanksgiving Month**\
+`Why wait for the holiday to load up on turkey, pie and all the fixings?`\
+https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
+
+**Mexican Prosecutor Who Helped C.I.A. Secretly Operate in His State Flees to the U.S.**\
+`The prosecutor, who faces arrest in Mexico after allowing C.I.A. officers into Chihuahua state, is under the protection of the U.S. government, according to U.S. and Mexican officials.`\
+https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
+
 **Two Children and 6 Adults Among Deceased After Brooklyn Building Collapse**\
 `A Brooklyn apartment building collapsed into a construction site on Wednesday, killing at least 8 people.`\
 https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.h
 **Corinne Winters, a Soprano Who Finds Fulfillment in Tragedy**\
 `Corinne Winters will make her Paris Opera debut in Janacek’s “Kat’a Kabanova,” a role she is currently performing in the Czech Republic.`\
 https://www.nytimes.com/2026/11/12/arts/music/paris-opera-corinne-winters.html
-
-**France’s New Export? The Paris Opera Ballet’s Dance Method.**\
-`As part of a multiyear deal, the Teatro Municipal in Chile is receiving intensive training from the famed ballet school.`\
-https://www.nytimes.com/2026/11/12/arts/music/paris-opera-treatro-municipal-chile.html
-
-**A Glamorous Paris Theater Where a Ballet in 1913 Caused a Riot**\
-`For his inaugural season as general director, Baptiste Charroing is channeling the Théâtre des Champs-Élysées’s iconic past.`\
-https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
 
