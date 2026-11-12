@@ -1,3 +1,11 @@
+**Kalshi Severs Its Relationship With Donald Trump Jr.**\
+`The country’s largest prediction market says it ended its contract with the president’s eldest son after his investment firm took a larger stake in its prime competitor.`\
+https://www.nytimes.com/2026/11/12/us/politics/kalshi-donald-trump-jr.html
+
+**Farewell to Stanley Zabar, the ‘Mayor’ of the Upper West Side**\
+`For decades he helped steer Zabar’s, a food institution. He lived for “the store,” his family and his Manhattan neighborhood.`\
+https://www.nytimes.com/2026/11/12/nyregion/stanley-zabar-upper-west-side.html
+
 **Army Officer Accused of Trying to Spy for Russia Is Afghan War Veteran**\
 `The officer, who served at a NATO base in Britain, is expected to be charged in the coming days, two officials said.`\
 https://www.nytimes.com/2026/11/12/world/europe/army-britain-arrest-spy-russia.html
@@ -18,7 +26,7 @@ https://www.nytimes.com/2026/11/12/us/black-turnout-georgia.html
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://www.nytimes.com/2026/11/12/learning/whats-going-on-in-this-picture-nov-16-2026.html
 
-**A Warrior Secretary and a Lesson at the Tomb of the Unknowns**\
+**Pete Hegseth, a Soldier’s Scolding and a Lesson at the Tomb of Unknowns**\
 `Defense Secretary Pete Hegseth’s highly cultivated brand took a hit during an encounter with an Army sentinel at Arlington Cemetery.`\
 https://www.nytimes.com/2026/11/12/us/politics/pete-hegseth-warrior-image.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.h
 **Gen Z Optimism**\
 `We look at a new term that has emerged online.`\
 https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
-
-**Impeach Pete Hegseth Before More Damage Is Done**\
-`We cannot give up on holding the secretary of defense to account.`\
-https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
-
-**Here’s Genevieve Ko’s Baked Curry Chicken and Rice**\
-`A golden tray of cozy comfort.`\
-https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
 

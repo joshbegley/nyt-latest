@@ -1,3 +1,15 @@
+**Kalshi Severs Its Relationship With Donald Trump Jr.**\
+`The country’s largest prediction market says it ended its contract with the president’s eldest son after his investment firm took a larger stake in its prime competitor.`\
+https://www.nytimes.com/2026/11/12/us/politics/kalshi-donald-trump-jr.html
+
+**Farewell to Stanley Zabar, the ‘Mayor’ of the Upper West Side**\
+`For decades he helped steer Zabar’s, a food institution. He lived for “the store,” his family and his Manhattan neighborhood.`\
+https://www.nytimes.com/2026/11/12/nyregion/stanley-zabar-upper-west-side.html
+
+**Pete Hegseth, a Soldier’s Scolding and a Lesson at the Tomb of Unknowns**\
+`Defense Secretary Pete Hegseth’s highly cultivated brand took a hit during an encounter with an Army sentinel at Arlington Cemetery.`\
+https://www.nytimes.com/2026/11/12/us/politics/pete-hegseth-warrior-image.html
+
 **Anthony Clark, Comic and ‘Yes, Dear’ Star, Dies at 63**\
 `He first became a fixture in the Boston stand-up comedy scene before heading to Hollywood.`\
 https://www.nytimes.com/2026/11/12/us/anthony-clark-dead.html

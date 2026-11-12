@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
 https://www.nytimes.com/2026/11/12/weather/noreaster-snow-cold.html
 
 **Deadly Shooting in Busy Washington, D.C., Neighborhood**\
-`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with what appeared to be a self-inflicted gunshot wound, the police said.`\
+`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with a fatal gunshot wound, the police said.`\
 https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
 
 **We Were Warned of Deceptive A.I. Fakes. We Got Memes.**\
