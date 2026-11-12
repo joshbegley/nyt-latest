@@ -1,3 +1,7 @@
+**Teen Found After Missing for 6 Days in Australian Forest**\
+`A 17-year-old with autism disappeared last Friday during a camping trip. He was found alive on Thursday by a police helicopter near Walhalla, Australia.`\
+https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6-days-found-alive.html
+
 **The Fall of the A.I. King**\
 `How to understand Jensen Huang’s stunning departure.`\
 https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/arts/design/adaa-fair-american-art-dealers-ar
 **‘Ebenezer’ Review: Holiday Humbug**\
 `Johnny Depp returns as the miser of the Dickens holiday classic. But he isn’t playing Scrooge so much as trying to mount a comeback on a get-up and déjà vu.`\
 https://www.nytimes.com/2026/11/12/movies/ebenezer-review-johnny-depp.html
-
-**In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks**\
-`The Kremlin, taking a hard line, is pushing to widen negotiations to overhaul European security structures.`\
-https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.html
 
