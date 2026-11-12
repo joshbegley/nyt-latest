@@ -1,3 +1,7 @@
+**A Concerned Californian’s Guide to El Niño**\
+`The weather pattern is a familiar companion to the state’s residents. But it doesn’t always behave how they think it will.`\
+https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html
+
 **Russell Brands Accounts Removed From Facebook and Instagram**\
 `Meta said it had disabled his accounts because of his rape conviction. His team announced the ban on X, whose owner, Elon Musk, continues to express support for Brand.`\
 https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
