@@ -1,3 +1,127 @@
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are in Briarcliff Manor, N.Y., and Stamford, Conn.`\
+https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-new-york-and-connecticut.html
+
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in the financial district, Washington Heights and Bushwick.`\
+https://www.nytimes.com/2026/11/12/realestate/homes-for-sale-in-manhattan-and-brooklyn.html
+
+**Help! A Broken Toilet Grounded My Plane, and the Airline Won’t Cover a Hotel.**\
+`Turkish Airlines tried to wiggle out of paying for a passenger’s $512 overnight stay after a stomach-churning malfunction forced it to cancel a flight in Denver.`\
+https://www.nytimes.com/2026/11/12/travel/turkish-airlines-flight-delay-hotel-refund.html
+
+**Pony Hair Is Everywhere**\
+`Craving texture and looking to spruce up basics, shoppers are drawn to bristled belts, bags and (especially) shoes.`\
+https://www.nytimes.com/2026/11/12/style/pony-hair-purses-shoes-trend.html
+
+**Want to Short a Stock? Kalshi and C.T.F.C. Allow It as ‘Perpetual Trades.’**\
+`After a federal regulator allowed wagering on stocks and cryptocurrencies, two powerful trading clearinghouses filed lawsuits saying traders would not be properly protected.`\
+https://www.nytimes.com/2026/11/12/us/politics/kalshi-commodity-futures-stocks.html
+
+**‘threeASFOUR: FULL CIRCLE’ Review: Clothes as Pure Art**\
+`Sean Ono Lennon directs this documentary about the experimental fashion collective and its struggles despite its high-profile status.`\
+https://www.nytimes.com/2026/11/12/movies/threeasfour-full-circle-review-clothes-as-pure-art.html
+
+**‘Victorian Psycho’ Review: Who’s the Sanest of Them All?**\
+`A deliciously deranged psychological horror thriller pokes at the patriarchy and spills a lot of blood.`\
+https://www.nytimes.com/2026/11/12/movies/victorian-psycho-review.html
+
+**‘Paper Tiger’ Review: An American Tragedy**\
+`Adam Driver, Scarlett Johansson and Miles Teller star in James Gray’s moody period crime thriller about a family caught up in gangland violence.`\
+https://www.nytimes.com/2026/11/12/movies/paper-tiger-review-an-american-tragedy.html
+
+**‘Bitter Christmas’ Review: A Layered Spanish Melodrama**\
+`Pedro Almodóvar combines the stories of two filmmakers into a movie about the pleasure and the price of turning one’s life into art.`\
+https://www.nytimes.com/2026/11/12/movies/bitter-christmas-review.html
+
+**These Killer Female Apes Challenge the ‘Man the Hunter’ Origin Story**\
+`Bonobos are as closely related to humans as chimps. New evidence that female bonobos are the primary hunters could radically alter our understanding of early human societies.`\
+https://www.nytimes.com/2026/11/12/science/these-killer-female-apes-challenge-the-man-the-hunter-origin-story.html
+
+**‘Being Heumann’ Review: Disabled People Righting Wrongs, Staking Out Rights**\
+`A weekslong occupation of a federal building by activists, including Judy Heumann, the “mother of the disability rights movement,” is detailed in this lively docudrama.`\
+https://www.nytimes.com/2026/11/12/movies/being-heumann-review.html
+
+**Hitting Art Hard With Innovation**\
+`The very existence of a show devoted to “Black abstraction” raises questions. Is it valid to continue to sort art by identity? On the evidence of “Hard Art,” the answer is yes.`\
+https://www.nytimes.com/2026/11/12/arts/design/hard-art-review-moma-ps1.html
+
+**three ASFOUR: Cool Before Influencers Were a Thing**\
+`A new film asks if the brand of downtown cool that threeASFOUR once epitomized is gone for good.`\
+https://www.nytimes.com/2026/11/12/style/new-york-asfour-collective-cool.html
+
+**Easy, Elegant Looks for Fall Outings**\
+`The season’s standout pieces are ideal for exploring your personal style, and the world around you.`\
+https://www.nytimes.com/2026/11/12/t-magazine/fall-fashion-separates.html
+
+**Is Air Travel Getting Less Safe?**\
+`Experts fear the Trump administration is ignoring the enormous strain on the U.S. aviation system, even as accidents and close calls increase.`\
+https://www.nytimes.com/2026/11/12/magazine/air-travel-safety-faa-aviation.html
+
+**W.N.B.A. Star Caitlin Clark on Her New Book for Kids**\
+`“She doesn’t let other people tell her what she can or can’t do,” says the W.N.B.A. star, who just published an inspirational book for kids.`\
+https://www.nytimes.com/2026/11/12/books/review/caitlin-clark-extraordinary.html
+
+**Book Review: ‘The First House,’ by Avni Doshi**\
+`“The First House” follows a woman trying to understand why her life went awry.`\
+https://www.nytimes.com/2026/11/12/books/review/the-first-house-avni-doshi.html
+
+**A.I. Weapons Need Data for Their Training. Ukraine Has a Lot to Offer.**\
+`The Ukrainian government has opened up a trove of five million battlefield videos to defense companies at home and abroad.`\
+https://www.nytimes.com/2026/11/12/world/europe/ukraine-ai-weapons.html
+
+**Thinking About Ping Pong Through Dance in Cherrie Yu’s ‘Daily Diversions’**\
+`Cherrie Yu’s “Daily Diversions” draws attention to the formal and rhythmic properties of the sport while exploring her own history with it.`\
+https://www.nytimes.com/2026/11/12/arts/dance/ping-pong-cherrie-yu-daily-diversions.html
+
+**Bruce Springsteen, U2 and More Honor Shane MacGowan on New Album**\
+`A double LP gathers an eclectic group to interpret MacGowan’s songs, which celebrate the perfectly imperfect.`\
+https://www.nytimes.com/2026/11/12/arts/music/bruce-springsteen-u2-and-more-honor-shane-macgowan-on-new-album.html
+
+**How the Legacy of Torture Has Vexed the Quest for 9/11 Justice**\
+`From coerced confessions to the creation of an alternative court system, years of U.S. government decisions doomed speedy trial prospects.`\
+https://www.nytimes.com/2026/11/12/us/politics/torture-9-11.html
+
+**Word of the Day: exude**\
+`This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/12/learning/word-of-the-day-exude.html
+
+**Malawi Lacks Money to Fund its El Niño Plans**\
+`The question is being asked across the developing world, where hunger risk is high from the extreme weather El Niño is expected to bring. Malawi has a big plan, but little money.`\
+https://www.nytimes.com/2026/11/12/climate/el-nino-malawi-farmer-drought.html
+
+**Snoopy Lives!**\
+`Nearly three decades after the last “Peanuts” comic strip, Charlie Brown and the gang are everywhere, thanks to more than a thousand brand deals.`\
+https://www.nytimes.com/2026/11/12/style/peanuts-snoopy-charlie-brown-brand-partnerships-advertising.html
+
+**San Antonio Fights Plan to Turn Warehouse Into ICE Detention Center**\
+`The city’s lawsuit is part of a wave of legal challenges slowing the Trump administration’s effort to build immigration detention centers across the country.`\
+https://www.nytimes.com/2026/11/12/us/ice-detention-center-san-antonio.html
+
+**The Woman Who Wanted to Help the St. Lazarus Children**\
+`By embracing Korean children living in leprosy communities, Bernice Gottlieb was a leader in the international adoption movement. She has died at 95.`\
+https://www.nytimes.com/2026/11/12/obituaries/bernice-gottlieb-dead.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Igor Levit’s release on his new label, contemporary and rare operas, and a mezzo-soprano’s sea-themed recital are among our selections.`\
+https://www.nytimes.com/2026/11/12/arts/music/best-classical-music-albums-november-2026.html
+
+**Fernande Decruck Was a Musical Force. Why Did History Forget Her?**\
+`A French composer obsessed with the saxophone, Decruck wrote dazzling music. Decades later, her work is getting a second hearing. Listen for yourself.`\
+https://www.nytimes.com/2026/11/12/obituaries/fernande-decruck-overlooked.html
+
+**I Saw the Future of Mind-Reading**\
+`Thanks to A.I., it’s more possible than ever to glean the inner recesses of a person’s mind. The implications are big — and unnerving.`\
+https://www.nytimes.com/2026/11/12/opinion/mind-reading-ai.html
+
+**Could $1 Million Get Them the Manhattan Two-Bedroom They Wanted?**\
+`Hoori Rafieian and Anubhav Aggarwal tried the suburbs, but decided the city suited their needs.`\
+https://www.nytimes.com/quiz/2026/11/12/realestate/12re-hunt-rafieian-aggarwal.html
+
+**The Fragile Truce Between the Working Class and the Woke Left**\
+`Democrats have power now. They shouldn’t waste it on culture wars.`\
+https://www.nytimes.com/video/opinion/100000011274186/the-fragile-truce-between-the-working-class-and-the-woke-left.html
+
 **They Left Iran, but Now the Regime Is Seizing Their Assets to Silence Them**\
 `The Iranian authorities are pursuing diaspora dissidents and journalists, extending the government’s repressive apparatus far beyond its borders.`\
 https://www.nytimes.com/2026/11/12/world/middleeast/iran-confiscations-assets-dissidents.html
@@ -70,111 +194,7 @@ https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-
 `A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had struck a “senior Hamas terrorist.”`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
-**NYT Crossword Answers for Nov. 12, 2026**\
-`Jared Cappel’s puzzle tells us to grow up.`\
-https://www.nytimes.com/2026/11/11/crosswords/daily-puzzle-2026-11-12.html
-
-**‘The Lowdown’ Season 2 Episode 6 Recap: The Last Ride**\
-`Lee takes a road trip with his father and learns they might have more in common than he thinks.`\
-https://www.nytimes.com/2026/11/11/arts/television/the-lowdown-season-2-episode-6-recap.html
-
-**Pope Leo XIV Goes Home to Peru, Meeting Ghosts of His Past**\
-`In Peru, where Leo XIV lived for two decades and became a citizen, the pope was met by President Keiko Fujimori, whose father’s policies he had protested.`\
-https://www.nytimes.com/2026/11/11/world/europe/pope-leo-peru-visit-lima.html
-
-**Employees Say Jensen Huang Had Relationship With Nvidia Executive**\
-`Five employees at Nvidia who spoke on the condition of anonymity said that Jensen Huang, the company’s leader, had an extramarital relationship with an executive who reports to him. He is already under investigation for an affair with a woman who U.S. officials determined to be a Chinese spy.`\
-https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarital-relationship.html
-
-**Partial Building Collapse in Brooklyn**\
-`At least two people were killed after a three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
-https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
-
 **At Least 2 Dead in Brooklyn Building Collapse**\
 `At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
-
-**Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
-`He was the most-cited legal scholar of the latter half of the 20th century and an unapologetic iconoclast, favoring pragmatism over judicial tradition. He was 87.`\
-https://www.nytimes.com/2026/11/11/us/richard-posner-dead.html
-
-**The Man at the Center of Scott Colom’s Protein Ad**\
-`Russ Hudson was not expecting to become famous. But his deadpan drawl in Scott Colom’s viral protein ad made him a Mississippi sensation.`\
-https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-protein-ad.html
-
-**Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang’s Future as CEO**\
-`News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
-https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
-
-**Hyde-Smith Blocked Colom’s Path to the Bench. Now He’s Replacing Her.**\
-`Ms. Hyde-Smith, a Republican, blocked Scott Colom from consideration for a U.S. District Court vacancy in Mississippi. Mr. Colom will take her Senate seat in January.`\
-https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-blocked-coloms-path-to-the-bench-now-hes-replacing-her.html
-
-**Hyde-Smith Concedes to Colom: ‘I Respect the Decision of Mississippi Voters’**\
-`Senator Cindy Hyde-Smith, the first woman to represent Mississippi in Congress, said that her campaign “worked tirelessly to ensure every legally cast vote was counted.”`\
-https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-concedes-senate-colom.html
-
-**Bruce Giudici Is on the Cusp of Victory in This California Election. He Died Months Ago.**\
-`In a race for a board of supervisors seat in California, a dead candidate holds a huge lead.`\
-https://www.nytimes.com/2026/11/11/us/california-election-dead-candidate.html
-
-**Which Metropolitan Diary Illustration Is Your Favorite?**\
-`Agnes Lee, Metropolitan Diary’s illustrator, picked five drawings she is especially proud of. Vote for your favorite.`\
-https://www.nytimes.com/quiz/2026/11/12/nyregion/metropolitan-diary-illustration-poll.html
-
-**Colom’s Victory Pads Democrats’ Majority in the Senate**\
-`The victory in Mississippi gives Democrats 55 seats as they await results in the Alaska race, leaving them short of a 60-seat supermajority but cushioning their margin of control.`\
-https://www.nytimes.com/2026/11/11/us/elections/colom-mississippi-senate-democrats.html
-
-**Scott Colom Will Be Mississippi’s Third Black Senator. Who Were the First Two?**\
-`Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
-https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
-
-**Hegseth’s Group Scolded at Tomb of the Unknowns**\
-`A soldier at the war memorial yelled at Defense Secretary Pete Hegseth’s group on Wednesday, telling them to show “respect” after laughter broke out.`\
-https://www.nytimes.com/video/us/100000011277675/hegseth-unknown-solider-shout-veterans-day.html
-
-**How The Times Covered Mississippi’s Senate Race, Which Unexpectedly Became a Nail-Biter**\
-`Three Times journalists break down the twists and turns in a race that captured national attention.`\
-https://www.nytimes.com/2026/11/11/insider/mississippi-senate-race-coverage.html
-
-**United Airlines Blocks A.I. Agents From Booking Flights**\
-`The carrier said that to protect customers’ information and comply with regulations, it was barring the digital assistants from logging into accounts and managing reservations.`\
-https://www.nytimes.com/2026/11/11/business/united-airlines-ai-agents-booking-flights.html
-
-**5 Things to Know About Democrat Scott Colom, Mississippi’s Next Senator**\
-`Mr. Colom, a prosecutor, will become the first Black senator elected from Mississippi since Reconstruction, more than 150 years ago.`\
-https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-race.html
-
-**Democrats Face Backlash After Missing Hegseth Impeachment Vote**\
-`Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
-https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
-
-**Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
-`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
-https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
-
-**Scott Colom, a Democrat, Wins Mississippi Senate Election**\
-`Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
-https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
-
-**Nvidia’s Board Is Weighing Jensen Huang’s Future**\
-`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as for a relationship with an executive at his A.I. chip company.`\
-https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
-
-**Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
-`A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
-https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-soldier-shout.html
-
-**Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
-`The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
-https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
-
-**Jessica Chastain to Star in New Broadway Play ‘Lost Lear’**\
-`Chastain will portray an actress with dementia whose most vivid memories are of rehearsing for the title role in “King Lear.”`\
-https://www.nytimes.com/2026/11/11/theater/jessica-chastain-broadway-lost-lear.html
-
-**Jensen Huang Betrayed the Leather Jacket Community**\
-`One man’s fleshly failures should not impugn our second skins.`\
-https://www.nytimes.com/2026/11/11/opinion/jensen-huang-leather-jacket.html
 
