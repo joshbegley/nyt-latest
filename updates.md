@@ -1,3 +1,7 @@
+**A Frantic Search for Survivors in the Brooklyn Building Collapse**\
+`At one moment, an apartment building was standing. At another, it had tumbled into a hole. Ruin, and death, followed.`\
+https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
+
 **SpaceX Plans $74 Billion Investment to Build Data Centers in Texas and Arizona**\
 `Elon Musk’s rocket and artificial intelligence company has spent billions to develop the giant warehouses full of computer servers that power the technology.`\
 https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
