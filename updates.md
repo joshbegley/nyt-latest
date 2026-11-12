@@ -1,3 +1,7 @@
+**Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
+`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
+
 **Scott Colom, a Democrat, Wins Mississippi Senate Election**\
 `Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
 https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
