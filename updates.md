@@ -1,3 +1,11 @@
+**The Fall of the A.I. King**\
+`How to understand Jensen Huang’s stunning departure.`\
+https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
+
+**‘Ebenezer’ Review: Holiday Humbug**\
+`Johnny Depp returns as the miser of the Dickens holiday classic. But he isn’t playing Scrooge so much as trying to mount a comeback on a get-up and déjà vu.`\
+https://www.nytimes.com/2026/11/12/movies/ebenezer-review-johnny-depp.html
+
 **Thanksgiving Month**\
 `Why wait for the holiday to load up on turkey, pie and all the fixings?`\
 https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
