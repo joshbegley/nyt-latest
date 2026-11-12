@@ -1,3 +1,11 @@
+**NYT Strands Hints for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
+
+**Israel’s Arrest of Journalist Abed Abu Shehadeh Raises Concerns**\
+`Abed Abu Shehadeh, a Palestinian citizen of Israel, was detained without being charged with a crime, raising concerns that the domestic security service is overstepping its authority.`\
+https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-netanyahu.html
+
 **Masterpieces From Paris Go Town to Town in a Semi-Truck**\
 `Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/obituaries/bernice-gottlieb-dead.html
 **5 Classical Music Albums You Can Listen to Right Now**\
 `Igor Levit’s release on his new label, contemporary and rare operas, and a mezzo-soprano’s sea-themed recital are among our selections.`\
 https://www.nytimes.com/2026/11/12/arts/music/best-classical-music-albums-november-2026.html
-
-**Fernande Decruck Was a Musical Force. Why Did History Forget Her?**\
-`A French composer obsessed with the saxophone, Decruck wrote dazzling music. Decades later, her work is getting a second hearing. Listen for yourself.`\
-https://www.nytimes.com/2026/11/12/obituaries/fernande-decruck-overlooked.html
-
-**I Saw the Future of Mind-Reading**\
-`Thanks to A.I., it’s more possible than ever to glean the inner recesses of a person’s mind. The implications are big — and unnerving.`\
-https://www.nytimes.com/2026/11/12/opinion/mind-reading-ai.html
 
