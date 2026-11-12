@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
 https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
 
 **Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
-`Letters sent by two key House committees signal the direction of potential investigations into Trump’s science and climate cuts.`\
+`Letters sent by two key House committees tell companies and officials not to destroy documents.`\
 https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
 
 **Crediting Others**\
