@@ -1,3 +1,11 @@
+**Mississippi Elects First Black Senator Since 1881**\
+`Scott Colom, a Democrat, defeated the Republican incumbent, Senator Cindy Hyde-Smith, in Mississippi. His victory adds to the Senate Democratic majority.`\
+https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-scott-colom.html
+
+**At Least 2 Dead in Brooklyn Building Collapse**\
+`At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
+https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
+
 **Lesson Plan | Fake Health Influencers**\
 `What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
 https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
