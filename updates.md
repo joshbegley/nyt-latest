@@ -1,3 +1,11 @@
+**In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
+`At Tougaloo College, supporters danced and wept and over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
+https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
+
+**The Best Possible A.I. Catastrophe**\
+`A cynic’s guide to reining in the reign of artificial intelligence C.E.O.s.`\
+https://www.nytimes.com/2026/11/12/podcasts/ai-catastrophe-josh-tyrangiel.html
+
 **When Can We Stop Talking About Trump?**\
 `If it walks like a lame duck and talks like a lame duck, you don’t have to ask what it is.`\
 https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
