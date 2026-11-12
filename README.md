@@ -1,3 +1,11 @@
+**Deadly Shooting in Busy Washington, D.C., Neighborhood**\
+`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with what appeared to be a self-inflicted gunshot wound, the police said.`\
+https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
+
+**We Were Warned of Deceptive A.I. Fakes. We Got Memes.**\
+`The surge of A.I. fakes that emerged this election season was different than what researchers had feared. The results are also a reckoning.`\
+https://www.nytimes.com/2026/11/12/technology/artifical-intelligence-fakes-midterm-memes.html
+
 **Will the Supreme Court Thwart Congressional Investigations?**\
 `Lawmakers must dodge rulings on immunity, standing and “valid legislative purpose.”`\
 https://www.nytimes.com/2026/11/12/us/politics/the-docket-supreme-court-congressional-investigations.html
@@ -163,7 +171,7 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 
 **Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
-`More than a dozen others were injured, at least two of them critically, when a three-story building in the Flatbush neighborhood collapsed. Mayor Zohran Mamdani is set to provide updates from the site soon.`\
+`More than a dozen others were injured, at least two of them critically, when a three-story building in the Flatbush neighborhood collapsed.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
 **Are You a Hugger?**\
 `Do you ever feel like you could use a hug from a parent, a friend or a loved one?`\
 https://www.nytimes.com/2026/11/12/learning/are-you-a-hugger.html
-
-**The Road to ‘Rocky’: Making the Underdog Biopic Had Its Struggles, Too**\
-`“I Play Rocky,” which revisits Sylvester Stallone’s breakout role, became a surprise festival hit this year. But getting it made was a long-shot undertaking.`\
-https://www.nytimes.com/2026/11/12/movies/i-play-rocky-how-it-got-made.html
-
-**Takeaways From the Times’s Report on Aviation Safety**\
-`How alarmed should we be about the state of air travel?`\
-https://www.nytimes.com/2026/11/12/magazine/safety-air-travel-takeaways.html
 
