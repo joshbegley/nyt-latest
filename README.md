@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html
 https://www.nytimes.com/2026/11/12/arts/russell-brand-facebook-instagram.html
 
 **In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
-`At Tougaloo College, supporters danced and wept and over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
+`At Tougaloo College, supporters danced and wept over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
 https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
 
 **The Best Possible A.I. Catastrophe**\
@@ -193,8 +193,4 @@ https://www.nytimes.com/2026/11/12/movies/bitter-christmas-review.html
 **These Killer Female Apes Challenge the ‘Man the Hunter’ Origin Story**\
 `Bonobos are as closely related to humans as chimps. New evidence that female bonobos are the primary hunters could radically alter our understanding of early human societies.`\
 https://www.nytimes.com/2026/11/12/science/these-killer-female-apes-challenge-the-man-the-hunter-origin-story.html
-
-**‘Being Heumann’ Review: Disabled People Righting Wrongs, Staking Out Rights**\
-`A weekslong occupation of a federal building by activists, including Judy Heumann, the “mother of the disability rights movement,” is detailed in this lively docudrama.`\
-https://www.nytimes.com/2026/11/12/movies/being-heumann-review.html
 

@@ -1,3 +1,11 @@
+**Several People Are Shot in Washington, D.C., Officials Say**\
+`The shooting took place in Logan Circle, a busy area of coffee shops, a gym and other businesses not far from the White House. A suspect was barricaded in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
+**Live Updates: Jensen Huang Resigns From Nvidia After Affairs**\
+`The longtime head of the chip-making colossus admitted to an affair with a woman identified as a spy for China. He was also said to have had a relationship with an executive who reported to him.`\
+https://www.nytimes.com/live/2026/11/12/business/nvidia-jensen-huang-resigns
+
 **Singapore Says U.S. Not Helpful on Megaspeed Investigation**\
 `In a statement, Singapore said it held Alice Huang’s passport months after President Trump was briefed that she was a spy.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-megaspeed-alice-huang.html
