@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 12, 2026**\
+`Jared Cappel’s puzzle tells us to grow up.`\
+https://www.nytimes.com/2026/11/11/crosswords/daily-puzzle-2026-11-12.html
+
+**‘The Lowdown’ Season 2 Episode 6 Recap: The Last Ride**\
+`Lee takes a road trip with his father and learns they might have more in common than he thinks.`\
+https://www.nytimes.com/2026/11/11/arts/television/the-lowdown-season-2-episode-6-recap.html
+
 **Pope Leo XIV Goes Home to Peru, Meeting Ghosts of His Past**\
 `In Peru, where Leo XIV lived for two decades and became a citizen, the pope was met by President Keiko Fujimori, whose father’s policies he had protested.`\
 https://www.nytimes.com/2026/11/11/world/europe/pope-leo-peru-visit-lima.html
