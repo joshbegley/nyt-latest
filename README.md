@@ -1,3 +1,11 @@
+**Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
+`The company said that some of its servers were unexpectedly unavailable, straining the remaining infrastructure, and that it was working to bring users back online.`\
+https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
+
+**Roger Taylor, Drummer for Duran Duran, Quits Band Because of Tinnitus**\
+`Roger Taylor, who has played with the Grammy-winning synth-pop group for decades, said his worsening tinnitus was forcing him to retire.`\
+https://www.nytimes.com/2026/11/12/arts/music/duran-duran-roger-taylor-tinnitus-drummer.html
+
 **Kalshi Severs Its Relationship With Donald Trump Jr.**\
 `The country’s largest prediction market says it ended its contract with the president’s eldest son after his investment firm took a larger stake in its prime competitor.`\
 https://www.nytimes.com/2026/11/12/us/politics/kalshi-donald-trump-jr.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
 **‘How to Rob a Bank’ Review: Heist Humor Worthy of TikTok**\
 `A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
 https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
-
-**Jensen Huang’s Resignation From Nvidia Could Complicate Billions in Philanthropic Giving**\
-`Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
-https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
-
-**Gen Z Optimism**\
-`We look at a new term that has emerged online.`\
-https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
 
