@@ -1,3 +1,7 @@
+**Tech Giants Invest in German Robotics Start-Up at $8.5 Billion Valuation**\
+`Agile Robots plans to expand in the United States and increase production in Europe after raising funds in a round led by SoftBank.`\
+https://www.nytimes.com/2026/11/12/business/softbank-nvidia-agile-robots.html
+
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
 `A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
 https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-soldier-shout.html
