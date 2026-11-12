@@ -1,3 +1,11 @@
+**What Do You Want to Know About New York Times Journalism and A.I.?**\
+`New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
+https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
+
+**Nvidia Stock Plunges After Jensen Huang Resigns as CEO**\
+`News that the chipmaker’s chief executive, Jensen Huang, resigned drove Nvidia’s stock down, though the broader market rose slightly.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
+
 **For Democrats, Economic Populism Is Cutting Through Party Divides**\
 `Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
 https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html

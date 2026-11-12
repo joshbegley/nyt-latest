@@ -2,7 +2,7 @@
 `New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
 https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
 
-**For Democrats, Economic Populism Is Cutting Through Party Divides**\
+**Democrats Unite on Economic Populism After Midterm Victories**\
 `Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
 https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
 
