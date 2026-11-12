@@ -1,3 +1,7 @@
+**Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
+`He was the most-cited legal scholar of the latter half of the 20th century and an unapologetic iconoclast, favoring pragmatism over judicial tradition. He was 87.`\
+https://www.nytimes.com/2026/11/11/us/richard-posner-dead.html
+
 **The Man at the Center of Scott Colom’s Protein Ad**\
 `Russ Hudson was not expecting to become famous. But his deadpan drawl in Scott Colom’s viral protein ad made him a Mississippi sensation.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-protein-ad.html
