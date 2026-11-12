@@ -1,3 +1,15 @@
+**At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
+`An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
+https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
+
+**One Shot Dead and Four Wounded at Washington, D.C., Condo Building**\
+`The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
+**Live Updates: 2 Children Among 8 Dead in Brooklyn Building Collapse**\
+`Mayor Zohran Mamdani said 18 others were injured when a three-story building fell onto a construction site. Search-and-rescue efforts were continuing in a heavy rain.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **Jensen Huang’s Resignation From Nvidia Could Complicate Billions in Philanthropic Giving**\
 `Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
