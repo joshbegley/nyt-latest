@@ -1,3 +1,7 @@
+**Nvidia Shares Plummet as Board Is Said to Consider C.E.O.’s Future**\
+`News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
+https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html
+
 **Hyde-Smith Blocked Colom’s Path to the Bench. Now He’s Replacing Her.**\
 `Ms. Hyde-Smith, a Republican, blocked Scott Colom from consideration for a U.S. District Court vacancy in Mississippi. Mr. Colom will take her Senate seat in January.`\
 https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-blocked-coloms-path-to-the-bench-now-hes-replacing-her.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/11/world/europe/russia-ukraine-talks-abu-dhabi.h
 **Protesters Throw Projectiles at Biden During Dublin Trip**\
 `Video showed demonstrators from a pro-Palestinian protest throwing projectiles at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin on Tuesday.`\
 https://www.nytimes.com/2026/11/11/world/europe/joe-biden-dublin-ireland-protesters-attack.html
-
-**White House Threatens Congress, Saying Aggressive Investigations Could Be Crime**\
-`As Democrats prepared to begin oversight inquiries, it was not clear what legal basis could support the threat. The Constitution grants lawmakers immunity for legislative acts.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-democrats-congress-oversight-committee.html
 
