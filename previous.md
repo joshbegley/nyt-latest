@@ -1,3 +1,7 @@
+**Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
+`News that the chip-maker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
+
 **Flight Risks**\
 `As we head into the holiday travel season, we’ll answer a question: Is air travel getting less safe?`\
 https://www.nytimes.com/2026/11/12/briefing/flight-risks.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 `Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 
-**Live Updates: At Least 6 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
-`At least 19 others were injured, four of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`More than a dozen others were injured, some of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/books/review/caitlin-clark-extraordinary.html
 **Book Review: ‘The First House,’ by Avni Doshi**\
 `“The First House” follows a woman trying to understand why her life went awry.`\
 https://www.nytimes.com/2026/11/12/books/review/the-first-house-avni-doshi.html
-
-**A.I. Weapons Need Data for Their Training. Ukraine Has a Lot to Offer.**\
-`The Ukrainian government has opened up a trove of five million battlefield videos to defense companies at home and abroad.`\
-https://www.nytimes.com/2026/11/12/world/europe/ukraine-ai-weapons.html
 

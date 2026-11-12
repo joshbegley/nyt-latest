@@ -1,3 +1,11 @@
+**Nvidia Shares Plummet as Board Considers Jensen Huang’s Future as CEO**\
+`News that the chip-maker’s board was considering the future of its chief executive, Jensen Huang, drove Nvidia’s stock down and reverberated across global markets.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-stock-price-jensen-huang-ceo-affair.html
+
+**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`More than a dozen others were injured, some of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **Flight Risks**\
 `As we head into the holiday travel season, we’ll answer a question: Is air travel getting less safe?`\
 https://www.nytimes.com/2026/11/12/briefing/flight-risks.html
