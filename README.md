@@ -1,3 +1,7 @@
+**‘How to Rob a Bank’ Review: Heist Humor Worthy of TikTok**\
+`A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
+https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
+
 **Jensen Huang’s Ouster From Nvidia Could Complicate Billions in Philanthropic Giving**\
 `Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.h
 `We look at a new term that has emerged online.`\
 https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
 
-**Impeach Pete Hegseth Before More Harm Is Done**\
+**Impeach Pete Hegseth Before More Damage Is Done**\
 `We cannot give up on holding the secretary of defense to account.`\
 https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
 
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-net
 https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 
 **Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
-`More than a dozen others were injured, some of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+`More than a dozen others were injured, some of them critically, when a three-story building in the Flatbush neighborhood collapsed, officials said. Mayor Zohran Mamdani is set to provide updates from the site at noon.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/magazine/welcome-in-retail.html
 **20 Ideas for What to Drink With Thanksgiving Dinner**\
 `These bottles, mostly wine, with a cider and two nonalcoholic options, are energetic and will go with almost anything. They run $15 to $40.`\
 https://www.nytimes.com/2026/11/12/dining/drinks/thanksgiving-wine-cider-nonalcoholic-drinks.html
-
-**Republicans Prove Why Money Can’t Fix Losing Campaigns**\
-`While tons of money can powerfully amplify a great campaign message, it cannot alone create one.`\
-https://www.nytimes.com/2026/11/12/opinion/republicans-campaign-money-midterms.html
 
