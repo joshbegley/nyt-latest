@@ -1,3 +1,11 @@
+**In Mississippi, Scott Colom Supporters Celebrate Historic Senate Win**\
+`At Tougaloo College, supporters danced and wept and over Scott Colom’s victory. He will be Mississippi’s first Black U.S. senator since the Reconstruction era.`\
+https://www.nytimes.com/2026/11/12/us/elections/mississippi-colom-senate-race-black-voters.html
+
+**The Best Possible A.I. Catastrophe**\
+`A cynic’s guide to reining in the reign of artificial intelligence C.E.O.s.`\
+https://www.nytimes.com/2026/11/12/podcasts/ai-catastrophe-josh-tyrangiel.html
+
 **When Can We Stop Talking About Trump?**\
 `If it walks like a lame duck and talks like a lame duck, you don’t have to ask what it is.`\
 https://www.nytimes.com/2026/11/12/opinion/trump-midterms-democrats.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/world/middleeast/iran-confiscations-assets-di
 **In China’s Spy Operations, Romance Can Be a Long Game**\
 `Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
 https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
-
-**Mississippi Elects First Black Senator Since 1881**\
-`Scott Colom, a Democrat, defeated the Republican incumbent, Senator Cindy Hyde-Smith, in Mississippi. His victory adds to the Senate Democratic majority.`\
-https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-scott-colom.html
-
-**Lesson Plan | Fake Health Influencers**\
-`What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
-https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
 
