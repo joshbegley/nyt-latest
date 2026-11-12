@@ -1,3 +1,7 @@
+**Army Officer Accused of Trying to Spy for Russia Is Afghan War Veteran**\
+`The officer, who served at a NATO base in Britain, is expected to be charged in the coming days, two officials said.`\
+https://www.nytimes.com/2026/11/12/world/europe/army-britain-arrest-spy-russia.html
+
 **The End of Russia’s Bravest Newspaper**\
 `For more than 30 years, the paper covered an increasingly repressive state under Vladimir Putin.`\
 https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html

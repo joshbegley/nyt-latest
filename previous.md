@@ -1,3 +1,7 @@
+**Army Officer Accused of Trying to Spy for Russia Is Afghan War Veteran**\
+`The officer, who served at a NATO base in Britain, is expected to be charged in the coming days, two officials said.`\
+https://www.nytimes.com/2026/11/12/world/europe/army-britain-arrest-spy-russia.html
+
 **The End of Russia’s Bravest Newspaper**\
 `For more than 30 years, the paper covered an increasingly repressive state under Vladimir Putin.`\
 https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/opinion/pete-hegseth-impeach-congress.html
 **Here’s Genevieve Ko’s Baked Curry Chicken and Rice**\
 `A golden tray of cozy comfort.`\
 https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicken-and-rice.html
-
-**Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
-`Letters sent by two key House committees tell companies and officials not to destroy documents.`\
-https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
 
