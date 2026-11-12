@@ -1,3 +1,7 @@
+**They Left Iran, but Now the Regime Is Seizing Their Assets to Silence Them**\
+`The Iranian authorities are pursuing diaspora dissidents and journalists, extending the government’s repressive apparatus far beyond its borders.`\
+https://www.nytimes.com/2026/11/12/world/middleeast/iran-confiscations-assets-dissidents.html
+
 **In China’s Spy Operations, Romance Can Be a Long Game**\
 `Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
 https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/theater/jessica-chastain-broadway-lost-lear.h
 **Jensen Huang Betrayed the Leather Jacket Community**\
 `One man’s fleshly failures should not impugn our second skins.`\
 https://www.nytimes.com/2026/11/11/opinion/jensen-huang-leather-jacket.html
-
-**Jensen Huang Said to Have Had Relationship With Nvidia Executive Who Reports to Him**\
-`Mr. Huang, Nvidia’s chief executive, is already facing scrutiny over an affair with a Chinese businesswoman who U.S. intelligence determined was a Chinese spy.`\
-https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html
 

@@ -1,3 +1,7 @@
+**They Left Iran, but Now the Regime Is Seizing Their Assets to Silence Them**\
+`The Iranian authorities are pursuing diaspora dissidents and journalists, extending the government’s repressive apparatus far beyond its borders.`\
+https://www.nytimes.com/2026/11/12/world/middleeast/iran-confiscations-assets-dissidents.html
+
 **In China’s Spy Operations, Romance Can Be a Long Game**\
 `Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
 https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
