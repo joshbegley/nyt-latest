@@ -1,3 +1,11 @@
+**What to Know About New Prostate Cancer Screening Recommendations**\
+`Universal screening for the disease has long been a subject of controversy.`\
+https://www.nytimes.com/2026/11/12/well/prostate-cancer-screening-guideline.html
+
+**Historic S.S. United States Sinks to Ocean Floor**\
+`After years of planning, the S.S. United States was deliberately sunk on Wednesday. Once a luxury ocean liner carrying celebrities and politicians, it is now set to become an artificial reef and diving destination.`\
+https://www.nytimes.com/video/us/100000011278056/ss-united-states-ship-sinking-florida.html
+
 **Onlookers Wait at Brooklyn Building Collapse Site Hoping for News of Rescues**\
 `Emergency workers were combing through the rubble early Thursday after at least two people were killed when a three-story apartment building collapsed in New York City.`\
 https://www.nytimes.com/2026/11/12/nyregion/nyc-brooklyn-building-collapse-rescue-wait.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/12/world/europe/ukraine-ai-weapons.html
 **Thinking About Ping Pong Through Dance in Cherrie Yu’s ‘Daily Diversions’**\
 `Cherrie Yu’s “Daily Diversions” draws attention to the formal and rhythmic properties of the sport while exploring her own history with it.`\
 https://www.nytimes.com/2026/11/12/arts/dance/ping-pong-cherrie-yu-daily-diversions.html
-
-**Bruce Springsteen, U2 and More Honor Shane MacGowan on New Album**\
-`A double LP gathers an eclectic group to interpret MacGowan’s songs, which celebrate the perfectly imperfect.`\
-https://www.nytimes.com/2026/11/12/arts/music/bruce-springsteen-u2-and-more-honor-shane-macgowan-on-new-album.html
-
-**How the Legacy of Torture Has Vexed the Quest for 9/11 Justice**\
-`From coerced confessions to the creation of an alternative court system, years of U.S. government decisions doomed speedy trial prospects.`\
-https://www.nytimes.com/2026/11/12/us/politics/torture-9-11.html
 
