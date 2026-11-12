@@ -1,3 +1,19 @@
+**Ken Paxton Divorce Is Finalized, His Lawyer Says**\
+`His wife, Angela Paxton, filed for divorce last year, citing “biblical grounds” for doing so, and referring to adultery.`\
+https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
+
+**Nor’Easter Will Bring Cold Temperatures and Maybe a Little Snow to Millions**\
+`Millions of people from the Midwest to the Deep South will get a dose of winter weather this week.`\
+https://www.nytimes.com/2026/11/12/weather/noreaster-snow-cold.html
+
+**5 Shot in Washington D.C.’s Logan Circle Neighborhood**\
+`The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
+https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
+
+**Live Updates: At Least 8 Dead in Brooklyn Building Collapse, as Crews Scour Rubble**\
+`Two of the dead were children, Mayor Zohran Mamdani said, and 18 others were injured when a three-story building collapsed. Search-and-rescue efforts continued in a steady rain.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **Deadly Shooting in Busy Washington, D.C., Neighborhood**\
 `A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with what appeared to be a self-inflicted gunshot wound, the police said.`\
 https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html

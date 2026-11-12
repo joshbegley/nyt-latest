@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/12/arts/music/paris-opera-elysees.html
 `A gang of thieves runs brazenly amok with guns and cameras in a movie that has something on its mind but not nearly enough sense.`\
 https://www.nytimes.com/2026/11/12/movies/how-to-rob-a-bank-review.html
 
-**Jensen Huang’s Ouster From Nvidia Could Complicate Billions in Philanthropic Giving**\
+**Jensen Huang’s Resignation From Nvidia Could Complicate Billions in Philanthropic Giving**\
 `Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
 
