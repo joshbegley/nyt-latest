@@ -1,3 +1,7 @@
+**Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
+`The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose romantic relationships got them in trouble.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
+
 **Jensen Huang Was the Face of the A.I. Boom Powering the U.S. Economy**\
 `Nvidia’s ousted leader was a rhetorical and financial booster for investments that are driving economic growth.`\
 https://www.nytimes.com/2026/11/12/business/economy/jensen-huang-economy-nvidia-ai.html

@@ -1,3 +1,7 @@
+**Jensen Huang Joins a Growing Club: C.E.O.s Brought Down by Affairs**\
+`The Nvidia founder and chief executive, who resigned on Thursday, is among a group of top bosses whose romantic relationships got them in trouble.`\
+https://www.nytimes.com/2026/11/12/business/nvidia-jensen-huang-ceo-affairs.html
+
 **The Concession Call to an Election Winner Is No Longer a Given**\
 `In a hyperpartisan era when norms and traditions cannot be counted on, some politicians are left waiting by the phone.`\
 https://www.nytimes.com/2026/11/12/us/politics/concession-calls-elections-midterms.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/travel/turkish-airlines-flight-delay-hotel-re
 **Pony Hair Is Everywhere**\
 `Craving texture and looking to spruce up basics, shoppers are drawn to bristled belts, bags and (especially) shoes.`\
 https://www.nytimes.com/2026/11/12/style/pony-hair-purses-shoes-trend.html
-
-**Want to Short a Stock? Kalshi and C.T.F.C. Allow It as ‘Perpetual Trades.’**\
-`After a federal regulator allowed wagering on stocks and cryptocurrencies, two powerful trading clearinghouses filed lawsuits saying traders would not be properly protected.`\
-https://www.nytimes.com/2026/11/12/us/politics/kalshi-commodity-futures-stocks.html
 
