@@ -1,3 +1,7 @@
+**What to Know About the Deadly Building Collapse in Brooklyn**\
+`At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
+https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
+
 **Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
 `“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
 https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.h
 https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
 
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
-`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had targeted a “senior Hamas terrorist.”`\
+`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had struck a “senior Hamas terrorist.”`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
 **NYT Crossword Answers for Nov. 12, 2026**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.
 **How to Be a Better Gift Giver: Expert Advice and Picks**\
 `Ahead of the holidays, artists, chefs and designers share their tips — and their favorite items.`\
 https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
-
-**A.I. and Market Whiplash**\
-`A Times reporter who covers financial markets helps us make sense of tech turbulence.`\
-https://www.nytimes.com/2026/11/11/world/tech-stocks-ai-nvidia-china.html
 

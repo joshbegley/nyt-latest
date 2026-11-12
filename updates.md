@@ -1,3 +1,11 @@
+**What to Know About the Deadly Building Collapse in Brooklyn**\
+`At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
+https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
+
+**Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
+`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had struck a “senior Hamas terrorist.”`\
+https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
+
 **Desi Lydic Chides Democrats Who Missed Hegseth’s Impeachment Vote**\
 `“This is huge, someone actually going after Pete Hegseth, and not just for child support!” said “The Daily Show” host.`\
 https://www.nytimes.com/2026/11/12/arts/television/desi-lydic-democrats-miss-pete-hegseth-impeachment-vote.html
