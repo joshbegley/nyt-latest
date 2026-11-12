@@ -1,3 +1,7 @@
+**Jensen Huang’s Ouster From Nvidia Could Complicate Billions in Philanthropic Giving**\
+`Mr. Huang, the company’s co-founder, and his wife oversee a charitable foundation with about $9 billion in assets.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-philanthropy-nvidia.html
+
 **Gen Z Optimism**\
 `We look at a new term that has emerged online.`\
 https://www.nytimes.com/2026/11/12/briefing/gen-z-optimism.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/dining/drinks/thanksgiving-wine-cider-nonalco
 **Republicans Prove Why Money Can’t Fix Losing Campaigns**\
 `While tons of money can powerfully amplify a great campaign message, it cannot alone create one.`\
 https://www.nytimes.com/2026/11/12/opinion/republicans-campaign-money-midterms.html
-
-**He Dressed Up for the Opera. As Abraham Lincoln.**\
-`Gary O’Connor has attended dozens of operas dressed as characters in the productions. His latest appearance was at “Lincoln in the Bardo” at the Met.`\
-https://www.nytimes.com/2026/11/12/nyregion/met-opera-lincoln-bardo-costume.html
 
