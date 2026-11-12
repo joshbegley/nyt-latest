@@ -110,8 +110,8 @@ https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 `Mr. Colom, a prosecutor, will be the first Black senator elected from Mississippi since the post-Civil War Reconstruction period.`\
 https://www.nytimes.com/2026/11/11/us/elections/mississippi-senate-colom-hyde-smith.html
 
-**Nvidia’s Board Is Meeting to Discuss Jensen Huang’s Future**\
-`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as a relationship with an executive at his A.I. chip company.`\
+**Nvidia’s Board Is Weighing Jensen Huang’s Future**\
+`Mr. Huang has been under scrutiny for an affair with a woman said to be a Chinese spy, as well as for a relationship with an executive at his A.I. chip company.`\
 https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
 
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
