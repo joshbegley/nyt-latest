@@ -1,3 +1,7 @@
+**The End of Russia’s Bravest Newspaper**\
+`For more than 30 years, the paper covered an increasingly repressive state under Vladimir Putin.`\
+https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html
+
 **Employee of Prestigious Law Firm Is Charged With Insider Trading**\
 `A document processor who had worked at the firm since 1989 made about $70,000 in illicit profits off inside knowledge, prosecutors said.`\
 https://www.nytimes.com/2026/11/12/nyregion/insider-trading-indictment-cravath-swaine-moore.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/dining/heres-genevieve-kos-baked-curry-chicke
 **Democrats Put Targets on Notice as Trump Oversight Takes Shape**\
 `Letters sent by two key House committees tell companies and officials not to destroy documents.`\
 https://www.nytimes.com/2026/11/12/climate/democrats-oversight-committees-letters.html
-
-**Crediting Others**\
-`Plus: Reporting on the Mississippi Senate race, flying with the king and answering A.I. questions.`\
-https://www.nytimes.com/2026/11/12/insider/crediting-reporting-of-others.html
 
