@@ -1,14 +1,18 @@
+**Joanna Kotze’s New Work: A Dance Doomed to Repeat**\
+`Joanna Kotze’s “this is the beginning, this is the end” is a high-strung evocation of cyclical turmoil.`\
+https://www.nytimes.com/2026/11/12/arts/dance/joanna-kotze-new-york-live-arts-this-is-the-beginning-this-is-the-end.html
+
+**Kennedy’s Future: Will Democrats Try to Impeach Him, or Actually Work With Him?**\
+`Most Democrats abhor the health secretary’s stance on vaccines, but some see an opportunity to win voters from his MAHA movement by joining with him on food and environmental issues.`\
+https://www.nytimes.com/2026/11/12/us/politics/rfk-jr-democrats-impeach.html
+
 **What Do You Want to Know About New York Times Journalism and A.I.?**\
 `New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
 https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
 
-**For Democrats, Economic Populism Is Cutting Through Party Divides**\
+**Democrats Unite on Economic Populism After Midterm Victories**\
 `Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
 https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
-
-**I’m Thankful for This Glorious Stuffed Pumpkin**\
-`Filled with jeweled rice and crispy shallots, it’s a surefire showstopper.`\
-https://www.nytimes.com/2026/11/12/dining/im-thankful-for-this-glorious-stuffed-pumpkin.html
 
 **Fixing America: A Bounty of Ideas**\
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
@@ -189,12 +193,4 @@ https://www.nytimes.com/video/climate/100000011222904/super-el-nino-malawi-droug
 **NYT Strands Hints for November 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
 https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
-
-**Israel’s Arrest of Journalist Abed Abu Shehadeh Raises Concerns**\
-`Abed Abu Shehadeh, a Palestinian citizen of Israel, was detained without being charged with a crime, raising concerns that the domestic security service is overstepping its authority.`\
-https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-netanyahu.html
-
-**Masterpieces From Paris Go Town to Town in a Semi-Truck**\
-`Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
-https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
 

@@ -1,3 +1,15 @@
+**Joanna Kotze’s New Work: A Dance Doomed to Repeat**\
+`Joanna Kotze’s “this is the beginning, this is the end” is a high-strung evocation of cyclical turmoil.`\
+https://www.nytimes.com/2026/11/12/arts/dance/joanna-kotze-new-york-live-arts-this-is-the-beginning-this-is-the-end.html
+
+**Kennedy’s Future: Will Democrats Try to Impeach Him, or Actually Work With Him?**\
+`Most Democrats abhor the health secretary’s stance on vaccines, but some see an opportunity to win voters from his MAHA movement by joining with him on food and environmental issues.`\
+https://www.nytimes.com/2026/11/12/us/politics/rfk-jr-democrats-impeach.html
+
+**Democrats Unite on Economic Populism After Midterm Victories**\
+`Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
+https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
+
 **What Do You Want to Know About New York Times Journalism and A.I.?**\
 `New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
 https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
