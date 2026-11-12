@@ -1,3 +1,7 @@
+**Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
+
 **Indonesia’s Vice President, Gibran, Resigns**\
 `Gibran Rakabuming Raka, who is stepping down amid a scandal over his academic credentials, was a symbol of the partnership that elevated President Prabowo Subianto into office.`\
 https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html
