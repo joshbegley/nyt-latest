@@ -1,3 +1,7 @@
+**Teen Found After Missing for 6 Days in Australian Forest**\
+`A 17-year-old with autism disappeared last Friday during a camping trip. He was found alive on Thursday by a police helicopter near Walhalla, Australia.`\
+https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6-days-found-alive.html
+
 **The Fall of the A.I. King**\
 `How to understand Jensen Huang’s stunning departure.`\
 https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
