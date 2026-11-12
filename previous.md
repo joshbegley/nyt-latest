@@ -1,3 +1,7 @@
+**Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
+`Nassar Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
+https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
+
 **NYT Crossword Answers for Nov. 12, 2026**\
 `Jared Cappel’s puzzle tells us to grow up.`\
 https://www.nytimes.com/2026/11/11/crosswords/daily-puzzle-2026-11-12.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-r
 `Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
 
-**Midterm Election Live Updates: Streets Erupt in Celebration After Scott Colom’s Historic Victory**\
-`Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
+**Midterm Election Live Updates: Colom Speaks to Supporters After Winning Mississippi Senate Race**\
+`Scott Colom upset the Republican incumbent and will become the first Black senator to represent Mississippi in nearly 150 years. He is speaking at Tougaloo College, a longtime haven for civil rights leaders.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 
 **Scott Colom, a Democrat, Wins Mississippi Senate Election**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-repub
 **Recalling the S.S. United States as It Becomes a Florida Reef**\
 `A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
 https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memories.html
-
-**‘Ghost Soldier’ Review: As Good as His Word**\
-`Jim Caviezel stars in this action film as a former Special Forces officer facing off against a ruthless corporate behemoth razing homes in a rural Wyoming town.`\
-https://www.nytimes.com/2026/11/11/movies/ghost-soldier-review-jim-caviezel.html
 
