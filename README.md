@@ -1,3 +1,19 @@
+**Paul Barril, French ‘Supergendarme’ Turned Mercenary, Has Died**\
+`After years in elite police units, he drew scrutiny from human rights groups for selling arms and providing other services to unsavory governments. He was 80.`\
+https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
+
+**Holscher Wins Kansas Governor Race, Retaining Seat for Democrats**\
+`State Senator Cindy Holscher won the race. Though Kansas is reliably Republican in presidential elections, its voters often break for Democrats in midterms.`\
+https://www.nytimes.com/2026/11/12/us/kansas-governor-democrat-holscher-wins.html
+
+**7 People Nvidia Could Consider For Its Next C.E.O.**\
+`President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
+
+**Republican Setbacks Swell in the South With Stinging Loss in Mississippi**\
+`The Democrat Scott Colom’s stunning Senate upset punctuated a dismal midterm showing for the G.O.P. in a region they had dominated for years.`\
+https://www.nytimes.com/2026/11/12/us/politics/republican-defeats-south-mississippi-midterms.html
+
 **California Could Face 50-Foot Waves as Storms Slam Its Coast**\
 `Back-to-back systems over the next few days will deliver the season’s first widespread rain. Here’s what to know about the forecast.`\
 https://www.nytimes.com/2026/11/12/weather/california-storm-west-coast-rain.html
@@ -173,20 +189,4 @@ https://www.nytimes.com/2026/11/12/us/ken-paxton-divorce.html
 **Nor’Easter Will Bring Cold Temperatures and Maybe a Little Snow to Millions**\
 `Millions of people from the Midwest to the Deep South will get a dose of winter weather this week.`\
 https://www.nytimes.com/2026/11/12/weather/noreaster-snow-cold.html
-
-**Deadly Shooting in Busy Washington, D.C., Neighborhood**\
-`A gunman opened fire outside a gym near Logan Circle, not far from the White House. The suspect, who had barricaded himself in a nearby building, was found with a fatal gunshot wound, the police said.`\
-https://www.nytimes.com/video/us/100000011279807/shooting-washington-dc.html
-
-**We Were Warned of Deceptive A.I. Fakes. We Got Memes.**\
-`The surge of A.I. fakes that emerged this election season was different than what researchers had feared. The results are also a reckoning.`\
-https://www.nytimes.com/2026/11/12/technology/artifical-intelligence-fakes-midterm-memes.html
-
-**Will the Supreme Court Thwart Congressional Investigations?**\
-`Lawmakers must dodge rulings on immunity, standing and “valid legislative purpose.”`\
-https://www.nytimes.com/2026/11/12/us/politics/the-docket-supreme-court-congressional-investigations.html
-
-**Mortgage Rates Remain High as Affordability Challenges Persist**\
-`The average 30-year, fixed-rate home loan fell slightly, to 7.11 percent, pushing buyers and sellers to the sidelines until conditions improve.`\
-https://www.nytimes.com/2026/11/12/business/mortgage-rates-home-sales-housing-market.html
 
