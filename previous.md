@@ -1,4 +1,8 @@
 **Jensen Huang Is Out at Nvidia**\
+`In a shocking turn of events, Nvidia’s co-founder resigns amid multiple scandals.`\
+https://www.nytimes.com/2026/11/12/podcasts/hardfork-jensen-huang-resigns.html
+
+**Jensen Huang Is Out at Nvidia**\
 `Times reporters Ana Swanson and Ryan Mac and biographer Stephen Witt explain Jensen Huang’s exit from Nvidia and what it means for the company and the A.I. boom.`\
 https://www.nytimes.com/video/podcasts/100000011279780/jensen-huang-is-out-at-nvidia.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-pop
 **Fixing America: A Bounty of Ideas**\
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
 https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
-
-**At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
-`An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
-https://www.nytimes.com/video/world/middleeast/100000011279442/gaza-israel-hospital-strike-khan-younis-nasser.html
 

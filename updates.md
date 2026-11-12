@@ -1,4 +1,8 @@
 **Jensen Huang Is Out at Nvidia**\
+`In a shocking turn of events, Nvidia’s co-founder resigns amid multiple scandals.`\
+https://www.nytimes.com/2026/11/12/podcasts/hardfork-jensen-huang-resigns.html
+
+**Jensen Huang Is Out at Nvidia**\
 `Times reporters Ana Swanson and Ryan Mac and biographer Stephen Witt explain Jensen Huang’s exit from Nvidia and what it means for the company and the A.I. boom.`\
 https://www.nytimes.com/video/podcasts/100000011279780/jensen-huang-is-out-at-nvidia.html
 
