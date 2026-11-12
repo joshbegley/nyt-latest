@@ -1,3 +1,7 @@
+**Live Updates: Crews Scour Rubble for Survivors After Deadly Brooklyn Building Collapse**\
+`At least two people were killed and several others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
 **A Concerned Californian’s Guide to El Niño**\
 `The weather pattern is a familiar companion to the state’s residents. But it doesn’t always behave how they think it will.`\
 https://www.nytimes.com/2026/11/12/weather/el-nino-california-explained.html

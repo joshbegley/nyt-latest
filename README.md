@@ -1,5 +1,9 @@
-**Live Updates: Crews Scour Rubble for Survivors After Deadly Brooklyn Building Collapse**\
-`At least two people were killed and several others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+**Masterpieces From Paris Go Town to Town in a Semi-Truck**\
+`Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
+https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
+
+**Live Updates: Crews Scour Rubble After Deadly Brooklyn Building Collapse**\
+`At least two people were killed and 17 others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
 
 **A Concerned Californian’s Guide to El Niño**\
@@ -50,8 +54,8 @@ https://www.nytimes.com/2026/11/12/pageoneplus/corrections-nov-12-2026.html
 `Big technology companies saw the tide turn against their giant A.I. projects, but they have the means to weather delays.`\
 https://www.nytimes.com/2026/11/12/technology/voters-data-centers-construction.html
 
-**The Fragile Truce Between the Working Class and the Woke Left**\
-`Democrats have power now. They shouldn’t waste it on culture wars.`\
+**Democrats Have Power Now. They Shouldn’t Waste It on Woke.**\
+`This leftist thinker is skeptical that they can govern without lecturing the country.`\
 https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-catherine-liu.html
 
 **36 Hours on the Eastside of Los Angeles: Things to Do and See**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/12/obituaries/fernande-decruck-overlooked.html
 **I Saw the Future of Mind-Reading**\
 `Thanks to A.I., it’s more possible than ever to glean the inner recesses of a person’s mind. The implications are big — and unnerving.`\
 https://www.nytimes.com/2026/11/12/opinion/mind-reading-ai.html
-
-**Could $1 Million Get Them the Manhattan Two-Bedroom They Wanted?**\
-`Hoori Rafieian and Anubhav Aggarwal tried the suburbs, but decided the city suited their needs.`\
-https://www.nytimes.com/quiz/2026/11/12/realestate/12re-hunt-rafieian-aggarwal.html
 
