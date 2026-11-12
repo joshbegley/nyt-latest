@@ -1,3 +1,7 @@
+**Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
+`A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
+https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-soldier-shout.html
+
 **Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck**\
 `Seven Chinese tourists, a dozen villagers and a couple of journalists forded streams and bushwhacked to the downed plane of Isoroku Yamamoto, the Japanese admiral. Machetes proved handy.`\
 https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html

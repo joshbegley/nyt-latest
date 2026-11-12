@@ -112,7 +112,7 @@ https://www.nytimes.com/2026/11/11/technology/nvidia-jensen-huang.html
 
 **Soldier Shouts Toward Hegseth to Show ‘Respect’ at Tomb of the Unknown Soldier**\
 `A Pentagon spokesman said the sentinel had “reminded everyone to maintain decorum” after laughter was heard from a group visiting the burial site with the Defense Secretary on Wednesday.`\
-https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shout.html
+https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-soldier-shout.html
 
 **Court in UK Decriminalizes Same-Sex Relations in Trinidad and Tobago**\
 `The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
@@ -177,8 +177,4 @@ https://www.nytimes.com/2026/11/11/business/sexual-harassment-spacex-elon-musk.h
 **Protests Throw Objects at Biden During Dublin Trip**\
 `Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
 https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
-
-**An 8-Year-Old Was Separated From Family and Taken by ICE at a Check-In**\
-`The third grader from Haiti had been living with his uncle’s family since his father was deported last year. From a shelter where ICE sent him, “he cried and just begged to come home.”`\
-https://www.nytimes.com/2026/11/11/us/ice-detains-8-year-old.html
 

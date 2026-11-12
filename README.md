@@ -1,3 +1,7 @@
+**Tech Giants Invest in German Robotics Start-Up at $8.5 Billion Valuation**\
+`Agile Robots plans to expand in the United States and increase production in Europe after raising funds in a round led by SoftBank.`\
+https://www.nytimes.com/2026/11/12/business/softbank-nvidia-agile-robots.html
+
 **Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck**\
 `Seven Chinese tourists, a dozen villagers and a couple of journalists forded streams and bushwhacked to the downed plane of Isoroku Yamamoto, the Japanese admiral. Machetes proved handy.`\
 https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/us/politics/trump-immigration-election-democr
 **Court Rules That Sexual Harassment Case Against SpaceX Can Proceed**\
 `The company had argued that the case, involving eight former workers, must be resolved before an arbitrator.`\
 https://www.nytimes.com/2026/11/11/business/sexual-harassment-spacex-elon-musk.html
-
-**Protests Throw Objects at Biden During Dublin Trip**\
-`Footage showed protesters at a pro-Palestinian demonstration throwing what appeared to be milk at former President Joseph R. Biden Jr. after he attended an event at Trinity College Dublin.`\
-https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects-at-biden-during-dublin-trip.html
 
