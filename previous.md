@@ -1,3 +1,11 @@
+**Which Metropolitan Diary Illustration Is Your Favorite?**\
+`Agnes Lee, Metropolitan Diary’s illustrator, picked five drawings she is especially proud of. Vote for your favorite.`\
+https://www.nytimes.com/quiz/2026/11/12/nyregion/metropolitan-diary-illustration-poll.html
+
+**Colom’s Victory Pads Democrats’ Majority in the Senate**\
+`The victory in Mississippi gives Democrats 55 seats as they await results in the Alaska race, leaving them short of a 60-seat supermajority but cushioning their margin of control.`\
+https://www.nytimes.com/2026/11/11/us/elections/colom-mississippi-senate-democrats.html
+
 **Long Before Scott Colom, There Was Hiram Revels and Blanche Bruce.**\
 `Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
@@ -42,7 +50,7 @@ https://www.nytimes.com/2026/11/11/us/politics/hegseth-tomb-unknown-solider-shou
 `The ruling, which could affect similar laws in other British Commonwealth countries, has spotlighted a legal system still intertwined with a former colonial power.`\
 https://www.nytimes.com/2026/11/11/world/americas/trinidad-same-sex-ruling.html
 
-**Building Collapses in Brooklyn, Killing One and Critically Injuring 4**\
+**Brooklyn Building Collapses, Killing 1 and Injuring Others in Flatbush, NY**\
 `The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday. People were trapped at the site.`\
 https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/11/business/economy/nvidia-affair-spy-bessent-lu
 **Trump. Miller. Blanche. Jordan. Things Could Get Worse, and They Probably Will.**\
 `Yes, his party was routed in the midterms, but this president doesn’t do humility.`\
 https://www.nytimes.com/2026/11/11/opinion/trump-miller-blanche-jordan.html
-
-**Silicon Valley Tech Allies Support Jensen Huang**\
-`Elon Musk and other Silicon Valley figures cast the Nvidia chief’s relationship with a woman believed to be a Chinese spy as a personal lapse, not a security failure.`\
-https://www.nytimes.com/2026/11/11/technology/jensen-huang-affair-nvidia-support.html
-
-**Workers in Spain Stage a General Strike for the First Time in 14 Years**\
-`Workers in a wide range of industries walked off the job to protest rising rents and stagnant wages, which have become central issues in the campaign.`\
-https://www.nytimes.com/2026/11/11/world/europe/spain-general-strike.html
 

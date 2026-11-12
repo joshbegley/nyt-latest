@@ -1,3 +1,15 @@
+**Which Metropolitan Diary Illustration Is Your Favorite?**\
+`Agnes Lee, Metropolitan Diary’s illustrator, picked five drawings she is especially proud of. Vote for your favorite.`\
+https://www.nytimes.com/quiz/2026/11/12/nyregion/metropolitan-diary-illustration-poll.html
+
+**Colom’s Victory Pads Democrats’ Majority in the Senate**\
+`The victory in Mississippi gives Democrats 55 seats as they await results in the Alaska race, leaving them short of a 60-seat supermajority but cushioning their margin of control.`\
+https://www.nytimes.com/2026/11/11/us/elections/colom-mississippi-senate-democrats.html
+
+**Brooklyn Building Collapses, Killing 1 and Injuring Others in Flatbush, NY**\
+`The three-story structure in Flatbush collapsed just after 4 p.m. Wednesday. People were trapped at the site.`\
+https://www.nytimes.com/2026/11/11/nyregion/brooklyn-building-collapse.html
+
 **Long Before Scott Colom, There Was Hiram Revels and Blanche Bruce.**\
 `Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
