@@ -51,7 +51,7 @@ https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.h
 https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
 
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
-`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had targeted a “senior Hamas terrorist.”`\
+`A surgeon, an official and a disabled patient were among the victims at Nasser Hospital in Khan Younis, a witness said. Israel said it had struck a “senior Hamas terrorist.”`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
 
 **NYT Crossword Answers for Nov. 12, 2026**\
