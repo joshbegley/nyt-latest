@@ -160,7 +160,7 @@ https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-mus
 
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
-https://www.nytimes.com/2026/11/11/us/trump-federal-judges-senate-republicans.html
+https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-republicans.html
 
 **Recalling the S.S. United States as It Becomes a Florida Reef**\
 `A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
