@@ -1,3 +1,7 @@
+**In China’s Spy Operations, Romance Can Be a Long Game**\
+`Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
+https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
+
 **Mississippi Elects First Black Senator Since 1881**\
 `Scott Colom, a Democrat, defeated the Republican incumbent, Senator Cindy Hyde-Smith, in Mississippi. His victory adds to the Senate Democratic majority.`\
 https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-scott-colom.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/opinion/jensen-huang-leather-jacket.html
 **Jensen Huang Said to Have Had Relationship With Nvidia Executive Who Reports to Him**\
 `Mr. Huang, Nvidia’s chief executive, is already facing scrutiny over an affair with a Chinese businesswoman who U.S. intelligence determined was a Chinese spy.`\
 https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html
-
-**Workers in Spain Hold General Strike for First Time in 14 Years**\
-`Workers across Spain went on strike, protesting against rising housing costs and stagnant wages ahead of the national election in November.`\
-https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-election.html
 

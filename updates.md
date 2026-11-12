@@ -1,3 +1,7 @@
+**In China’s Spy Operations, Romance Can Be a Long Game**\
+`Jensen Huang’s affair with a woman U.S. officials say is a Chinese spy has drawn attention to the role of intimate relationships in espionage.`\
+https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html
+
 **Mississippi Elects First Black Senator Since 1881**\
 `Scott Colom, a Democrat, defeated the Republican incumbent, Senator Cindy Hyde-Smith, in Mississippi. His victory adds to the Senate Democratic majority.`\
 https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-scott-colom.html
