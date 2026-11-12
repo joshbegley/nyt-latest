@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/11/12/us/politics/trump-vance-iran-fraud.html
 `Ms. Kress, the company’s chief financial officer, joined Nvidia in 2013.`\
 https://www.nytimes.com/2026/11/12/business/nvidia-colette-kress-jensen-huang.html
 
-**One Shot Dead and Four Wounded at Washington, D.C., Condo Building**\
+**One Shot Dead and Four Wounded Around Washington, D.C., Condo Building**\
 `The shooting in a busy neighborhood took place at a gym and two nearby locations. A suspect was found with a fatal gunshot wound after barricading in a building, the police said.`\
 https://www.nytimes.com/2026/11/12/us/shooting-washington-dc.html
 
