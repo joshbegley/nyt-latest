@@ -1,3 +1,11 @@
+**What Does 2026 Mean for the Map in 2028?**\
+`Mississippi and other states have created new uncertainty about what, exactly, a red state is.`\
+https://www.nytimes.com/2026/11/12/us/politics/midterm-elections-2028-presidential-map.html
+
+**Historic Headlines Quiz**\
+`Can you figure out the missing word from these front-page headlines?`\
+https://www.nytimes.com/quiz/2026/11/12/learning/historic-headlines-quiz.html
+
 **Jensen Huang Is Out at Nvidia**\
 `In a shocking turn of events, Nvidia’s co-founder resigns amid multiple scandals.`\
 https://www.nytimes.com/2026/11/12/podcasts/hardfork-jensen-huang-resigns.html
@@ -185,8 +193,4 @@ https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
 **Democrats Unite on Economic Populism After Midterm Victories**\
 `Moderate Democrats and progressives have long feuded over who should drive their party’s economic agenda. But many newly elected members say they share the same big goals.`\
 https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-populism.html
-
-**Fixing America: A Bounty of Ideas**\
-`Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
-https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
 
