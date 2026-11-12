@@ -1,3 +1,7 @@
+**Onlookers Wait at Brooklyn Building Collapse Site Hoping for News of Rescues**\
+`Emergency workers were combing through the rubble early Thursday after at least two people were killed when a three-story apartment building collapsed in New York City.`\
+https://www.nytimes.com/2026/11/12/nyregion/nyc-brooklyn-building-collapse-rescue-wait.html
+
 **A Second Affair Revelation Rocks Nvidia, and a Democrat Wins Mississippi in a Major Senate Upset**\
 `Plus, the downfall of Russia’s most daring newspaper.`\
 https://www.nytimes.com/2026/11/12/podcasts/the-headlines/jensen-huang-nvidia-scott-colom-mississippi-senate.html
