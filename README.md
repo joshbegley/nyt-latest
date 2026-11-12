@@ -1,3 +1,7 @@
+**Building Partially Collapses in Brooklyn, Killing at Least One**\
+`At least one person was killed and four were critically injured after a the three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
+https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
+
 **Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
 `He was the most-cited legal scholar of the latter half of the 20th century and an unapologetic iconoclast, favoring pragmatism over judicial tradition. He was 87.`\
 https://www.nytimes.com/2026/11/11/us/richard-posner-dead.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-senate-r
 `Eleven Democrats were absent, helping Republicans shelve the charges against the defense secretary. It drew sharp criticism a week after the party’s sweeping election victories.`\
 https://www.nytimes.com/2026/11/11/us/politics/democrats-backlash-missing-hegseth-impeachment-vote.html
 
-**Midterm Election Live Updates: Black Mississippians Rejoice as Colom Wins Senate Seat**\
+**Midterm Election Live Updates: Streets Erupt in Celebration After Scott Colom’s Historic Victory**\
 `Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
 
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-i
 **Rita Paul Has Died. She Nurtured a Fabled Greenwich Village Hotel.**\
 `Her artistic redesign and dedicated management of the Washington Square Hotel enabled its offbeat traditions to persist into a second century. She was 99.`\
 https://www.nytimes.com/2026/11/11/nyregion/rita-paul-dead.html
-
-**My Wife Is Leaving the Divorce Details to Me. Can I Look Out for Myself?**\
-`We’re trying to avoid hiring lawyers because of the expense, which gives me an advantage.`\
-https://www.nytimes.com/2026/11/11/magazine/wife-divorce-settlement-ethics.html
-
-**Raman and the D.S.A.: Wariness, Skepticism and Hope**\
-`Democratic socialists had another success with Ms. Raman’s ascent to the Los Angeles mayoralty. But she is no sure bet to align with all of the group’s priorities.`\
-https://www.nytimes.com/2026/11/11/us/politics/raman-los-angeles-democratic-socialist.html
 
