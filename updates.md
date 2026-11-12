@@ -1,3 +1,7 @@
+**Scott Colom Will Be Mississippi’s Third Black Senator. Who Were the First Two?**\
+`Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
+https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
+
 **Hyde-Smith Concedes to Colom: ‘I Respect the Decision of Mississippi Voters’**\
 `Senator Cindy Hyde-Smith, the first woman to represent Mississippi in Congress, said that her campaign “worked tirelessly to ensure every legally cast vote was counted.”`\
 https://www.nytimes.com/2026/11/11/us/elections/hyde-smith-concedes-senate-colom.html

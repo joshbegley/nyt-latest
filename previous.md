@@ -14,7 +14,7 @@ https://www.nytimes.com/quiz/2026/11/12/nyregion/metropolitan-diary-illustration
 `The victory in Mississippi gives Democrats 55 seats as they await results in the Alaska race, leaving them short of a 60-seat supermajority but cushioning their margin of control.`\
 https://www.nytimes.com/2026/11/11/us/elections/colom-mississippi-senate-democrats.html
 
-**Long Before Scott Colom, There Was Hiram Revels and Blanche Bruce.**\
+**Scott Colom Will Be Mississippi’s Third Black Senator. Who Were the First Two?**\
 `Mr. Revels took his seat two days after Mississippi was readmitted to the union after the Civil War. Mr. Bruce served just before white leaders ushered in the Jim Crow era.`\
 https://www.nytimes.com/2026/11/11/us/elections/scott-colom-mississippi-black-senators.html
 
