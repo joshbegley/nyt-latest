@@ -1,3 +1,7 @@
+**Nvidia Scandal Unleashes a Flood of AI-Generated Memes**\
+`The revelations surrounding Jensen Huang, who resigned from Nvidia over extramarital affairs, inspired social media posts using the very technology his company helped develop.`\
+https://www.nytimes.com/2026/11/12/world/asia/nvidia-ceo-huang-ai-memes.html
+
 **Teen Found After Missing for 6 Days in Australian Forest**\
 `A 17-year-old with autism disappeared last Friday during a camping trip. He was found alive on Thursday by a police helicopter near Walhalla, Australia.`\
 https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6-days-found-alive.html
@@ -149,10 +153,6 @@ https://www.nytimes.com/2026/11/12/us/politics/democrats-majorities-economic-pop
 **Fixing America: A Bounty of Ideas**\
 `Readers respond to an Opinion article, “8 Big Ideas for the Next Congress,” and offer suggestions of their own.`\
 https://www.nytimes.com/2026/11/12/opinion/democrats-congress-ideas.html
-
-**Colapso en Brooklyn, en vivo: hay al menos 8 personas muertas**\
-`Dos de los fallecidos eran niños, dijo el alcalde Zohran Mamdani, y otras 18 personas resultaron heridas al derrumbarse un edificio de tres plantas. Las labores de búsqueda y rescate seguían bajo la lluvia.`\
-https://www.nytimes.com/live/2026/11/12/espanol/edificio-colapso-nueva-york
 
 **At Least 6 Killed, 28 Injured After Israeli Strike on Gaza Hospital**\
 `An overnight Israeli military strike on a hospital in Khan Younis killed at least six people and injured 28 others, local health officials said on Thursday.`\
