@@ -1,3 +1,23 @@
+**A Second Affair Revelation Rocks Nvidia, and a Democrat Wins Mississippi in a Major Senate Upset**\
+`Plus, the downfall of Russia’s most daring newspaper.`\
+https://www.nytimes.com/2026/11/12/podcasts/the-headlines/jensen-huang-nvidia-scott-colom-mississippi-senate.html
+
+**NYT Connections Answers for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/connections-companion-1251.html
+
+**Today’s Wordle Hints for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/wordle-review-1973.html
+
+**What Jensen Huang’s Potential Ouster Could Mean for A.I.**\
+`Nvidia’s board is considering firing Jensen Huang after revelations that he had affairs with an executive who reports to him and a woman who U.S. officials say is a Chinese spy.`\
+https://www.nytimes.com/2026/11/12/podcasts/the-daily/jensen-huang-nvidia-affairs.html
+
+**Malawi Farmers Brace for Drought From ‘Super El Niño’**\
+`Our global climate correspondent Chico Harlan visits a remote village in southern Malawi to see how farmers are preparing for an imminent drought caused by this year’s “Super El Niño.”`\
+https://www.nytimes.com/video/climate/100000011222904/super-el-nino-malawi-drought-farmers.html
+
 **NYT Strands Hints for November 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
 https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/12/us/politics/torture-9-11.html
 **Word of the Day: exude**\
 `This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/12/learning/word-of-the-day-exude.html
-
-**Malawi Lacks Money to Fund its El Niño Plans**\
-`The question is being asked across the developing world, where hunger risk is high from the extreme weather El Niño is expected to bring. Malawi has a big plan, but little money.`\
-https://www.nytimes.com/2026/11/12/climate/el-nino-malawi-farmer-drought.html
-
-**Snoopy Lives!**\
-`Nearly three decades after the last “Peanuts” comic strip, Charlie Brown and the gang are everywhere, thanks to more than a thousand brand deals.`\
-https://www.nytimes.com/2026/11/12/style/peanuts-snoopy-charlie-brown-brand-partnerships-advertising.html
-
-**San Antonio Fights Plan to Turn Warehouse Into ICE Detention Center**\
-`The city’s lawsuit is part of a wave of legal challenges slowing the Trump administration’s effort to build immigration detention centers across the country.`\
-https://www.nytimes.com/2026/11/12/us/ice-detention-center-san-antonio.html
-
-**The Woman Who Wanted to Help the St. Lazarus Children**\
-`By embracing Korean children living in leprosy communities, Bernice Gottlieb was a leader in the international adoption movement. She has died at 95.`\
-https://www.nytimes.com/2026/11/12/obituaries/bernice-gottlieb-dead.html
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Igor Levit’s release on his new label, contemporary and rare operas, and a mezzo-soprano’s sea-themed recital are among our selections.`\
-https://www.nytimes.com/2026/11/12/arts/music/best-classical-music-albums-november-2026.html
 

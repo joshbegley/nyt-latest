@@ -1,3 +1,23 @@
+**A Second Affair Revelation Rocks Nvidia, and a Democrat Wins Mississippi in a Major Senate Upset**\
+`Plus, the downfall of Russia’s most daring newspaper.`\
+https://www.nytimes.com/2026/11/12/podcasts/the-headlines/jensen-huang-nvidia-scott-colom-mississippi-senate.html
+
+**NYT Connections Answers for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/connections-companion-1251.html
+
+**Today’s Wordle Hints for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/wordle-review-1973.html
+
+**What Jensen Huang’s Potential Ouster Could Mean for A.I.**\
+`Nvidia’s board is considering firing Jensen Huang after revelations that he had affairs with an executive who reports to him and a woman who U.S. officials say is a Chinese spy.`\
+https://www.nytimes.com/2026/11/12/podcasts/the-daily/jensen-huang-nvidia-affairs.html
+
+**Malawi Farmers Brace for Drought From ‘Super El Niño’**\
+`Our global climate correspondent Chico Harlan visits a remote village in southern Malawi to see how farmers are preparing for an imminent drought caused by this year’s “Super El Niño.”`\
+https://www.nytimes.com/video/climate/100000011222904/super-el-nino-malawi-drought-farmers.html
+
 **NYT Strands Hints for November 13, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
 https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
