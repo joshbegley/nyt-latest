@@ -1,3 +1,7 @@
+**From the Front Page: Voyager 1 Flies Past Saturn on Nov. 12, 1980**\
+`The space probe made its closest approach to the planet, capturing detailed images that included Saturnian rings and moons.`\
+https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
+
 **Strike on Gaza Hospital Kills at Least 6 and Injures 20, Rescuers Say**\
 `Nasser Hospital in Khan Younis was attacked despite the 2025 cease-fire. A surgeon, an official and a disabled patient were among the victims, a witness said.`\
 https://www.nytimes.com/2026/11/11/world/middleeast/nasser-hospital-gaza-strike-israel.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-mus
 **Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
 `The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
 https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-republicans.html
-
-**Recalling the S.S. United States as It Becomes a Florida Reef**\
-`A New York Times editor has had a lifelong connection to the S.S. United States, which is becoming an artificial reef off the Florida coast.`\
-https://www.nytimes.com/2026/11/11/insider/ss-united-states-destin-florida-memories.html
 
