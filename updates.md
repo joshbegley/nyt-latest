@@ -1,3 +1,7 @@
+**Lesson Plan | Fake Health Influencers**\
+`What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
+https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
+
 **Nvidia’s Stock Price Plummets as Board Is Said to Consider Jensen Huang’s Future as CEO**\
 `News of the board’s deliberations about Jensen Huang’s job drove Nvidia’s stock down more than 8 percent in after-hours trading.`\
 https://www.nytimes.com/2026/11/11/business/nvidia-stock-jensen-huang-ceo.html

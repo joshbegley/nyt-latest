@@ -1,3 +1,7 @@
+**Mississippi Elects First Black Senator Since 1881**\
+`Scott Colom, a Democrat, defeated the Republican incumbent, Senator Cindy Hyde-Smith, in Mississippi. His victory adds to the Senate Democratic majority.`\
+https://www.nytimes.com/video/us/elections/100000011278062/mississippi-senate-scott-colom.html
+
 **Lesson Plan | Fake Health Influencers**\
 `What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
 https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
@@ -78,8 +82,8 @@ https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarit
 `At least two people were killed after a three-story structure tumbled into a large hole created by a construction site next door, the authorities said.`\
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
 
-**Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
-`(No description)`\
+**At Least 2 Dead in Brooklyn Building Collapse**\
+`At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
 
 **Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html
 **Workers in Spain Hold General Strike for First Time in 14 Years**\
 `Workers across Spain went on strike, protesting against rising housing costs and stagnant wages ahead of the national election in November.`\
 https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-election.html
-
-**A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
-`The upheaval points to a broader dilemma spurred by the election: whether the department can carry out President Trump’s priorities as career officials eye the exits and senior department officials resign.`\
-https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
 

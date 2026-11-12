@@ -1,3 +1,7 @@
+**Lesson Plan | Fake Health Influencers**\
+`What are some of the tells that can help you separate real wellness advice on the internet from A.I. fakes?`\
+https://www.nytimes.com/2026/11/12/learning/15-minute-lesson-plan-fake-health-influencers.html
+
 **What to Know About the Deadly Building Collapse in Brooklyn**\
 `At least two people were killed and several others injured when a three-story building collapsed, officials said. Emergency workers were looking for victims.`\
 https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-deaths-flatbush-nyc.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/video/world/europe/100000011277532/spain-workers-strike-
 **A Diminished Justice Dept. Braces for Fresh Fights After Midterm Loss**\
 `The upheaval points to a broader dilemma spurred by the election: whether the department can carry out President Trump’s priorities as career officials eye the exits and senior department officials resign.`\
 https://www.nytimes.com/2026/11/11/us/politics/doj-trump-blanche-trump-midterms.html
-
-**How to Be a Better Gift Giver: Expert Advice and Picks**\
-`Ahead of the holidays, artists, chefs and designers share their tips — and their favorite items.`\
-https://www.nytimes.com/2026/11/11/t-magazine/holiday-gift-guide-advice.html
 
