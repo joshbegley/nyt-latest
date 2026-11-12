@@ -39,7 +39,7 @@ https://www.nytimes.com/video/technology/100000011278550/huang-second-extramarit
 https://www.nytimes.com/video/nyregion/100000011278514/brooklyn-building-collapse.html
 
 **Live Updates: At Least 2 Dead in Brooklyn Building Collapse**\
-`(No description)`\
+`At least 17 others were critically injured when the three-story structure in New York City’s Flatbush neighborhood collapsed. Emergency workers were looking for other victims in the wreckage.`\
 https://www.nytimes.com/live/2026/11/11/nyregion/building-collapse-nyc-brooklyn
 
 **Judge Richard A. Posner Has Died. His Influence in Law Was Beyond Compare.**\
