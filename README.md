@@ -1,3 +1,15 @@
+**Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck**\
+`Seven Chinese tourists, a dozen villagers and a couple of journalists forded streams and bushwhacked to the downed plane of Isoroku Yamamoto, the Japanese admiral. Machetes proved handy.`\
+https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html
+
+**Quote of the Day: A Father’s Dream of Antarctica and a Son’s Unfinished Quest**\
+`Quotation of the Day for Thursday, November 12, 2026.`\
+https://www.nytimes.com/2026/11/12/pageoneplus/quote-of-the-day-a-fathers-dream-of-antarctica-and-a-sons-unfinished-quest.html
+
+**ALT: She Is Rewriting Mexico’s Ballads, One Woman’s Story at a Time**\
+`Grammy-nominated songwriter Vivir Quintana is known throughout Latin America for giving voice to women who fought back against domestic violence.`\
+https://www.nytimes.com/2026/11/12/world/americas/grammys-women-vivir-quintana.html
+
 **From the Front Page: Voyager 1 Flies Past Saturn on Nov. 12, 1980**\
 `The space probe made its closest approach to the planet, capturing detailed images that included Saturnian rings and moons.`\
 https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
@@ -169,16 +181,4 @@ https://www.nytimes.com/video/us/politics/100000011277445/protests-throw-objects
 **An 8-Year-Old Was Separated From Family and Taken by ICE at a Check-In**\
 `The third grader from Haiti had been living with his uncle’s family since his father was deported last year. From a shelter where ICE sent him, “he cried and just begged to come home.”`\
 https://www.nytimes.com/2026/11/11/us/ice-detains-8-year-old.html
-
-**The Russian Scientist Behind the Deadly Novichok Nerve Agents Has Died**\
-`Vladimir Uglev, a lead developer of a Cold War-era chemical weapon used on the dissident Alexei Navalny, later turned against the government. He was 80.`\
-https://www.nytimes.com/2026/11/11/science/vladimir-uglev-dead.html
-
-**Writer Michel Houellebecq Investigated Over Anti-Muslim Remarks**\
-`His comments in a 2022 interview have drawn accusations of incitement to violence and racial hatred — accusations that his lawyers reject.`\
-https://www.nytimes.com/2026/11/11/arts/michel-houellebecq-investigated-anti-muslim-remarks.html
-
-**Republicans Begin Aggressive Lame-Duck Push to Install Trump Judges**\
-`The G.O.P. intends to win confirmation of about two dozen federal judges before the party loses power. But Democrats promise to do what they can to stop them.`\
-https://www.nytimes.com/2026/11/11/us/politics/trump-federal-judges-senate-republicans.html
 

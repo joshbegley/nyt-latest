@@ -1,3 +1,7 @@
+**From the Front Page: Voyager 1 Flies Past Saturn on Nov. 12, 1980**\
+`The space probe made its closest approach to the planet, capturing detailed images that included Saturnian rings and moons.`\
+https://www.nytimes.com/2026/11/12/learning/from-the-front-page-voyager-1-flies-past-saturn-on-nov-12-1980.html
+
 **Streets Erupt in Celebration After Colom’s Historic Win in Mississippi**\
 `Scott Colom, a Democrat, narrowly defeated the Republican incumbent to become the first Black senator to represent Mississippi in nearly 150 years, flipping a once solidly Republican seat.`\
 https://www.nytimes.com/live/2026/11/11/us/mississippi-senate-election-midterms
