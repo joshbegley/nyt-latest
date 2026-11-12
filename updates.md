@@ -1,3 +1,23 @@
+**NYT Strands Hints for November 13, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 13, 2026.`\
+https://www.nytimes.com/2026/11/12/crosswords/strands-sidekick-985.html
+
+**Israel’s Arrest of Journalist Abed Abu Shehadeh Raises Concerns**\
+`Abed Abu Shehadeh, a Palestinian citizen of Israel, was detained without being charged with a crime, raising concerns that the domestic security service is overstepping its authority.`\
+https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-netanyahu.html
+
+**Masterpieces From Paris Go Town to Town in a Semi-Truck**\
+`Culture funding in France heavily favors the country’s capital. So a traveling outpost of the Musée d’Orsay is bringing art to rural communities that have long felt left behind.`\
+https://www.nytimes.com/2026/11/12/arts/design/musee-d-orsay-art-truck-mumo.html
+
+**Live Updates: Crews Scour Rubble After Deadly Brooklyn Building Collapse**\
+`At least two people were killed and 17 others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
+https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
+
+**Democrats Have Power Now. They Shouldn’t Waste It on Woke.**\
+`This leftist thinker is skeptical that they can govern without lecturing the country.`\
+https://www.nytimes.com/2026/11/12/opinion/interesting-times-christine-rosen-catherine-liu.html
+
 **Live Updates: Crews Scour Rubble for Survivors After Deadly Brooklyn Building Collapse**\
 `At least two people were killed and several others were injured when a three-story building in the Flatbush neighborhood collapsed, officials said.`\
 https://www.nytimes.com/live/2026/11/12/nyregion/building-collapse-nyc-brooklyn
