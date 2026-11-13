@@ -1,3 +1,7 @@
+**Fewer Fed Meetings Raise Stakes of Warsh’s Communications**\
+`The Federal Reserve will vote on interest rates less frequently beginning next year as part of a plan by the central bank’s chairman, Kevin M. Warsh, to overhaul how it operates.`\
+https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html
+
 **Wall Street Braces for Anthropic’s Spending**\
 `The company’s financial picture may get murky as it deals with employee stock compensation and the growing costs of artificial intelligence.`\
 https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/theater/art-of-the-deal-musical-die-kunst-des
 **In the Documentary ‘Avedon,’ a Portraitist’s Work Speaks for Itself**\
 `This illuminating documentary about the photographer Richard Avedon shows how much of his personality was infused into his art.`\
 https://www.nytimes.com/2026/11/13/movies/richard-avedon-documentary-netflix.html
-
-**Why Aid Isn’t Reaching Ebola’s Epicenter**\
-`The Ebola outbreak in the eastern Democratic Republic of the Congo has a new epicenter, one largely isolated from aid by an armed group that has killed and kidnapped aid workers. Declan Walsh, our chief Africa correspondent, reports from a town where health workers are struggling to contain the outbreak.`\
-https://www.nytimes.com/video/world/africa/100000011257751/why-aid-isnt-reaching-ebolas-epicenter.html
 
