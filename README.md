@@ -1,3 +1,11 @@
+**Why Jensen Huang Was Essential to Nvidia’s Rise**\
+`Jensen Huang was the driving force at Nvidia, with 60 direct reports and no clear succession plan. Tripp Mickle, one of our technology reporters, examines Mr. Huang’s central role in the company and the artificial intelligence industry.`\
+https://www.nytimes.com/video/business/100000011275611/why-jensen-huang-was-essential-to-nvidias-rise.html
+
+**Hakeem Jeffries Pushes to Lock Down House Speakership, With No Challenger Emerging**\
+`Facing resistance from the left but no challenger, the Democratic leader is sewing up support from key coalitions as his allies say he deserves a unanimous vote.`\
+https://www.nytimes.com/2026/11/13/us/politics/jeffries-house-speaker-democrats.html
+
 **What’s. The Deal. With Maybelline’s. New Slogan.**\
 `An attempt to update one of the most famous tag lines in marketing history left many consumers scratching their heads.`\
 https://www.nytimes.com/2026/11/13/style/maybe-its-maybelline-slogan.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/13/opinion/midterms-hollywood-paramount-trump.ht
 **What Are Your Superstitions?**\
 `Do you believe in luck? What small habits and rituals do you follow to bring on the good fortune or ward off the bad in your life?`\
 https://www.nytimes.com/2026/11/13/learning/what-are-your-superstitions.html
-
-**Choosing a Guest Bed People Will Actually Want to Sleep On**\
-`Our experts share their favorites.`\
-https://www.nytimes.com/2026/11/13/podcasts/choosing-a-guest-bed-people-will-actually-want-to-sleep-on.html
-
-**The Fall of Jensen Huang: How the Nvidia Scandal Unfolded**\
-`Tracing the undoing of one of the most influential figures in the A.I. boom.`\
-https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.html
 
