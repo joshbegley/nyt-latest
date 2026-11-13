@@ -155,7 +155,7 @@ https://www.nytimes.com/2026/11/13/opinion/democrats-trump-congress.html
 https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
 
 **The Swingiest State Has Gone Very Red**\
-`A lot of Republicans have moved to the state since Covid, and those newcomers really like the way Republicans are running it.`\
+`A lot of Republicans have moved to Florida since Covid, and those newcomers really like the way Republicans are running it.`\
 https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
 
 **Democrats Eye Strict New Limits on White House Budget Powers**\
