@@ -1,3 +1,7 @@
+**‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
+`With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
+https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
+
 **After the Fall**\
 `We’re looking at the scandals at Nvidia.`\
 https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
