@@ -1,3 +1,7 @@
+**Europe Agrees on a Team to Represent It in Talks With Russia**\
+`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. The continent wants to fill it with a six-member team.`\
+https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
+
 **Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
 `Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
 https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-netanyahu-racism-arabs.html
