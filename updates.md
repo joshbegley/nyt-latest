@@ -1,3 +1,7 @@
+**Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
+`Throughout the years, tech giants have had mixed records after losing visionary founders who propelled their success. Successors with tech expertise helps.`\
+https://www.nytimes.com/2026/11/13/technology/nvidia-ceo-jen-huang-loss.html
+
 **Rosalía and Milo J Win Big: 6 Key Moments From the Latin Grammys**\
 `The performance-heavy show featured spectacles from Anitta, Daddy Yankee and more, plus a stirring tribute to José Alfredo Jiménez.`\
 https://www.nytimes.com/2026/11/13/arts/music/rosalia-milo-j-latin-grammys-winners.html
