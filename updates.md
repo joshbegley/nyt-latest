@@ -1,3 +1,27 @@
+**Airports Fill Up With Stuck Families and Stranded Travelers**\
+`The emergency ground disrupted travel plans across the country.`\
+https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html
+
+**Trump Officials Press Congress to Renew Spying Law in Lame-Duck Session**\
+`The request to extend a high-profile warrantless surveillance law would add a thorny issue during waning Republican control.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-congress-section-702-surveillance.html
+
+**Trump Administration Delays Enforcement of Medicaid Work Requirement**\
+`The federal government had planned to require poor adults to prove they were working or lose insurance coverage starting Jan. 1. Now, it will let states wait until July.`\
+https://www.nytimes.com/2026/11/13/us/politics/medicaid-work-requirement-delay.html
+
+**Mamdani Makes Deal With Trump to Delay SNAP Rules for Stores Across U.S.**\
+`Small businesses that accept food stamps will have another 90 days to comply with new rules for stocking food staples, Mayor Zohran Mamdani said.`\
+https://www.nytimes.com/2026/11/13/nyregion/mamdani-trump-snap-rule-delay.html
+
+**The last ground stop in 2023 came after a pilot warning system went down.**\
+`(No description)`\
+https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
+
+**All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
+`Search and rescue operations were continuing after the riverboat, which had nearly 200 people aboard, was struck by a tanker ship on Friday afternoon, the authorities said.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
 **5 Takeaways from Joe Biden’s Memoir: The Debate, Dropping Out and Advice From Romney**\
 `The 46th president defends his decision to run for re-election, which many in his party now regard as a mistake, and revisits the disastrous debate that forced him to end his campaign.`\
 https://www.nytimes.com/2026/11/13/us/politics/joe-biden-new-memoir-takeaways.html
