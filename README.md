@@ -1,3 +1,7 @@
+**5 Takeaways from Joe Biden’s Memoir: The Debate, Dropping Out and Advice From Romney**\
+`The 46th president defends his decision to run for re-election, which many in his party now regard as a mistake, and revisits the disastrous debate that forced him to end his campaign.`\
+https://www.nytimes.com/2026/11/13/us/politics/joe-biden-new-memoir-takeaways.html
+
 **A Nationwide Ground Stop**\
 `Also, Russia lays out its hard-line demands. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html
 **Pope Leo XIV Returns to ‘Homeland’ Peru as Part of South America Tour**\
 `Pope Leo XIV returned to Peru, the country the American-born pontiff called his second home, for the final leg of his 12-day tour of South America.`\
 https://www.nytimes.com/video/world/americas/100000011282248/pope-leo-xiv-peru-trip.html
-
-**Asian Americans Share Disappointment and Fear After Jensen Huang Scandal**\
-`Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
-https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
 

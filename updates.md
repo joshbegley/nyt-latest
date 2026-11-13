@@ -1,3 +1,23 @@
+**A Nationwide Ground Stop**\
+`Also, Russia lays out its hard-line demands. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
+
+**Democrats Vie for Support in Race for Top Senate Job**\
+`Senator Chris Van Hollen of Maryland said he wouldn’t run for president to focus on his leadership challenge to Senator Chuck Schumer, who remained confident he would prevail.`\
+https://www.nytimes.com/2026/11/13/us/politics/democrats-senate-leader.html
+
+**Surfers Scramble to Mavericks in California to Catch Building-Size Waves**\
+`Amid back-to-back storms hitting the coast, surfers could get a rare opportunity to catch big waves.`\
+https://www.nytimes.com/2026/11/13/weather/california-storm-mavericks-surfers.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they did not know its cause and that it would “take some time” to fix the issues grounding flights.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
+**Van Hollen Says He Will Challenge Schumer for Senate Majority Leader**\
+`Senator Chris Van Hollen of Maryland said he would challenge Senator Chuck Schumer of New York for majority leader. Mr. Schumer was adamant he had the votes to hold his leadership title.`\
+https://www.nytimes.com/video/us/politics/100000011282877/schumer-van-hollen-senate-majority-leader.html
+
 **Are You Being Nice to the Bots?**\
 `What’s the harm in being nice to a chatbot? With tech companies warning of potential future A.I. sentience, Spencer Klavan, an associate editor for the Claremont Review of Books, argues that treating chatbots like humans puts us on a slippery slope of redefining moral personhood. “We won’t really be elevating the moral status of A.I.,” he argues. All we’ll be doing is reducing living human beings “to the equivalent of a box of equations.”`\
 https://www.nytimes.com/video/opinion/100000011268114/are-you-being-nice-to-the-bots.html
