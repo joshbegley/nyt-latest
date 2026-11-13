@@ -1,3 +1,7 @@
+**Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
+`The outage began early Thursday afternoon, causing problems for offices, agencies and individuals around the globe.`\
+https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
+
 **NYT Crossword Answers for Nov. 13, 2026**\
 `Mike Graczyk makes his New York Times debut.`\
 https://www.nytimes.com/2026/11/12/crosswords/daily-puzzle-2026-11-13.html
