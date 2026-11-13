@@ -1,3 +1,7 @@
+**Oprah Winfrey’s Influence on Social Media**\
+`In 1986, Oprah Winfrey disclosed on-air that she was a victim of childhood sexual abuse. On “Interesting Times,” the author Catherine Liu argues that Oprah’s disclosure established a template for public confessions that informs the way politicians behave today.`\
+https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-on-social-media.html
+
 **Howard Lutnick Has Got to Go**\
 `The secretary of commerce is almost as responsible for Nvidia’s crisis as the fallen chief executive Jensen Huang.`\
 https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
@@ -102,8 +106,8 @@ https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
 `On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
 https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
 
-**Offset Is Tired of Being the Villain**\
-`Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
+**Offset Doesn’t Want to be the Villain Anymore: ‘I’m a Great Person’**\
+`Over the last few years, Offset has become as visible for his personal setbacks — including his divorce from Cardi B and getting shot outside a Florida casino — as he is for his musicmaking. On ‘Popcast’ he talks about getting “lost” and why he’s now back to being focused on music.`\
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 
 **All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/us/politics/trump-iran-strategy.html
 **Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
 `Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
 https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
-
-**Stephen Kovacevich, a Pianist of Quiet Intensity, Has Died**\
-`During his long career, he was hailed by critics for a tenderness matched with vigorous intelligence. He was 86.`\
-https://www.nytimes.com/2026/11/13/arts/music/stephen-kovacevich-dead.html
 

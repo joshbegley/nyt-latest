@@ -1,3 +1,11 @@
+**Oprah Winfrey’s Influence on Social Media**\
+`In 1986, Oprah Winfrey disclosed on-air that she was a victim of childhood sexual abuse. On “Interesting Times,” the author Catherine Liu argues that Oprah’s disclosure established a template for public confessions that informs the way politicians behave today.`\
+https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-on-social-media.html
+
+**Offset Doesn’t Want to be the Villain Anymore: ‘I’m a Great Person’**\
+`Over the last few years, Offset has become as visible for his personal setbacks — including his divorce from Cardi B and getting shot outside a Florida casino — as he is for his musicmaking. On ‘Popcast’ he talks about getting “lost” and why he’s now back to being focused on music.`\
+https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
+
 **Last Ground Stop, in 2023, Came After a Pilot Warning System Went Down**\
 `The outage that year lasted around 90 minutes.`\
 https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
