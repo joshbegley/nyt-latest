@@ -1,3 +1,11 @@
+**Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
+`The Treasury secretary blamed the department for not sanctioning Megaspeed and said that Nvidia employees should be held accountable if they sidestepped the law.`\
+https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
+
+**The Swingiest State Has Gone Very Red**\
+`A lot of Republicans have moved to Florida since Covid, and those newcomers really like the way Republicans are running it.`\
+https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
+
 **Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
 `Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
 https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html

@@ -1,3 +1,7 @@
+**Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
+`The Treasury secretary blamed the department for not sanctioning Megaspeed and said that Nvidia employees should be held accountable if they sidestepped the law.`\
+https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
+
 **Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
 `Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
 https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html
@@ -151,7 +155,7 @@ https://www.nytimes.com/2026/11/13/opinion/democrats-trump-congress.html
 https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
 
 **The Swingiest State Has Gone Very Red**\
-`A lot of Republicans have moved to the state since Covid, and those newcomers really like the way Republicans are running it.`\
+`A lot of Republicans have moved to Florida since Covid, and those newcomers really like the way Republicans are running it.`\
 https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
 
 **Democrats Eye Strict New Limits on White House Budget Powers**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/nyregion/the-click-of-falling-bricks-a-buildi
 **‘We Squandered an Opportunity’: The Christian Right on Its Election Rout**\
 `The midterm election results were a stinging setback for the movement, setting off a scramble among activists to regroup ahead of the 2028 presidential contest.`\
 https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
-
-**Which $1.3 Million Home in London Would You Choose?**\
-`For sale: A converted warehouse with a rooftop terrace, a historic waterfront penthouse and a cozy family home with a garden.`\
-https://www.nytimes.com/2026/11/13/realestate/which-1-3-million-home-in-london-would-you-choose.html
 

@@ -78,8 +78,8 @@ https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zio
 `Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
 
-**Looking Past Nvidia Turmoil, Stocks Set for Best Week in Months**\
-`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as artificial intelligence stocks have broadly risen.`\
+**Despite Nvidia’s Drop, Stocks Push Ahead**\
+`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as stocks have held their ground broadly.`\
 https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
 
 **Huang’s Downfall Could Shake the Economy, and Detainees Have Disappeared From an ICE Database**\
