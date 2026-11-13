@@ -1,3 +1,7 @@
+**After the Fall**\
+`We’re looking at the scandals at Nvidia.`\
+https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
+
 **‘The Headlines’ News Quiz: Nov. 13, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/13/podcasts/the-headlines/the-headlines-news-quiz-nov-13-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/movies/100000011244066/i-play-rocky-scene.html
 **A Finger Lakes Living Room Takes Inspiration From the Water**\
 `Lauren Sands, the founder of LES Collection, turned her former childhood lake house in New York into a sophisticated sanctuary`\
 https://www.nytimes.com/2026/11/13/realestate/a-finger-lakes-living-room-takes-inspiration-from-the-water.html
-
-**Study Hard, Get a Career and Get Ahead? It’s Not What It Used to Be.**\
-`From India to France, the implicit meritocratic bargain that underwrote stable societies by providing advancement to new generations is breaking down.`\
-https://www.nytimes.com/2026/11/13/world/europe/education-meritocracy.html
 

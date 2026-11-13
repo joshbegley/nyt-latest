@@ -1,3 +1,7 @@
+**After the Fall**\
+`We’re looking at the scandals at Nvidia.`\
+https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
+
 **‘The Headlines’ News Quiz: Nov. 13, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/13/podcasts/the-headlines/the-headlines-news-quiz-nov-13-2026.html
