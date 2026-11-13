@@ -1,3 +1,7 @@
+**Eurovision Song Contest Asia: What to Know**\
+`South Korea, the Philippines and nine other countries will compete in the Asian edition of Europe’s high-camp original song competition.`\
+https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.html
+
 **‘Heartland’ Review: A Lil’ Bit Country Noir**\
 `As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
 https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
 **Mexican Prosecutor Who Helped C.I.A. Secretly Operate in His State Flees to the U.S.**\
 `The prosecutor, who faces arrest in Mexico after allowing C.I.A. officers into Chihuahua state, is under the protection of the U.S. government, according to U.S. and Mexican officials.`\
 https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
-
-**Two Children and 6 Adults Among Deceased After Brooklyn Building Collapse**\
-`A Brooklyn apartment building collapsed into a construction site on Wednesday, killing at least 8 people.`\
-https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
 

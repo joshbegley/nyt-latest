@@ -1,3 +1,7 @@
+**Eurovision Song Contest Asia: What to Know**\
+`South Korea, the Philippines and nine other countries will compete in the Asian edition of Europe’s high-camp original song competition.`\
+https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.html
+
 **‘Heartland’ Review: A Lil’ Bit Country Noir**\
 `As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
 https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
