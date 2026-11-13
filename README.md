@@ -1,3 +1,7 @@
+**How the Deadly Brooklyn Building Collapse Unfolded**\
+`The sudden collapse of a Brooklyn building turned a busy neighborhood into a disaster zone and left families devastated.`\
+https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-flatbush.html
+
 **NYT Crossword Answers for Nov. 13, 2026**\
 `Mike Graczyk makes his New York Times debut.`\
 https://www.nytimes.com/2026/11/12/crosswords/daily-puzzle-2026-11-13.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/11/12/nyregion/kade-lewin-brooklyn-murder-indictmen
 https://www.nytimes.com/2026/11/12/technology/huang-ai-policy-washington.html
 
 **Security Camera Footage Captures Brooklyn Building Collapse**\
-`Video from a security camera shows the moment a building in Brooklyn collapsed on Wednesday.`\
+`Video from a security camera shows the moment an adjacent building in Brooklyn collapsed on Wednesday.`\
 https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
 
 **What Does 2026 Mean for the Map in 2028?**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/opinion/dementia-memory-alaska-wilderness-sou
 **Listen**\
 `In the Alaskan wilderness, a deeper truth awaits those who stop to listen.`\
 https://www.nytimes.com/video/opinion/100000011233698/listen.html
-
-**How Does Search, Rescue and Recovery Work for a Building Collapse?**\
-`The Fire Department’s efforts in Brooklyn are following a standard playbook that has been deployed countless times after similar disasters around the world.`\
-https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html
 
