@@ -1,3 +1,7 @@
+**How Wall Street Is Pitching Anthropic’s I.P.O.: ‘Too Crucial to Fail’**\
+`As market uncertainty deepens, investment banks are on a roadshow to sell investors on what could be the largest public offering ever.`\
+https://www.nytimes.com/2026/11/13/business/anthropic-ipo-roadshow.html
+
 **No Criminal Charges for Driver of Truck That Plowed Into Crowd in Kansas**\
 `A district attorney called the crash a tragedy but said that it did not meet the criteria for criminal prosecution.`\
 https://www.nytimes.com/2026/11/13/us/wichita-kansas-soccer-field-crash-charges.html
@@ -23,11 +27,11 @@ https://www.nytimes.com/video/nyregion/100000011282609/brooklyn-building-collaps
 https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escapes-house-arrest.html
 
 **Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
-`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people in New Orleans on Friday.`\
+`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people on Friday in New Orleans.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
-`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they said did not know its cause and that it would “take some time” to restart airport operations.`\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they said did not know its cause and that it would “take some time” to fix the issues grounding flights.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
 https://www.nytimes.com/2026/11/13/briefing/does-manifesting-actually-work.html
 
 **Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
-`They helped the G.O.P. avoid more House midterm losses — on top of the advantage they already have from gerrymandering.`\
+`The G.O.P. was able to avoid more House midterm losses — on top of the advantage it already had from gerrymandering.`\
 https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
 
 **African Miss Universe Contestants Struggle to Get U.S. Visas**\
@@ -54,8 +58,8 @@ https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-
 `Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 
-**Search and Rescue Underway in New Orleans After Cargo Ship Crashes Into Riverboat**\
-`Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
+**All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
+`Search and rescue operations were continuing after the riverboat, which had 129 people aboard, was struck by a tanker ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
 **Inquiry Into Brooklyn Building Collapse Expands as Families Demand Answers**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-
 **Jensen Huang’s Leather Jacket Isn’t Helping Him Right Now**\
 `The Nvidia founder’s signature look branded him as a maverick. Does that image read differently now?`\
 https://www.nytimes.com/2026/11/13/style/jensen-huang-nvidia-leather-jacket-ai.html
-
-**Young Cinephiles**\
-`We look at why Gen Z has been hitting the movie theater.`\
-https://www.nytimes.com/2026/11/13/briefing/young-cinephiles.html
 

@@ -1,3 +1,15 @@
+**No Criminal Charges for Driver of Truck That Plowed Into Crowd in Kansas**\
+`A district attorney called the crash a tragedy but said that it did not meet the criteria for criminal prosecution.`\
+https://www.nytimes.com/2026/11/13/us/wichita-kansas-soccer-field-crash-charges.html
+
+**The Numbers Behind Scott Colom’s Stunning Upset in the Mississippi Senate Race**\
+`To win a Senate seat in a highly polarized, deeply Republican state, Scott Colom needed a perfect storm. He got it.`\
+https://www.nytimes.com/2026/11/13/us/elections/scott-colom-senate-upset-history-mississippi.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they said did not know its cause and that it would “take some time” to restart airport operations.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
 `Markwayne Mullin, the secretary of homeland security, says Trump administration officials did not know its cause and said it would “take some time” to restart airport operations.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
