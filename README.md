@@ -1,3 +1,7 @@
+**No Criminal Charges for Driver of Truck That Plowed Into Crowd in Kansas**\
+`A district attorney called the crash a tragedy but said that it did not meet the criteria for criminal prosecution.`\
+https://www.nytimes.com/2026/11/13/us/wichita-kansas-soccer-field-crash-charges.html
+
 **The Numbers Behind Scott Colom’s Stunning Upset in the Mississippi Senate Race**\
 `To win a Senate seat in a highly polarized, deeply Republican state, Scott Colom needed a perfect storm. He got it.`\
 https://www.nytimes.com/2026/11/13/us/elections/scott-colom-senate-upset-history-mississippi.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/style/jensen-huang-nvidia-leather-jacket-ai.h
 **Young Cinephiles**\
 `We look at why Gen Z has been hitting the movie theater.`\
 https://www.nytimes.com/2026/11/13/briefing/young-cinephiles.html
-
-**Gavin Newsom Just Did Something Incredibly Important**\
-`Governor Newsom’s commutations should encourage others elected officials to be more active guardians of justice.`\
-https://www.nytimes.com/2026/11/13/opinion/sunday/gavin-newsom-clemency-california.html
 
