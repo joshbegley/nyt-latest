@@ -1,3 +1,23 @@
+**‘Get Focused on London’: How Iran’s Agents Attacked European Targets**\
+`A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
+https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
+
+**Meet the Navy Veteran Who Just Beat Lauren Boebert**\
+`Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
+https://www.nytimes.com/2026/11/13/us/elections/lauren-boebert-defeated-laubacher.html
+
+**Russia Revives Demand That NATO Retrench to Secure Ukraine Deal**\
+`The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
+https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
+
+**Katsu Naito on His Portraits of a ’90s Red-Light District in Downtown Manhattan**\
+`Katsu Naito looks back at his 1990s-era photographs of the women who worked in the Meatpacking District after hours.`\
+https://www.nytimes.com/2026/11/13/t-magazine/katsu-naito-1990s-new-york.html
+
+**Lauren Boebert Loses Re-election Bid in Colorado House Race to Eileen Laubacher**\
+`Ms. Boebert’s loss to Eileen Laubacher in a conservative House district represents a significant victory for Democrats.`\
+https://www.nytimes.com/2026/11/09/us/lauren-boebert-colorado-house-election.html
+
 **Mamdani Overhauls N.Y.P.D. Unit Criticized for Its Handling of Protests**\
 `The Strategic Response Group will be revamped, with its crowd-control and counterterrorism duties dispersed to other units, including a new Civilian Dialogue Unit.`\
 https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-protests.html
@@ -169,32 +189,4 @@ https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democra
 **Despite Nvidia’s Drop, Stocks Push Ahead**\
 `A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as stocks have held their ground broadly.`\
 https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
-
-**Huang’s Downfall Could Shake the Economy, and Detainees Have Disappeared From an ICE Database**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/11/13/podcasts/the-headlines/huang-stocks-economy-ice.html
-
-**N.F.L. Trade Deadline Winners and Losers**\
-`Plus, is Mauricio Pochettino leaving USMNT for Manchester United?`\
-https://www.nytimes.com/2026/11/13/podcasts/nfl-trade-deadline-winners-and-losers.html
-
-**Can Israel’s Opposition Unseat Netanyahu?**\
-`Gadi Eisenkot has the chance to form a new government and replace Prime Minister Benjamin Netanyahu. But the obstacles are formidable.`\
-https://www.nytimes.com/2026/11/13/podcasts/the-daily/israel-gadi-eisenkot-netanyahu-coalition.html
-
-**NYT Connections Answers for November 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
-https://www.nytimes.com/2026/11/13/crosswords/connections-companion-1252.html
-
-**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
-`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,500 votes.`\
-https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
-
-**Midterm Elections Live Updates: Democrats Clear 250 House Seats in Decisive Power Shift**\
-`The party’s growing tally approached the result in 2008, when Barack Obama captured the White House. Democrats also held leads in the uncalled Senate races in Mississippi and Alaska.`\
-https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
-
-**Democrats Seize Control of Congress as Voters Rebuke Trump**\
-`(No description)`\
-https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

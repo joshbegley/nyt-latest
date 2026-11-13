@@ -1,3 +1,23 @@
+**‘Get Focused on London’: How Iran’s Agents Attacked European Targets**\
+`A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
+https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
+
+**Meet the Navy Veteran Who Just Beat Lauren Boebert**\
+`Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
+https://www.nytimes.com/2026/11/13/us/elections/lauren-boebert-defeated-laubacher.html
+
+**Russia Revives Demand That NATO Retrench to Secure Ukraine Deal**\
+`The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
+https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
+
+**Katsu Naito on His Portraits of a ’90s Red-Light District in Downtown Manhattan**\
+`Katsu Naito looks back at his 1990s-era photographs of the women who worked in the Meatpacking District after hours.`\
+https://www.nytimes.com/2026/11/13/t-magazine/katsu-naito-1990s-new-york.html
+
+**Lauren Boebert Loses Re-election Bid in Colorado House Race to Eileen Laubacher**\
+`Ms. Boebert’s loss to Eileen Laubacher in a conservative House district represents a significant victory for Democrats.`\
+https://www.nytimes.com/2026/11/09/us/lauren-boebert-colorado-house-election.html
+
 **Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
 `Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,500 votes.`\
 https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
