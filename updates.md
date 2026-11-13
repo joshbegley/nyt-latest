@@ -1,3 +1,11 @@
+**15-Minute Lesson Plan: Accidental Art**\
+`What overlooked beauty can you find if you look?`\
+https://www.nytimes.com/2026/11/13/learning/15-minute-lesson-plan-accidental-art.html
+
+**The Upside of an American Pullback in the Middle East**\
+`A smaller footprint means lower costs and more responsibility from Gulf allies.`\
+https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
+
 **Eurovision Song Contest Asia: What to Know**\
 `South Korea, the Philippines and nine other countries will compete in the Asian edition of Europe’s high-camp original song competition.`\
 https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.html

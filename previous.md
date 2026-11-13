@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: Accidental Art**\
+`What overlooked beauty can you find if you look?`\
+https://www.nytimes.com/2026/11/13/learning/15-minute-lesson-plan-accidental-art.html
+
 **Eurovision Song Contest Asia: What to Know**\
 `South Korea, the Philippines and nine other countries will compete in the Asian edition of Europe’s high-camp original song competition.`\
 https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.html
@@ -6,13 +10,13 @@ https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.h
 `As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
 https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
 
-**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
-`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
-https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
-
 **Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
 `A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
+
+**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
+`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
 
 **Bloomberg Will Seed a New Pro-Charter School Group With $1 Million**\
 `Great Public Schools New York will enter the charter school battle in New York City with money from Michael R. Bloomberg and be led by a former adviser to Andrew M. Cuomo.`\
@@ -34,7 +38,7 @@ https://www.nytimes.com/video/world/europe/100000011281803/russia-ukraine-putin-
 `“This is the best news to come out of Mississippi since — this is the best news to come out of Mississippi!” Meyers said.`\
 https://www.nytimes.com/2026/11/13/arts/television/late-night-seth-meyers-scott-colom.html
 
-**America Will Have Less Influence in the Middle East. Is That So Bad?**\
+**The Upside of an American Pullback in the Middle East**\
 `A smaller footprint means lower costs and more responsibility from Gulf allies.`\
 https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
 **Thanksgiving Month**\
 `Why wait for the holiday to load up on turkey, pie and all the fixings?`\
 https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
-
-**Mexican Prosecutor Who Helped C.I.A. Secretly Operate in His State Flees to the U.S.**\
-`The prosecutor, who faces arrest in Mexico after allowing C.I.A. officers into Chihuahua state, is under the protection of the U.S. government, according to U.S. and Mexican officials.`\
-https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
 
