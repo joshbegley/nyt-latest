@@ -1,3 +1,11 @@
+**Microsoft’s Global Outage and Fixes: What We Know**\
+`The company described “encouraging” progress on efforts to overcome a second day of disruptions to its email, messaging and other services.`\
+https://www.nytimes.com/2026/11/13/technology/microsoft-outage-what-to-know.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a French thriller, a sensuous Spanish drama, an Argentine dark comedy and more.`\
+https://www.nytimes.com/2026/11/13/movies/international-movies-streaming.html
+
 **Flashback: Your Weekly History Quiz, Nov. 14, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/13/movies/movie-review-roundup.html
 **A Catio Can Just Be a Box. Here’s How to Build One.**\
 `Knowing how to construct a box is a useful skill for anyone, even those without cats.`\
 https://www.nytimes.com/2026/11/13/realestate/a-catio-can-just-be-a-box-heres-how-to-build-one.html
-
-**Even Scott Colom’s Backers Were Skeptical. Here’s How He Won in Mississippi.**\
-`Few were paying much attention to Mr. Colom for most of his Senate campaign. Then he toppled the Republican incumbent.`\
-https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-defied-odds.html
-
-**We Just Witnessed an Electoral Regicide**\
-`The midterms were a classic example of a restoration election in which voters rein in a dictatorial presidency and reset the constitutional order.`\
-https://www.nytimes.com/2026/11/13/opinion/midterms-election-government.html
 
