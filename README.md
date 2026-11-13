@@ -1,3 +1,7 @@
+**The U.S.-Israel Relationship Is Broken. Here’s How Eisenkot Could Fix It.**\
+`Former Israeli and U.S. ambassadors, lawmakers and analysts largely agree on steps Gadi Eisenkot could take if he becomes prime minister. But they are risky.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/the-us-israel-relationship-is-broken-heres-how-eisenkot-could-fix-it.html
+
 **15-Minute Lesson Plan: Accidental Art**\
 `What overlooked beauty can you find if you look?`\
 https://www.nytimes.com/2026/11/13/learning/15-minute-lesson-plan-accidental-art.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6
 **I Wrote Jensen Huang’s Biography. Here’s What Led to His Downfall.**\
 `How to understand the former Nvidia chief’s stunning departure.`\
 https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
-
-**Thanksgiving Month**\
-`Why wait for the holiday to load up on turkey, pie and all the fixings?`\
-https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
 
