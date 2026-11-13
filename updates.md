@@ -1,3 +1,7 @@
+**In French Election, Centrists Eye a Judo Star and a Central Banker**\
+`Some voters want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
+https://www.nytimes.com/2026/11/13/world/europe/france-riner-judo-lagarde-election.html
+
 **15-Minute Lesson Plan: Accidental Art**\
 `What overlooked beauty can you find if you look?`\
 https://www.nytimes.com/2026/11/13/learning/15-minute-lesson-plan-accidental-art.html

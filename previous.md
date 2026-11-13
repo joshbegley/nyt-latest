@@ -47,7 +47,7 @@ https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
 https://www.nytimes.com/2026/11/13/us/politics/stephen-miller-memo-wiles.html
 
 **In French Election, Centrists Eye a Judo Star and a Central Banker**\
-`Centrists want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
+`Some voters want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
 https://www.nytimes.com/2026/11/13/world/europe/france-riner-judo-lagarde-election.html
 
 **Quote of the Day: ‘What Are We to Do?’ African Farmers Fearful as El Niño Bears Down.**\
