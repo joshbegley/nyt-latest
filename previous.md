@@ -1,3 +1,167 @@
+**We Just Witnessed an Electoral Regicide**\
+`The midterms were a classic example of a restoration election in which voters rein in a dictatorial presidency and reset the constitutional order.`\
+https://www.nytimes.com/2026/11/13/opinion/midterms-election-government.html
+
+**Kids’ Movies to Stream Now**\
+`This month’s picks include the latest installments of beloved franchises and a live-action remake of a popular Disney animation.`\
+https://www.nytimes.com/2026/11/13/movies/kids-movies-streaming-now.html
+
+**One Man’s Quest to Create the Perfect Whiskey Glass**\
+`An Austrian designer is unveiling a version that aims to solve an age-old problem for connoisseurs: how to keep the alcohol from overpowering the aroma.`\
+https://www.nytimes.com/2026/11/13/dining/drinks/kurt-josef-zalto-whiskey-glass.html
+
+**Broadway Shows Closing Soon: ‘School Girls,’ ‘Two Strangers’ and More**\
+`The final curtain call is approaching for Jocelyn Bioh’s comedy, Bill Irwin’s take on Molière and a meet-cute musical. Plus, a few more titles to put on your holiday must-see list.`\
+https://www.nytimes.com/2026/11/13/arts/broadway-shows-closing-school-girls-two-strangers.html
+
+**The Click of Falling Bricks: A Building’s Shocking Collapse**\
+`It remains unclear why a building on Flatbush Avenue collapsed. Officials said there were no more victims in the rubble.`\
+https://www.nytimes.com/2026/11/13/nyregion/the-click-of-falling-bricks-a-buildings-shocking-collapse.html
+
+**The Christian Right Lost Big in the Elections. Where Does It Go Next?**\
+`The midterm election results were a stinging setback for the movement, setting off a scramble among activists to regroup ahead of the 2028 presidential contest.`\
+https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
+
+**Which $1.3 Million Home in London Would You Choose?**\
+`For sale: A converted warehouse with a rooftop terrace, a historic waterfront penthouse and a cozy family home with a garden.`\
+https://www.nytimes.com/2026/11/13/realestate/which-1-3-million-home-in-london-would-you-choose.html
+
+**Burgers, Boycotts and the Ad That Divided an Ohio Community**\
+`When a popular restaurant agreed to serve as a campaign stop for G.O.P. candidates ahead of Election Day, longtime customers turned against it and Medina, Ohio, was left reeling.`\
+https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
+
+**Offset Is Tired of Being Rap’s Bad Guy: ‘I Got Lost’**\
+`His superstar groupmate was killed. His marriage imploded. Then, Offset got shot. He’s back to own it all.`\
+https://www.nytimes.com/2026/11/13/arts/music/popcast-interview-offset.html
+
+**Can You Guess When This Photo Was Taken?**\
+`We’ve selected five pictures from the millions in our archives. See if you can figure out when they’re from.`\
+https://www.nytimes.com/interactive/2026/11/13/arts/photo-quiz-game-175.html
+
+**Rex Reed’s Longtime Dakota Apartment Is on the Market**\
+`The asking price for the two-bedroom co-op, which the film critic bought nearly six decades ago, is $5.99 million.`\
+https://www.nytimes.com/2026/11/13/realestate/rex-reed-dakota-apartment-market.html
+
+**How ‘The Art of the Deal’ Became an (Unauthorized) Absurdist Musical**\
+`Undeterred by unanswered rights requests, a theater collective turned President Trump’s 1987 best seller into a sold-out stage hit — with dancing gold bars and a giant banana.`\
+https://www.nytimes.com/2026/11/13/theater/art-of-the-deal-musical-die-kunst-des-deals.html
+
+**In the Documentary ‘Avedon,’ a Portraitist’s Work Speaks for Itself**\
+`This illuminating documentary about the photographer Richard Avedon shows how much of his personality was infused into his art.`\
+https://www.nytimes.com/2026/11/13/movies/richard-avedon-documentary-netflix.html
+
+**Why Aid Isn’t Reaching Ebola’s Epicenter**\
+`The Ebola outbreak in the eastern Democratic Republic of the Congo has a new epicenter, one largely isolated from aid by an armed group that has killed and kidnapped aid workers. Declan Walsh, our chief Africa correspondent, reports from a town where health workers are struggling to contain the outbreak.`\
+https://www.nytimes.com/video/world/africa/100000011257751/why-aid-isnt-reaching-ebolas-epicenter.html
+
+**The 2026 New York Times/New York Public Library Best Illustrated Children’s Books**\
+`Take a peek at this year’s winners.`\
+https://www.nytimes.com/2026/11/13/books/review/nyt-nypl-best-illustrated-childrens-books-award.html
+
+**After Xi Purges China’s Generals, a Military Inquisitor Rises**\
+`The rise of Zhang Shengmin suggests that China’s top brass remains embroiled in investigations, potentially complicating preparations for war over Taiwan.`\
+https://www.nytimes.com/2026/11/13/world/asia/china-military-purge-zhang-shengmin-taiwan.html
+
+**‘The Visitors’ Review: A Sister’s Call for Help? Let the Squabbles Begin.**\
+`In Bryna Turner’s new play, a woman in need of a kidney transplant asks her siblings to make a sacrifice, and prove their love.`\
+https://www.nytimes.com/2026/11/13/theater/the-visitors-review-mary-wiseman.html
+
+**Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
+`The new epicenter of Congo’s fast-spreading outbreak is a region scarred by rebel violence. Responders are struggling to help it.`\
+https://www.nytimes.com/2026/11/13/world/africa/ebola-congo-isis.html
+
+**5 Muscles to Strengthen as You Age**\
+`We all know we need to strength train to move well and feel strong. But which exercises are the most important?`\
+https://www.nytimes.com/2026/11/13/well/move/important-muscles-longevity-advice.html
+
+**How Peter Farrelly Captured a New Side of ‘Rocky’**\
+`The director of “I Play Rocky” narrates a scene that takes place on the set of “Rocky,” during a breakthrough moment for Sylvester Stallone.`\
+https://www.nytimes.com/2026/11/13/movies/i-play-rocky-clip.html
+
+**How Peter Farrelly Captured a New Side of ‘Rocky’**\
+`Peter Farrelly, the director of “I Play Rocky,” narrates a scene depicting a breakthrough moment for Sylvester Stallone during the making of the 1976 film “Rocky.”`\
+https://www.nytimes.com/video/movies/100000011244066/i-play-rocky-scene.html
+
+**A Finger Lakes Living Room Takes Inspiration From the Water**\
+`Lauren Sands, the founder of LES Collection, turned her former childhood lake house in New York into a sophisticated sanctuary`\
+https://www.nytimes.com/2026/11/13/realestate/a-finger-lakes-living-room-takes-inspiration-from-the-water.html
+
+**Study Hard, Get a Career and Get Ahead? It’s Not What It Used to Be.**\
+`From India to France, the implicit meritocratic bargain that underwrote stable societies by providing advancement to new generations is breaking down.`\
+https://www.nytimes.com/2026/11/13/world/europe/education-meritocracy.html
+
+**In the Wilds of the Yukon, a Novelist Faces Herself**\
+`Trekking through the territory on her birthday, Maggie Shipstead reconsiders her relationship to aging and risk.`\
+https://www.nytimes.com/2026/11/13/t-magazine/canada-yukon-hiking-women.html
+
+**Berluti Gives ‘The Little Prince’ a New Adaptation**\
+`Plus: furniture that channels a designer’s inner child, moonstone-and-tanzanite earrings and more recommendations from T Magazine.`\
+https://www.nytimes.com/2026/11/13/t-magazine/le-petit-prince-berluti.html
+
+**I Can’t Believe It’s Not Leather**\
+`A rose gold-and-diamond Hermès necklace that nods to the house’s equestrian history.`\
+https://www.nytimes.com/2026/11/13/t-magazine/hermes-necklace-horse-whip.html
+
+**The Virtues of Traveling on Foot**\
+`Three writers discover that the most ancient and intimate way to experience a place is by walking through it.`\
+https://www.nytimes.com/2026/11/13/t-magazine/walking-travel.html
+
+**Moody, Chilling New Thrillers**\
+`Our columnist on three excellent new books.`\
+https://www.nytimes.com/2026/11/13/books/review/new-thriller-books.html
+
+**These Male Dolphins Do Something Rare: Day Care**\
+`Male Franciscana dolphins are exceptional babysitters. Scientists are trying to figure out if they are thoughtful fathers or just hope to be.`\
+https://www.nytimes.com/2026/11/13/science/babysitting-daycare-franciscana-dolphins-toninha-laplata.html
+
+**Book Review: ‘The Key Biscayne Affair,’ by Xita Rubert**\
+`The narrator of “The Key Biscayne Affair,” by the Spanish novelist Xita Rubert, is still traumatized by what happened to her decades ago, on her father’s watch.`\
+https://www.nytimes.com/2026/11/13/books/review/xita-rubert-the-key-biscayne-affair.html
+
+**Flesh Alert: The Performance Duo FlucT Still Has Skin in the Game**\
+`After a five-year break, FlucT, the choreographic team of Sigrid Lauren and Monica Mirabile, takes up residence at the OCDChintatown’s new downtown space.`\
+https://www.nytimes.com/2026/11/13/arts/dance/fluct-tough-on-the-tongue-performance-installation-ocdchinatown.html
+
+**Word of the Day: ferocious**\
+`This word has appeared in 210 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/13/learning/word-of-the-day-ferocious.html
+
+**Embracing the Darkness: 5 European Festivals of Light**\
+`From Turin to Helsinki, glowing installations light up the late fall and winter skies.`\
+https://www.nytimes.com/2026/11/13/travel/europe-light-festivals.html
+
+**Julia Garner Would Rather Be Someone Else**\
+`The actor is known for disappearing into difficult roles. Her latest transformation is in “The Altruists,” a series about the jailed crypto founder Sam Bankman-Fried.`\
+https://www.nytimes.com/2026/11/13/arts/television/julia-garner-the-altruists-netflix-sam-bankman-fried.html
+
+**MEXICO CITY**\
+`Mexico has cooperated to significantly slow the flow of migrants. The new White House chief of staff insists it is not enough.`\
+https://www.nytimes.com/2026/11/13/world/americas/stephen-miller-mexico-immigration.html
+
+**The Latest Ploy: Bringing Data Centers to Your Actual Backyard**\
+`An energy company believes they can tap into homeowners to deliver compute without the acrimony.`\
+https://www.nytimes.com/2026/11/13/realestate/at-home-data-centers-span.html
+
+**The Boss, the Bribe and the Newspaper That Couldn’t Be Bought**\
+`Boss Tweed used New York as a personal piggy bank. The Times brought him down, ushering in a new era of muckraking journalism.`\
+https://www.nytimes.com/2026/11/13/nyregion/boss-tweed-new-york-times-nyc-history.html
+
+**Can Music Build Empathy? Silkroad’s Mission Is to Prove It Can**\
+`The sprawling global musical collective founded by Yo-Yo Ma, now led by Rhiannon Giddens, is 25 years old. Its mission, the artists say, is more urgent than ever.`\
+https://www.nytimes.com/2026/11/13/arts/music/can-music-build-empathy-silkroads-mission-is-to-prove-it-can.html
+
+**The New York Times News Quiz, November 13, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://www.nytimes.com/quiz/2026/11/12/briefing/weekly-news-quiz.html
+
+**Is It OK to Blab to Strangers on a Hike?**\
+`A ruling on a trail-etiquette dispute.`\
+https://www.nytimes.com/quiz/2026/11/13/magazine/hiking-trail-conversations-hodgman-quiz.html
+
+**Hasan Piker Wants to Win**\
+`The socialist Twitch streamer describes himself as “pragmatic” when it comes to how Democrats wield power.`\
+https://www.nytimes.com/video/opinion/100000011278284/hasan-piker-wants-to-win.html
+
 **The U.S.-Israel Relationship Is Broken. Here’s How Eisenkot Could Fix It.**\
 `Former Israeli and U.S. ambassadors, lawmakers and analysts largely agree on steps Gadi Eisenkot could take if he becomes prime minister. But they are risky.`\
 https://www.nytimes.com/2026/11/13/world/middleeast/the-us-israel-relationship-is-broken-heres-how-eisenkot-could-fix-it.html
@@ -33,164 +197,4 @@ https://www.nytimes.com/2026/11/13/nyregion/vintage-mta-bus-restoration.html
 **NYT Spelling Bee Answers for November 13, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/13/crosswords/spelling-bee-forum.html
-
-**U.S. Envoys Urge Moscow to Include Europe in Peace Talks**\
-`President Trump’s envoys, Steve Witkoff and Jared Kushner, asked President Vladimir V. Putin of Russia to bring Europe into talks on the war in Ukraine.`\
-https://www.nytimes.com/video/world/europe/100000011281803/russia-ukraine-putin-trump-europe.html
-
-**Seth Meyers Is Excited by Scott Colom’s Historic Win in Mississippi**\
-`“This is the best news to come out of Mississippi since — this is the best news to come out of Mississippi!” Meyers said.`\
-https://www.nytimes.com/2026/11/13/arts/television/late-night-seth-meyers-scott-colom.html
-
-**The Upside of an American Pullback in the Middle East**\
-`A smaller footprint means lower costs and more responsibility from Gulf allies.`\
-https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
-
-**After Influence Peddling Claims, White House Restricts Lobbyist Meetings**\
-`The office of Stephen Miller, President Trump’s new chief of staff, outlined a new policy that seeks to show independence from special interests.`\
-https://www.nytimes.com/2026/11/13/us/politics/stephen-miller-memo-wiles.html
-
-**In French Election, Centrists Eye a Judo Star and a Central Banker**\
-`Some voters want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
-https://www.nytimes.com/2026/11/13/world/europe/france-riner-judo-lagarde-election.html
-
-**Quote of the Day: ‘What Are We to Do?’ African Farmers Fearful as El Niño Bears Down.**\
-`Quotation of the Day for Friday, November 13, 2026.`\
-https://www.nytimes.com/2026/11/13/pageoneplus/quote-of-the-day-what-are-we-to-do-african-farmers-fearful-as-el-nino-bears-down.html
-
-**The Man I Could Not Get Over**\
-`Some desire is so powerful you may feel it only once.`\
-https://www.nytimes.com/2026/11/13/style/modern-love-the-man-i-could-not-get-over.html
-
-**She Has Breast Cancer. He Lost His Job. Then, Poof, a Dream Wedding.**\
-`After facing a series of difficult challenges, Elena Volkova and Peter Napolitano received a much-needed bright spot: a wedding brought together in just two weeks.`\
-https://www.nytimes.com/2026/11/13/style/elena-volkova-peter-napolitano-wedding.html
-
-**After a 12-Year Intermission, They Met at the Altar**\
-`Eli Wasserman and Jeffrey Eisner share a love of Jewish food and theater — but after reuniting in 2025, an old love letter and a borrowed hoodie gave them a second act.`\
-https://www.nytimes.com/2026/11/13/style/jeffrey-eisner-eli-wasserman-wedding.html
-
-**A Discreet Relationship and a Surprising Discovery**\
-`Rosie Kaur and Mandeep Singh wanted to be engaged before meeting each other’s families. But an unexpected loss created a different timeline.`\
-https://www.nytimes.com/2026/11/13/style/rosie-kaur-mandeep-singh-wedding.html
-
-**They Met in Silence and Haven’t Stopped Talking Since**\
-`Yvonne Sung and Daniel Bess captured each other’s attention at a silent meditation retreat and felt instant excitement (and calm) in one another’s presence.`\
-https://www.nytimes.com/2026/11/13/style/yvonne-sung-daniel-bess-wedding.html
-
-**From the Front Page: The Supreme Court Upholds a Ruling Against Bus Segregation in Montgomery, Ala., on Nov. 13, 1956**\
-`The justices upheld a ruling that racial segregation on Montgomery public buses was unconstitutional, helping end the city’s yearlong bus boycott.`\
-https://www.nytimes.com/2026/11/13/learning/from-the-front-page-the-supreme-court-upholds-a-ruling-against-bus-segregation-in-montgomery-ala-on-nov-13-1956.html
-
-**How the Deadly Brooklyn Building Collapse Unfolded**\
-`The sudden collapse of a Brooklyn building turned a busy neighborhood into a disaster zone and left families devastated.`\
-https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-flatbush.html
-
-**NYT Crossword Answers for Nov. 13, 2026**\
-`Mike Graczyk makes his New York Times debut.`\
-https://www.nytimes.com/2026/11/12/crosswords/daily-puzzle-2026-11-13.html
-
-**Chris Van Hollen Set to Challenge Chuck Schumer for Senate Majority Leader**\
-`Senator Chris Van Hollen of Maryland has emerged as a favorite of Democrats seeking an alternative to Senator Chuck Schumer, who says he has the votes to win.`\
-https://www.nytimes.com/2026/11/12/us/politics/van-hollen-schumer-democrats-majority-leader.html
-
-**Humpback Whale Appears in the Hudson, Delighting Boaters and New Yorkers**\
-`The whale was spotted swimming, feeding and breaching in the Hudson River on Thursday.`\
-https://www.nytimes.com/2026/11/12/nyregion/humpback-whale-hudson-river-nyc.html
-
-**Inside The Times’s Phone Call With Jensen Huang**\
-`On the “Hard Fork” podcast, the journalist Ryan Mac spoke about the approach that he and his colleague Tripp Mickle took to reporting on the Nvidia C.E.O. Jensen Huang. When Mickle called Huang directly, they were surprised to find that he answered.`\
-https://www.nytimes.com/video/podcasts/100000011281737/inside-the-timess-phone-call-with-jensen-huang.html
-
-**Huang and Lutnick Summoned to Testify Before Congress**\
-`Senator Tim Scott said he had requested that the Nvidia co-founder and the commerce secretary appear before the Senate Banking Committee.`\
-https://www.nytimes.com/2026/11/12/business/jensen-huang-howard-lutnick-testify-capitol-hill.html
-
-**Jensen Huang Was ‘Almost Like a Cult Leader’**\
-`After Nvidia announced that the chief executive Jensen Huang would resign, the tech journalist Stephen Witt spoke on the “Hard Fork” podcast about the hostile environment Huang created at the company.`\
-https://www.nytimes.com/video/podcasts/100000011281669/jensen-huang-was-almost-like-a-cult-leader.html
-
-**Howard Lutnick Took Softer Line on Nvidia as Calls for Tougher Controls Grew**\
-`Critics say Howard Lutnick, the commerce secretary, and his department have shielded Nvidia as concerns have grown over A.I. chip sales to firms like Megaspeed.`\
-https://www.nytimes.com/2026/11/12/us/politics/lutnick-nvidia-commerce-china-chips.html
-
-**Offset Is Tired of Being Rap’s Villain**\
-`Watch the full Popcast conversation with Offset here. Edited excerpts from the interview are below.`\
-https://www.nytimes.com/video/podcasts/100000011273005/offset-is-tired-of-being-raps-villain.html
-
-**Irma P. Hall, ‘Soul Food’ and ‘The Ladykillers’ Actress, Dies at 91**\
-`In her 60s when she had her breakout role in “A Family Thing,” she brought a motherly touch to the screen opposite such stars as Tom Hanks and Vivica A. Fox.`\
-https://www.nytimes.com/2026/11/12/arts/irma-p-hall-actress-dead.html
-
-**Trump Had Urged Nvidia’s Jensen Huang to Fight for His Job**\
-`The president called the Nvidia chief on Tuesday, continuing a pattern of supporting him even as the spy scandal was intensifying.`\
-https://www.nytimes.com/2026/11/12/us/politics/trump-jensen-huang-nvidia.html
-
-**Years Later, 3 Are Indicted in Murder of 12-Year-Old Boy**\
-`The killing of Kade Lewin in East Flatbush, Brooklyn, in 2022 was unsolved. But prosecutors said members of a gang had fired the shots, mistaking the child for someone else.`\
-https://www.nytimes.com/2026/11/12/nyregion/kade-lewin-brooklyn-murder-indictments.html
-
-**With Jensen Huang Gone, the A.I. Industry Loses Its Most Powerful Backer in Washington**\
-`Nvidia’s chief executive, a confidant of President Trump, successfully pushed for less regulation and open borders for chip sales.`\
-https://www.nytimes.com/2026/11/12/technology/huang-ai-policy-washington.html
-
-**Security Camera Footage Captures Brooklyn Building Collapse**\
-`Video from a security camera shows the moment an adjacent building in Brooklyn collapsed on Wednesday.`\
-https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
-
-**What Does 2026 Mean for the Map in 2028?**\
-`Mississippi and other states have created new uncertainty about what, exactly, a red state is.`\
-https://www.nytimes.com/2026/11/12/us/politics/midterm-elections-2028-presidential-map.html
-
-**Historic Headlines Quiz**\
-`Can you figure out the missing word from these front-page headlines?`\
-https://www.nytimes.com/quiz/2026/11/12/learning/historic-headlines-quiz.html
-
-**Jensen Huang Is Out at Nvidia**\
-`In a shocking turn of events, Nvidia’s co-founder resigns amid multiple scandals.`\
-https://www.nytimes.com/2026/11/12/podcasts/hardfork-jensen-huang-resigns.html
-
-**Jensen Huang Is Out at Nvidia**\
-`Times reporters Ana Swanson and Ryan Mac and biographer Stephen Witt explain Jensen Huang’s exit from Nvidia and what it means for the company and the A.I. boom.`\
-https://www.nytimes.com/video/podcasts/100000011279780/jensen-huang-is-out-at-nvidia.html
-
-**Rescue Ends in Brooklyn After 8 Die in Building Collapse**\
-`The Fire Department said the search for victims on Flatbush Avenue was over, while city investigators began looking into an excavation occurring next door.`\
-https://www.nytimes.com/2026/11/12/us/brooklyn-building-collapse-deaths.html
-
-**Paul Barril, French ‘Supergendarme’ Turned Mercenary, Has Died**\
-`After years in elite police units, he drew scrutiny from human rights groups for selling arms and providing other services to unsavory governments. He was 80.`\
-https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
-
-**Holscher Wins Kansas Governor Race, Retaining Seat for Democrats**\
-`State Senator Cindy Holscher won the race. Though Kansas is reliably Republican in presidential elections, its voters often break for Democrats in midterms.`\
-https://www.nytimes.com/2026/11/12/us/kansas-governor-democrat-holscher-wins.html
-
-**Who Could Replace Jensen Huang as Nvidia’s CEO? Here Are 7 Candidates.**\
-`President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
-https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
-
-**Republican Setbacks Swell in the South With Stinging Loss in Mississippi**\
-`The Democrat Scott Colom’s stunning Senate upset punctuated a dismal midterm showing for the G.O.P. in a region they had dominated for years.`\
-https://www.nytimes.com/2026/11/12/us/politics/republican-defeats-south-mississippi-midterms.html
-
-**California Could Face 50-Foot Waves as Storms Slam Its Coast**\
-`Back-to-back systems over the next few days will deliver the season’s first widespread rain. Here’s what to know about the forecast.`\
-https://www.nytimes.com/2026/11/12/weather/california-storm-west-coast-rain.html
-
-**An A.I. Titan Resigns**\
-`Also, a Brooklyn building collapse kills eight, including two children. Here’s the latest at the end of Thursday.`\
-https://www.nytimes.com/2026/11/12/briefing/nvidia-ceo-resigns-brooklyn-collapse.html
-
-**Nvidia Scandal Unleashes a Flood of AI-Generated Memes**\
-`The revelations surrounding Jensen Huang, who resigned from Nvidia over extramarital affairs, inspired social media posts using the very technology his company helped develop.`\
-https://www.nytimes.com/2026/11/12/world/asia/nvidia-ceo-huang-ai-memes.html
-
-**Teen Found After Missing for 6 Days in Australian Forest**\
-`A 17-year-old with autism disappeared last Friday during a camping trip. He was found alive on Thursday by a police helicopter near Walhalla, Australia.`\
-https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6-days-found-alive.html
-
-**I Wrote Jensen Huang’s Biography. Here’s What Led to His Downfall.**\
-`How to understand the former Nvidia chief’s stunning departure.`\
-https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
 
