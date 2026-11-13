@@ -1,3 +1,7 @@
+**Mullin Says Nationwide Ground Stop Is a Telecommunication Outage**\
+`The homeland security secretary said he did not know what caused the outage.`\
+https://www.nytimes.com/2026/11/13/us/markwayne-mullin-faa-ground-stop.html
+
 **SpaceX Calls Off Attempt to Catch Rocket Booster**\
 `The Starship booster splashed down in the Gulf of Mexico soon after the launch.`\
 https://www.nytimes.com/video/science/space/100000011284097/spacex-calls-off-attempt-to-catch-rocket-booster.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-netanyahu-racism-ar
 **What Should the New Congress Do?**\
 `A second sampling of responses to an Opinion article about ideas for the new Congress. Also: President Trump’s threat.`\
 https://www.nytimes.com/2026/11/13/opinion/democrats-congress-ideas.html
-
-**Trump Signals New Strategy on Iran: A Waiting Game**\
-`The administration appears to be moving toward a long-term economic pressure campaign as President Trump expresses little urgency in securing a nuclear agreement.`\
-https://www.nytimes.com/2026/11/13/us/politics/trump-iran-strategy.html
 
