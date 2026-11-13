@@ -1,10 +1,14 @@
+**Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
+`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people in New Orleans on Friday.`\
+https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
 `A prolonged outage left many without email and other services, the most recent reminder that the world’s technological underpinnings rely on just a few companies.`\
 https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
-
-**F.A.A. Declares a Rare Nationwide Ground Stop**\
-`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
-https://www.nytimes.com/2026/11/13/world/americas/nationwide-ground-stop-flights-faa.html
 
 **Does Manifesting Actually Work?**\
 `Influencers said a cosmic portal opened at 11:11 on 11/11 — that it was a moment to successfully send wishes into the universe. We look at the science behind that.`\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
 **Why Anthropic’s Dario Amodei Has Angered OpenAI and Other A.I. Peers**\
 `Dario Amodei, the company’s chief executive, publicly frets about the dangers of artificial intelligence and has made enemies of his peers along the way.`\
 https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.html
-
-**SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
-`The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
-https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
 

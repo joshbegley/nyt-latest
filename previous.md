@@ -1,4 +1,8 @@
-**F.A.A. Declares Nationwide Ground Stop**\
+**Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
+`A prolonged outage left many without email and other services, the most recent reminder that the world’s technological underpinnings rely on just a few companies.`\
+https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
+
+**F.A.A. Declares a Rare Nationwide Ground Stop**\
 `The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
 https://www.nytimes.com/2026/11/13/world/americas/nationwide-ground-stop-flights-faa.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.h
 **SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
 `The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
 https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
-
-**Deed Theft Is Rising, Along With Property Values**\
-`The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
-https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
 
