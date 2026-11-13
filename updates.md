@@ -1,3 +1,7 @@
+**‘Heartland’ Review: A Lil’ Bit Country Noir**\
+`As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
+https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
+
 **Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
 `A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
