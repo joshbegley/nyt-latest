@@ -1,3 +1,15 @@
+**Use Humor to Defuse Awkward Moments**\
+`If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
+https://www.nytimes.com/2026/11/13/well/laugh-humor-self-acceptance.html
+
+**The Fall of Jensen Huang: How the Nvidia Scandal Unfolded**\
+`Tracing the undoing of one of the most influential figures in the A.I. boom.`\
+https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.html
+
+**‘We Squandered an Opportunity’: The Christian Right on Its Election Rout**\
+`The midterm election results were a stinging setback for the movement, setting off a scramble among activists to regroup ahead of the 2028 presidential contest.`\
+https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
+
 **Deed Theft Is Rising, Along With Property Values**\
 `The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
 https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
