@@ -72,7 +72,7 @@ https://www.nytimes.com/2026/11/13/podcasts/nba-jontay-porter-gambling.html
 
 **Use Humor to Defuse Awkward Moments**\
 `If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
-https://www.nytimes.com/2026/11/13/well/nl-awkward-humor-self-deprecating.html
+https://www.nytimes.com/2026/11/13/well/laugh-humor-self-acceptance.html
 
 **Don’t Expect Woke Hollywood to Come Roaring Back**\
 `Is Trump’s nonstop assault on media and culture over?`\
@@ -87,7 +87,7 @@ https://www.nytimes.com/2026/11/13/learning/what-are-your-superstitions.html
 https://www.nytimes.com/2026/11/13/podcasts/choosing-a-guest-bed-people-will-actually-want-to-sleep-on.html
 
 **The Fall of Jensen Huang: How the Nvidia Scandal Unfolded**\
-`Tracing the downfall of one of the most influential figures in the A.I. boom.`\
+`Tracing the undoing of one of the most influential figures in the A.I. boom.`\
 https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.html
 
 **Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/11/13/arts/broadway-shows-closing-school-girls-two-
 `It remains unclear why a building on Flatbush Avenue collapsed. Officials said there were no more victims in the rubble.`\
 https://www.nytimes.com/2026/11/13/nyregion/the-click-of-falling-bricks-a-buildings-shocking-collapse.html
 
-**The Christian Right Lost Big in the Elections. Where Does It Go Next?**\
+**‘We Squandered an Opportunity’: The Christian Right on Its Election Rout**\
 `The midterm election results were a stinging setback for the movement, setting off a scramble among activists to regroup ahead of the 2028 presidential contest.`\
 https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
 
