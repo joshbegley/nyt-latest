@@ -1,3 +1,11 @@
+**Europe Haggles Over Who Will Represent It in Talks With Russia**\
+`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. Deciding who should speak for the continent is its own negotiation.`\
+https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
+
+**Inside the N.B.A. Gambling Scandal**\
+`Pablo investigates Jontay Porter, and the mob, with The New Yorker.`\
+https://www.nytimes.com/2026/11/13/podcasts/nba-jontay-porter-gambling.html
+
 **Use Humor to Defuse Awkward Moments**\
 `If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
 https://www.nytimes.com/2026/11/13/well/nl-awkward-humor-self-deprecating.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/13/learning/word-of-the-day-ferocious.html
 **Embracing the Darkness: 5 European Festivals of Light**\
 `From Turin to Helsinki, glowing installations light up the late fall and winter skies.`\
 https://www.nytimes.com/2026/11/13/travel/europe-light-festivals.html
-
-**Julia Garner Would Rather Be Someone Else**\
-`The actor is known for disappearing into difficult roles. Her latest transformation is in “The Altruists,” a series about the jailed crypto founder Sam Bankman-Fried.`\
-https://www.nytimes.com/2026/11/13/arts/television/julia-garner-the-altruists-netflix-sam-bankman-fried.html
-
-**MEXICO CITY**\
-`Mexico has cooperated to significantly slow the flow of migrants. The new White House chief of staff insists it is not enough.`\
-https://www.nytimes.com/2026/11/13/world/americas/stephen-miller-mexico-immigration.html
 
