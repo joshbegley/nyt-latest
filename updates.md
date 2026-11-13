@@ -1,3 +1,7 @@
+**Burgers, Boycotts and the Ad That Divided an Ohio Community**\
+`When a popular restaurant hosted Vivek Ramaswamy after he ran a controversial attack ad in the governor’s race, customers turned against it and Medina, Ohio, was left reeling.`\
+https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
+
 **Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
 `The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html

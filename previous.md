@@ -147,7 +147,7 @@ https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
 https://www.nytimes.com/2026/11/13/realestate/which-1-3-million-home-in-london-would-you-choose.html
 
 **Burgers, Boycotts and the Ad That Divided an Ohio Community**\
-`When a popular restaurant agreed to serve as a campaign stop for G.O.P. candidates ahead of Election Day, longtime customers turned against it and Medina, Ohio, was left reeling.`\
+`When a popular restaurant hosted Vivek Ramaswamy after he ran a controversial attack ad in the governor’s race, customers turned against it and Medina, Ohio, was left reeling.`\
 https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
 
 **Offset Is Tired of Being Rap’s Bad Guy: ‘I Got Lost’**\
