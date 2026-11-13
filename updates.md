@@ -1,3 +1,7 @@
+**A Restaurant Hosted Ramaswamy After His Attack Ad. It’s Paying a Price.**\
+`When a popular restaurant agreed to serve as a campaign stop for G.O.P. candidates ahead of Election Day, longtime customers turned against it and Medina, Ohio, was left reeling.`\
+https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
+
 **The Swingiest State Has Gone Very Red**\
 `A lot of Republicans have moved to the state since Covid, and those newcomers really like the way Republicans are running it.`\
 https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html

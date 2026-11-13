@@ -1,3 +1,7 @@
+**A Scorecard for Huang’s Exit From Nvidia**\
+`The ouster of Jensen Huang from the chipmaker he helped found is reverberating throughout Silicon Valley, Washington and beyond.`\
+https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercussions.html
+
 **Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
 `The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/world/africa/ebola-congo-isis.html
 **5 Muscles to Strengthen as You Age**\
 `We all know we need to strength train to move well and feel strong. But which exercises are the most important?`\
 https://www.nytimes.com/2026/11/13/well/move/important-muscles-longevity-advice.html
-
-**How Peter Farrelly Captured a New Side of ‘Rocky’**\
-`The director of “I Play Rocky” narrates a scene that takes place on the set of “Rocky,” during a breakthrough moment for Sylvester Stallone.`\
-https://www.nytimes.com/2026/11/13/movies/i-play-rocky-clip.html
 
