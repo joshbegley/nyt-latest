@@ -1,3 +1,15 @@
+**Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
+`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people in New Orleans on Friday.`\
+https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
+**Search and Rescue Underway in New Orleans After Cargo Ship Crashes Into Riverboat**\
+`Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
 `A prolonged outage left many without email and other services, the most recent reminder that the world’s technological underpinnings rely on just a few companies.`\
 https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
