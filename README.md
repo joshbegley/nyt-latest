@@ -10,13 +10,13 @@ https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.h
 `As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
 https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
 
-**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
-`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
-https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
-
 **Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
 `A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
+
+**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
+`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
 
 **Bloomberg Will Seed a New Pro-Charter School Group With $1 Million**\
 `Great Public Schools New York will enter the charter school battle in New York City with money from Michael R. Bloomberg and be led by a former adviser to Andrew M. Cuomo.`\
