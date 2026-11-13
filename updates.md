@@ -1,3 +1,7 @@
+**Offset Is Tired of Being Rap’s Villain**\
+`Watch the full Popcast conversation with Offset here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011273005/offset-is-tired-of-being-raps-villain.html
+
 **Irma P. Hall, ‘Soul Food’ and ‘The Ladykillers’ Actress, Dies at 91**\
 `In her 60s when she had her breakout role in “A Family Thing,” she brought a motherly touch to the screen opposite such stars as Tom Hanks and Vivica A. Fox.`\
 https://www.nytimes.com/2026/11/12/arts/irma-p-hall-actress-dead.html
