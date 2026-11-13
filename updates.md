@@ -1,3 +1,11 @@
+**Irma P. Hall, ‘Soul Food’ and ‘The Ladykillers’ Actress, Dies at 91**\
+`In her 60s when she had her breakout role in “A Family Thing,” she brought a motherly touch to the screen opposite such stars as Tom Hanks and Vivica A. Fox.`\
+https://www.nytimes.com/2026/11/12/arts/irma-p-hall-actress-dead.html
+
+**Trump Had Urged Nvidia’s Jensen Huang to Fight for His Job**\
+`The president called the Nvidia chief on Tuesday, continuing a pattern of supporting him even as the spy scandal was intensifying.`\
+https://www.nytimes.com/2026/11/12/us/politics/trump-jensen-huang-nvidia.html
+
 **Years Later, 3 Are Indicted in Murder of 12-Year-Old Boy**\
 `The killing of Kade Lewin in East Flatbush, Brooklyn, in 2022 was unsolved. But prosecutors said members of a gang had fired the shots, mistaking the child for someone else.`\
 https://www.nytimes.com/2026/11/12/nyregion/kade-lewin-brooklyn-murder-indictments.html
