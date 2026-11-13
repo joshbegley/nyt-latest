@@ -1,3 +1,15 @@
+**A Nationwide Ground Stop**\
+`Also, Russia lays out its hard-line demands. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
+
+**Democrats Vie for Support in Race for Top Senate Job**\
+`Senator Chris Van Hollen of Maryland said he wouldn’t run for president to focus on his leadership challenge to Senator Chuck Schumer, who remained confident he would prevail.`\
+https://www.nytimes.com/2026/11/13/us/politics/democrats-senate-leader.html
+
+**Surfers Scramble to Mavericks in California to Catch Building-Size Waves**\
+`Amid back-to-back storms hitting the coast, surfers could get a rare opportunity to catch big waves.`\
+https://www.nytimes.com/2026/11/13/weather/california-storm-mavericks-surfers.html
+
 **Are You Being Nice to the Bots?**\
 `What’s the harm in being nice to a chatbot? With tech companies warning of potential future A.I. sentience, Spencer Klavan, an associate editor for the Claremont Review of Books, argues that treating chatbots like humans puts us on a slippery slope of redefining moral personhood. “We won’t really be elevating the moral status of A.I.,” he argues. All we’ll be doing is reducing living human beings “to the equivalent of a box of equations.”`\
 https://www.nytimes.com/video/opinion/100000011268114/are-you-being-nice-to-the-bots.html
@@ -35,7 +47,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
-`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they said did not know its cause and that it would “take some time” to fix the issues grounding flights.`\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they did not know its cause and that it would “take some time” to fix the issues grounding flights.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
@@ -107,7 +119,7 @@ https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
 https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
 
 **Van Hollen Says He Will Challenge Schumer for Senate Majority Leader**\
-`Senator Chris Van Hollen, Democrat of Maryland, said he would challenge Senator Chuck Schumer for majority leader. Mr. Schumer said he welcomes discussions over the party’s future but he was adamant he has the votes to hold his leadership title.`\
+`Senator Chris Van Hollen of Maryland said he would challenge Senator Chuck Schumer of New York for majority leader. Mr. Schumer was adamant he had the votes to hold his leadership title.`\
 https://www.nytimes.com/video/us/politics/100000011282877/schumer-van-hollen-senate-majority-leader.html
 
 **The Local: Thanksgiving harvest and earthen art**\
@@ -173,20 +185,4 @@ https://www.nytimes.com/video/world/americas/100000011282248/pope-leo-xiv-peru-t
 **Asian Americans Share Disappointment and Fear After Jensen Huang Scandal**\
 `Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
 https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
-
-**Wall Street Loses a Powerful Dealmaker After Nvidia’s CEO Is Ousted**\
-`The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
-https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
-
-**‘Russell Brand: Open Secret’ on Netflix: 7 Takeaways**\
-`The documentary, released Friday, includes on-camera interviews with former partners. It was released just hours after a British news outlet reported further accusations against Brand.`\
-https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html
-
-**Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
-`The Treasury secretary blamed the department for not sanctioning the Singaporean firm and said that Nvidia employees should be held accountable if they sidestepped the law.`\
-https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
-
-**Jensen Huang’s Resignation From Nvidia Worries the A.I. Start-Up World**\
-`Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
-https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html
 
