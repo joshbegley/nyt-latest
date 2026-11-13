@@ -1,3 +1,11 @@
+**Sister June Carpenter, the Oldest Shaker, Has Died**\
+`Now there are only two practicing members of the last active Shaker community in the United States. Sister June was 88.`\
+https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
+
+**Looking Past Nvidia Turmoil, Stocks Set for Best Week in Months**\
+`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as artificial intelligence stocks have broadly risen.`\
+https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
+
 **Fewer Fed Meetings Raise Stakes of Warsh’s Communications**\
 `The Federal Reserve will vote on interest rates less frequently beginning next year as part of a plan by the central bank’s chairman, Kevin M. Warsh, to overhaul how it operates.`\
 https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html

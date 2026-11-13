@@ -1,3 +1,7 @@
+**Sister June Carpenter, the Oldest Shaker, Has Died**\
+`Now there are only two practicing members of the last active Shaker community in the United States. Sister June was 88.`\
+https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
+
 **Fewer Fed Meetings Raise Stakes of Warsh’s Communications**\
 `The Federal Reserve will vote on interest rates less frequently beginning next year as part of a plan by the central bank’s chairman, Kevin M. Warsh, to overhaul how it operates.`\
 https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zio
 `Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
 
-**Looking Past Nvidia Turmoil, Stocks Log Best Week in Months**\
+**Looking Past Nvidia Turmoil, Stocks Set for Best Week in Months**\
 `A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as artificial intelligence stocks have broadly risen.`\
 https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/realestate/rex-reed-dakota-apartment-market.h
 **How ‘The Art of the Deal’ Became an (Unauthorized) Absurdist Musical**\
 `Undeterred by unanswered rights requests, a theater collective turned President Trump’s 1987 best seller into a sold-out stage hit — with dancing gold bars and a giant banana.`\
 https://www.nytimes.com/2026/11/13/theater/art-of-the-deal-musical-die-kunst-des-deals.html
-
-**In the Documentary ‘Avedon,’ a Portraitist’s Work Speaks for Itself**\
-`This illuminating documentary about the photographer Richard Avedon shows how much of his personality was infused into his art.`\
-https://www.nytimes.com/2026/11/13/movies/richard-avedon-documentary-netflix.html
 
