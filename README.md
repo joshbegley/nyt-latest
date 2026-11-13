@@ -88,7 +88,7 @@ https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.ht
 
 **Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
 `Throughout the years, tech giants have had mixed records after losing visionary founders who propelled their success. Successors with tech expertise helps.`\
-https://www.nytimes.com/2026/11/13/technology/nvidia-lost-its-founding-ceo-can-it-keep-its-momentum.html
+https://www.nytimes.com/2026/11/13/technology/nvidia-ceo-jen-huang-loss.html
 
 **Jensen Huang’s Fall Is Bad for Nvidia but Good for America**\
 `Jensen Huang was a big reason Nvidia preserved the ability to sell chips to China. His departure from the company might change that.`\
