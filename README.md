@@ -1,5 +1,5 @@
-**Ship Crashes Into Docked Riverboat in New Orleans Port**\
-`The river boat appeared to have capsized and taken on water after being struck by a ship. The river boat was set to begin an eight-day excursion starting on Friday.`\
+**Cargo Ship Crashes Into Docked Riverboat in New Orleans**\
+`Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
 **N.Y.C. Officials Expand Collapse Inquiry as Families Demand Answers**\
@@ -14,9 +14,9 @@ https://www.nytimes.com/2026/11/13/us/politics/supreme-court-trump-asylum-border
 `A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
 https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
 
-**Meet the Navy Veteran Who Just Beat Lauren Boebert**\
+**Meet Eileen Laubacher, the Navy Veteran Who Beat Lauren Boebert**\
 `Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
-https://www.nytimes.com/2026/11/13/us/elections/lauren-boebert-defeated-laubacher.html
+https://www.nytimes.com/2026/11/13/us/elections/eileen-laubacher-defeated-lauren-boebert.html
 
 **Russia Revives Demand That NATO Retrench to Secure Ukraine Deal**\
 `The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
