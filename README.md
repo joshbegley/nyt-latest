@@ -130,8 +130,8 @@ https://www.nytimes.com/2026/11/13/movies/movie-review-roundup.html
 `Knowing how to construct a box is a useful skill for anyone, even those without cats.`\
 https://www.nytimes.com/2026/11/13/realestate/a-catio-can-just-be-a-box-heres-how-to-build-one.html
 
-**‘I Had to Have Faith’: How a Democrat Defied Long Odds in Mississippi’s Senate Race**\
-`Few were paying much attention to Scott Colom for most of his campaign. Then he toppled the Republican incumbent.`\
+**Even Scott Colom’s Backers Were Skeptical. Here’s How He Won in Mississippi.**\
+`Few were paying much attention to Mr. Colom for most of his Senate campaign. Then he toppled the Republican incumbent.`\
 https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-defied-odds.html
 
 **We Just Witnessed an Electoral Regicide**\
