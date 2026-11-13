@@ -1,3 +1,7 @@
+**Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
+`Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
+https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
+
 **Stephen Kovacevich, a Pianist of Quiet Intensity, Has Died**\
 `During his long career, he was hailed by critics for a tenderness matched with vigorous intelligence. He was 86.`\
 https://www.nytimes.com/2026/11/13/arts/music/stephen-kovacevich-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/opinion/democrats-trump-congress.html
 **‘The Body’ Talks Like ‘Mean Girls’ and Walks Like ‘The Crucible’**\
 `Quinn Shephard’s new Netflix drama uses millennial nostalgia to eerie ends.`\
 https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
-
-**The Swingiest State Has Gone Very Red**\
-`A lot of Republicans have moved to Florida since Covid, and those newcomers really like the way Republicans are running it.`\
-https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
 

@@ -1,3 +1,7 @@
+**Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
+`Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
+https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
+
 **Stephen Kovacevich, a Pianist of Quiet Intensity, Has Died**\
 `During his long career, he was hailed by critics for a tenderness matched with vigorous intelligence. He was 86.`\
 https://www.nytimes.com/2026/11/13/arts/music/stephen-kovacevich-dead.html
