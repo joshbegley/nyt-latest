@@ -1,3 +1,11 @@
+**Huang and Lutnick Summoned to Testify Before Congress**\
+`Senator Tim Scott said he had requested that the Nvidia co-founder and the commerce secretary appear before the Senate Banking Committee.`\
+https://www.nytimes.com/2026/11/12/business/jensen-huang-howard-lutnick-testify-capitol-hill.html
+
+**Jensen Huang Was ‘Almost Like a Cult Leader’**\
+`After Nvidia announced that the chief executive Jensen Huang would resign, the tech journalist Stephen Witt spoke on the “Hard Fork” podcast about the hostile environment Huang created at the company.`\
+https://www.nytimes.com/video/podcasts/100000011281669/jensen-huang-was-almost-like-a-cult-leader.html
+
 **Lutnick Took a Softer Line on Nvidia as Calls for Tougher Controls Grew**\
 `Critics say Howard Lutnick, the commerce secretary, and his department have shielded Nvidia as concerns have grown over A.I. chip sales to firms like Megaspeed.`\
 https://www.nytimes.com/2026/11/12/us/politics/lutnick-nvidia-commerce-china-chips.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html
 **House Passes Competing Veterans Bills in a Fight Over Funding**\
 `Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
 https://www.nytimes.com/2026/11/12/us/politics/house-veterans-benefits-bill-funding.html
-
-**Fed Will Not Hold Policy Vote at October 2027 Meeting**\
-`The shift to a strategy meeting next October is just the first step in a broader plan by Kevin M. Warsh, the chairman of the Federal Reserve, to change how the central bank operates.`\
-https://www.nytimes.com/2026/11/12/business/economy/fed-warsh-october.html
-
-**What Students Are Saying About Law Enforcement in Schools**\
-`Teenagers weigh in on whether police officers make schools feel safer and how much of a role they should have in disciplining students.`\
-https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-enforcement-in-schools.html
 
