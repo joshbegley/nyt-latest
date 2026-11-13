@@ -1,3 +1,7 @@
+**SpaceX Calls Off Attempt to Catch Rocket Booster**\
+`The Starship booster splashed down in the Gulf of Mexico soon after the launch.`\
+https://www.nytimes.com/video/science/space/100000011284097/spacex-calls-off-attempt-to-catch-rocket-booster.html
+
 **Oprah Winfrey’s Influence on Social Media**\
 `In 1986, Oprah Winfrey disclosed on-air that she was a victim of childhood sexual abuse. On “Interesting Times,” the author Catherine Liu argues that Oprah’s disclosure established a template for public confessions that informs the way politicians behave today.`\
 https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-on-social-media.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/opinion/democrats-congress-ideas.html
 **Trump Signals New Strategy on Iran: A Waiting Game**\
 `The administration appears to be moving toward a long-term economic pressure campaign as President Trump expresses little urgency in securing a nuclear agreement.`\
 https://www.nytimes.com/2026/11/13/us/politics/trump-iran-strategy.html
-
-**Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
-`Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
-https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
 
