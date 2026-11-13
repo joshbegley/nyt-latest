@@ -1,3 +1,11 @@
+**Wall Street Braces for Anthropic’s Spending**\
+`The company’s financial picture may get murky as it deals with employee stock compensation and the growing costs of artificial intelligence.`\
+https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
+
+**Why Anthropic’s Dario Amodei Has Angered OpenAI and Other A.I. Peers**\
+`Dario Amodei, the company’s chief executive, publicly frets about the dangers of artificial intelligence and has made enemies of his peers along the way.`\
+https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.html
+
 **Even Scott Colom’s Backers Were Skeptical. Here’s How He Won in Mississippi.**\
 `Few were paying much attention to Mr. Colom for most of his Senate campaign. Then he toppled the Republican incumbent.`\
 https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-defied-odds.html
