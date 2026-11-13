@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
 https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
 
 **Offset Doesn’t Want to be the Villain Anymore: ‘I’m a Great Person’**\
-`Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
+`Over the last few years, Offset has become as visible for his personal setbacks — including his divorce from Cardi B and getting shot outside a Florida casino — as he is for his musicmaking. On ‘Popcast’ he talks about getting “lost” and why he’s now back to being focused on music.`\
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 
 **All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
