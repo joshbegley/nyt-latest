@@ -1,3 +1,11 @@
+**F.A.A. Declares Nationwide Ground Stop**\
+`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
+https://www.nytimes.com/2026/11/13/world/americas/nationwide-ground-stop-flights-faa.html
+
+**Does Manifesting Actually Work?**\
+`Influencers said a cosmic portal opened at 11:11 on 11/11 — that it was a moment to successfully send wishes into the universe. We look at the science behind that.`\
+https://www.nytimes.com/2026/11/13/briefing/does-manifesting-actually-work.html
+
 **Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
 `They helped the G.O.P. avoid more House midterm losses — on top of the advantage they already have from gerrymandering.`\
 https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
