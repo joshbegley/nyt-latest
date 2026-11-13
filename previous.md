@@ -1,3 +1,11 @@
+**Richard Glossip, Ex-Oklahoma Death Row Prisoner, Pleads to Lesser Charge**\
+`By pleading guilty to accessory to murder after the fact, Richard Glossip will avoid a retrial of the first-degree murder charge.`\
+https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
+
+**Van Hollen Says He Will Challenge Schumer for Senate Majority Leader**\
+`Senator Chris Van Hollen, Democrat of Maryland, said he would challenge Senator Chuck Schumer for majority leader. Mr. Schumer said he welcomes discussions over the party’s future but he was adamant he has the votes to hold his leadership title.`\
+https://www.nytimes.com/video/us/politics/100000011282877/schumer-van-hollen-senate-majority-leader.html
+
 **The Local: Thanksgiving harvest and earthen art**\
 `Plus, Allianz Field’s sculptural menagerie expands.`\
 https://www.nytimes.com/2026/11/13/briefing/thanksgiving-harvest-earthen-art.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
 **Inside the N.B.A. Gambling Scandal**\
 `Pablo investigates Jontay Porter, and the mob, with The New Yorker.`\
 https://www.nytimes.com/2026/11/13/podcasts/nba-jontay-porter-gambling.html
-
-**Use Humor to Defuse Awkward Moments**\
-`If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
-https://www.nytimes.com/2026/11/13/well/laugh-humor-self-acceptance.html
-
-**Don’t Expect Woke Hollywood to Come Roaring Back**\
-`Is Trump’s nonstop assault on media and culture over?`\
-https://www.nytimes.com/2026/11/13/opinion/midterms-hollywood-paramount-trump.html
 

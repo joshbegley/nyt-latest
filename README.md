@@ -1,3 +1,11 @@
+**Mamdani Overhauls N.Y.P.D. Unit Criticized for Its Handling of Protests**\
+`The Strategic Response Group will be revamped, with its crowd-control and counterterrorism duties dispersed to other units, including a new Civilian Dialogue Unit.`\
+https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-protests.html
+
+**Personal Style Can’t Be Hacked**\
+`Wearing the same thing all the time doesn’t make you stylish.`\
+https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
+
 **Richard Glossip, Ex-Oklahoma Death Row Prisoner, Pleads to Lesser Charge**\
 `By pleading guilty to accessory to murder after the fact, Richard Glossip will avoid a retrial of the first-degree murder charge.`\
 https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/13/crosswords/strands-sidekick-986.html
 **Today’s Wordle HInts for November 14, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
 https://www.nytimes.com/2026/11/13/crosswords/wordle-review-1974.html
-
-**Europe Agrees on a Team to Represent It in Talks With Russia**\
-`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. The continent wants to fill it with a six-member team.`\
-https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
-
-**Inside the N.B.A. Gambling Scandal**\
-`Pablo investigates Jontay Porter, and the mob, with The New Yorker.`\
-https://www.nytimes.com/2026/11/13/podcasts/nba-jontay-porter-gambling.html
 
