@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Nov. 13, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/11/13/podcasts/the-headlines/the-headlines-news-quiz-nov-13-2026.html
+
 **Hasan Piker on Liberal Zionism**\
 `On “The Ezra Klein Show,” the political commentator Hasan Piker discusses his views on liberal Zionism with Ezra Klein.`\
 https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zionism.html
