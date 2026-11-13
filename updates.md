@@ -1,3 +1,7 @@
+**Despite Nvidia’s Drop, Stocks Push Ahead**\
+`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as stocks have held their ground broadly.`\
+https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
+
 **Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
 `The Treasury secretary blamed the department for not sanctioning Megaspeed and said that Nvidia employees should be held accountable if they sidestepped the law.`\
 https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
