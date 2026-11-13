@@ -162,8 +162,8 @@ https://www.nytimes.com/2026/11/13/crosswords/strands-sidekick-986.html
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
 https://www.nytimes.com/2026/11/13/crosswords/wordle-review-1974.html
 
-**Europe Haggles Over Who Will Represent It in Talks With Russia**\
-`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. Deciding who should speak for the continent is its own negotiation.`\
+**Europe Agrees on a Team to Represent It in Talks With Russia**\
+`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. The continent wants to fill it with a six-member team.`\
 https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
 
 **Inside the N.B.A. Gambling Scandal**\
