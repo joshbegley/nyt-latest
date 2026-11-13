@@ -1,3 +1,11 @@
+**Years Later, 3 Are Indicted in Murder of 12-Year-Old Boy**\
+`The killing of Kade Lewin in East Flatbush, Brooklyn, in 2022 was unsolved. But prosecutors said members of a gang had fired the shots, mistaking the child for someone else.`\
+https://www.nytimes.com/2026/11/12/nyregion/kade-lewin-brooklyn-murder-indictments.html
+
+**With Jensen Huang Gone, the A.I. Industry Loses Its Most Powerful Backer in Washington**\
+`Nvidia’s chief executive, a confidant of President Trump, successfully pushed for less regulation and open borders for chip sales.`\
+https://www.nytimes.com/2026/11/12/technology/huang-ai-policy-washington.html
+
 **Security Camera Footage Captures Brooklyn Building Collapse**\
 `Video from a security camera shows the moment a building in Brooklyn collapsed on Wednesday.`\
 https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-pregnant-
 **Joanna Kotze’s New Work: A Dance Doomed to Repeat**\
 `Joanna Kotze’s “this is the beginning, this is the end” is a high-strung evocation of cyclical turmoil.`\
 https://www.nytimes.com/2026/11/12/arts/dance/joanna-kotze-new-york-live-arts-this-is-the-beginning-this-is-the-end.html
-
-**Kennedy’s Future: Will Democrats Try to Impeach Him, or Actually Work With Him?**\
-`Most Democrats abhor the health secretary’s stance on vaccines, but some see an opportunity to win voters from his MAHA movement by joining with him on food and environmental issues.`\
-https://www.nytimes.com/2026/11/12/us/politics/rfk-jr-democrats-impeach.html
-
-**What Do You Want to Know About New York Times Journalism and A.I.?**\
-`New York Times journalists want to answer your questions about how we’re using artificial intelligence in our report.`\
-https://www.nytimes.com/2026/11/12/insider/nyt-journalism-ai.html
 

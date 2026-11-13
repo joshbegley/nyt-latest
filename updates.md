@@ -1,3 +1,11 @@
+**Years Later, 3 Are Indicted in Murder of 12-Year-Old Boy**\
+`The killing of Kade Lewin in East Flatbush, Brooklyn, in 2022 was unsolved. But prosecutors said members of a gang had fired the shots, mistaking the child for someone else.`\
+https://www.nytimes.com/2026/11/12/nyregion/kade-lewin-brooklyn-murder-indictments.html
+
+**With Jensen Huang Gone, the A.I. Industry Loses Its Most Powerful Backer in Washington**\
+`Nvidia’s chief executive, a confidant of President Trump, successfully pushed for less regulation and open borders for chip sales.`\
+https://www.nytimes.com/2026/11/12/technology/huang-ai-policy-washington.html
+
 **Security Camera Footage Captures Brooklyn Building Collapse**\
 `Video from a security camera shows the moment a building in Brooklyn collapsed on Wednesday.`\
 https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
