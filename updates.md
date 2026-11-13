@@ -1,3 +1,15 @@
+**Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
+`Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-accuses-netanyahu-of-inciting-hatred-against-arabs.html
+
+**What Should the New Congress Do?**\
+`A second sampling of responses to an Opinion article about ideas for the new Congress. Also: President Trump’s threat.`\
+https://www.nytimes.com/2026/11/13/opinion/democrats-congress-ideas.html
+
+**Trump Signals New Strategy on Iran: A Waiting Game**\
+`The administration appears to be moving toward a long-term economic pressure campaign as President Trump expresses little urgency in securing a nuclear agreement.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-iran-strategy.html
+
 **Wall Street Loses a Powerful Dealmaker After Nvidia’s CEO Is Ousted**\
 `The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
