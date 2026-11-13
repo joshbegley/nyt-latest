@@ -1,3 +1,7 @@
+**Wall Street Loses a Powerful Dealmaker After Nvidia’s CEO Is Ousted**\
+`The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
+https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
+
 **Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
 `Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
 https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
