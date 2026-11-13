@@ -1,3 +1,27 @@
+**Huang’s Downfall Could Shake the Economy, and Detainees Have Disappeared From an ICE Database**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/11/13/podcasts/the-headlines/huang-stocks-economy-ice.html
+
+**N.F.L. Trade Deadline Winners and Losers**\
+`Plus, is Mauricio Pochettino leaving USMNT for Manchester United?`\
+https://www.nytimes.com/2026/11/13/podcasts/nfl-trade-deadline-winners-and-losers.html
+
+**Can Israel’s Opposition Unseat Netanyahu?**\
+`Gadi Eisenkot has the chance to form a new government and replace Prime Minister Benjamin Netanyahu. But the obstacles are formidable.`\
+https://www.nytimes.com/2026/11/13/podcasts/the-daily/israel-gadi-eisenkot-netanyahu-coalition.html
+
+**NYT Connections Answers for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/connections-companion-1252.html
+
+**NYT Strands Hints for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/strands-sidekick-986.html
+
+**Today’s Wordle HInts for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/wordle-review-1974.html
+
 **Europe Haggles Over Who Will Represent It in Talks With Russia**\
 `After coveting a seat in the Ukraine war discussions, Europe is poised to get one. Deciding who should speak for the continent is its own negotiation.`\
 https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html

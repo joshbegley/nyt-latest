@@ -1,3 +1,27 @@
+**Huang’s Downfall Could Shake the Economy, and Detainees Have Disappeared From an ICE Database**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/11/13/podcasts/the-headlines/huang-stocks-economy-ice.html
+
+**N.F.L. Trade Deadline Winners and Losers**\
+`Plus, is Mauricio Pochettino leaving USMNT for Manchester United?`\
+https://www.nytimes.com/2026/11/13/podcasts/nfl-trade-deadline-winners-and-losers.html
+
+**Can Israel’s Opposition Unseat Netanyahu?**\
+`Gadi Eisenkot has the chance to form a new government and replace Prime Minister Benjamin Netanyahu. But the obstacles are formidable.`\
+https://www.nytimes.com/2026/11/13/podcasts/the-daily/israel-gadi-eisenkot-netanyahu-coalition.html
+
+**NYT Connections Answers for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/connections-companion-1252.html
+
+**NYT Strands Hints for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/strands-sidekick-986.html
+
+**Today’s Wordle HInts for November 14, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/13/crosswords/wordle-review-1974.html
+
 **Europe Haggles Over Who Will Represent It in Talks With Russia**\
 `After coveting a seat in the Ukraine war discussions, Europe is poised to get one. Deciding who should speak for the continent is its own negotiation.`\
 https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/13/t-magazine/hermes-necklace-horse-whip.html
 **The Virtues of Traveling on Foot**\
 `Three writers discover that the most ancient and intimate way to experience a place is by walking through it.`\
 https://www.nytimes.com/2026/11/13/t-magazine/walking-travel.html
-
-**Moody, Chilling New Thrillers**\
-`Our columnist on three excellent new books.`\
-https://www.nytimes.com/2026/11/13/books/review/new-thriller-books.html
-
-**These Male Dolphins Do Something Rare: Day Care**\
-`Male Franciscana dolphins are exceptional babysitters. Scientists are trying to figure out if they are thoughtful fathers or just hope to be.`\
-https://www.nytimes.com/2026/11/13/science/babysitting-daycare-franciscana-dolphins-toninha-laplata.html
-
-**Book Review: ‘The Key Biscayne Affair,’ by Xita Rubert**\
-`The narrator of “The Key Biscayne Affair,” by the Spanish novelist Xita Rubert, is still traumatized by what happened to her decades ago, on her father’s watch.`\
-https://www.nytimes.com/2026/11/13/books/review/xita-rubert-the-key-biscayne-affair.html
-
-**Flesh Alert: The Performance Duo FlucT Still Has Skin in the Game**\
-`After a five-year break, FlucT, the choreographic team of Sigrid Lauren and Monica Mirabile, takes up residence at the OCDChintatown’s new downtown space.`\
-https://www.nytimes.com/2026/11/13/arts/dance/fluct-tough-on-the-tongue-performance-installation-ocdchinatown.html
-
-**Word of the Day: ferocious**\
-`This word has appeared in 210 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/13/learning/word-of-the-day-ferocious.html
-
-**Embracing the Darkness: 5 European Festivals of Light**\
-`From Turin to Helsinki, glowing installations light up the late fall and winter skies.`\
-https://www.nytimes.com/2026/11/13/travel/europe-light-festivals.html
 
