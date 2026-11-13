@@ -1,3 +1,19 @@
+**African Miss Universe Contestants Struggle to Get U.S. Visas**\
+`A crackdown on entry by some citizens of African countries by the U.S. immigration officials means that some contestants might not get visas in time to attend the pageant in Puerto Rico this month.`\
+https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
+
+**Offset on Getting Shot: ‘I Broke My Mama’s Heart’**\
+`On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
+https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
+
+**Offset Is Tired of Being the Villain**\
+`Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
+https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
+
+**Inquiry Into Brooklyn Building Collapse Expands as Families Demand Answers**\
+`The Department of Buildings has also hired an engineering firm to provide an independent report on what caused the three-story building to collapse, killing eight people.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-inquiry-families.html
+
 **Cargo Ship Crashes Into Docked Riverboat in New Orleans**\
 `Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
