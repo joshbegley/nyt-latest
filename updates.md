@@ -1,3 +1,7 @@
+**Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
+`The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
+https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
+
 **‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
 `With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
 https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
