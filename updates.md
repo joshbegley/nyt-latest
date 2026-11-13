@@ -1,3 +1,7 @@
+**Last Ground Stop, in 2023, Came After a Pilot Warning System Went Down**\
+`The outage that year lasted around 90 minutes.`\
+https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
+
 **Howard Lutnick Has Got to Go**\
 `The secretary of commerce is almost as responsible for Nvidia’s crisis as the fallen chief executive Jensen Huang.`\
 https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
