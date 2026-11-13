@@ -1,3 +1,7 @@
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials did not know its cause and said it would “take some time” to restart airport operations.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Chiclayo, Pope Leo’s Other Home, Comes Out In Force to Welcome Father Robert**\
 `Leo XIV returned to the city in Peru where he served as bishop for eight years, drawing large crowds who remembered him before he was pope.`\
 https://www.nytimes.com/2026/11/13/world/europe/pope-leo-xiv-peru-chiclayo.html
