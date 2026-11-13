@@ -1,3 +1,7 @@
+**How Does a 74-Year-Old in Argentina Escape House Arrest on the Fifth Floor?**\
+`The answer involves a heating pad, a bomb scare and animal fats. Police are still searching for an Italian man facing extradition on terrorism charges from the 1970s.`\
+https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escapes-house-arrest.html
+
 **Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
 `Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people in New Orleans on Friday.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html
 **Wall Street Braces for Anthropic’s Spending**\
 `The company’s financial picture may get murky as it deals with employee stock compensation and the growing costs of artificial intelligence.`\
 https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
-
-**Why Anthropic’s Dario Amodei Has Angered OpenAI and Other A.I. Peers**\
-`Dario Amodei, the company’s chief executive, publicly frets about the dangers of artificial intelligence and has made enemies of his peers along the way.`\
-https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.html
 
