@@ -1,3 +1,7 @@
+**Humpback Whale Appears in the Hudson, Delighting Boaters and New Yorkers**\
+`The whale was spotted swimming, feeding and breaching in the Hudson River on Thursday.`\
+https://www.nytimes.com/2026/11/12/nyregion/humpback-whale-hudson-river-nyc.html
+
 **Inside The Times’s Phone Call With Jensen Huang**\
 `On the “Hard Fork” podcast, the journalist Ryan Mac spoke about the approach that he and his colleague Tripp Mickle took to reporting on the Nvidia C.E.O. Jensen Huang. When Mickle called Huang directly, they were surprised to find that he answered.`\
 https://www.nytimes.com/video/podcasts/100000011281737/inside-the-timess-phone-call-with-jensen-huang.html
