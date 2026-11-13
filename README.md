@@ -1,4 +1,4 @@
-**Jensen Huang and Howard Lutnick Summoned to Testify on Capitol Hill in Push for Nvidia Inquiry**\
+**Huang and Lutnick Summoned to Testify Before Congress**\
 `Senator Tim Scott said he had requested that the Nvidia co-founder and the commerce secretary appear before the Senate Banking Committee.`\
 https://www.nytimes.com/2026/11/12/business/jensen-huang-howard-lutnick-testify-capitol-hill.html
 
