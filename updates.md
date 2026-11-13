@@ -1,3 +1,63 @@
+**Use Humor to Defuse Awkward Moments**\
+`If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
+https://www.nytimes.com/2026/11/13/well/nl-awkward-humor-self-deprecating.html
+
+**Don’t Expect Woke Hollywood to Come Roaring Back**\
+`Is Trump’s nonstop assault on media and culture over?`\
+https://www.nytimes.com/2026/11/13/opinion/midterms-hollywood-paramount-trump.html
+
+**What Are Your Superstitions?**\
+`Do you believe in luck? What small habits and rituals do you follow to bring on the good fortune or ward off the bad in your life?`\
+https://www.nytimes.com/2026/11/13/learning/what-are-your-superstitions.html
+
+**Choosing a Guest Bed People Will Actually Want to Sleep On**\
+`Our experts share their favorites.`\
+https://www.nytimes.com/2026/11/13/podcasts/choosing-a-guest-bed-people-will-actually-want-to-sleep-on.html
+
+**The Fall of Jensen Huang: How the Nvidia Scandal Unfolded**\
+`Tracing the downfall of one of the most influential figures in the A.I. boom.`\
+https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.html
+
+**Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
+`Throughout the years, tech giants have had mixed records after losing visionary founders who propelled their success. Successors with tech expertise helps.`\
+https://www.nytimes.com/2026/11/13/technology/nvidia-lost-its-founding-ceo-can-it-keep-its-momentum.html
+
+**Jensen Huang’s Fall Is Bad for Nvidia but Good for America**\
+`Jensen Huang was a big reason Nvidia preserved the ability to sell chips to China. His departure from the company might change that.`\
+https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia.html
+
+**Hasan Piker Wants to Win**\
+`The socialist Twitch streamer describes himself as “pragmatic” when it comes to how Democrats wield power.`\
+https://www.nytimes.com/2026/11/13/opinion/ezra-klein-podcast-hasan-piker.html
+
+**The Worst Thing Democrats Could Do Right Now**\
+`Democratic power in the final years of the Trump presidency must look, feel and be different from that of the past.`\
+https://www.nytimes.com/2026/11/13/opinion/democrats-trump-congress.html
+
+**‘The Body’ Talks Like ‘Mean Girls’ and Walks Like ‘The Crucible’**\
+`Quinn Shephard’s new Netflix drama uses millennial nostalgia to eerie ends.`\
+https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
+
+**What’s the Matter With Florida?**\
+`A lot of Republicans have moved to the state since Covid, and those newcomers really like the way Republicans are running it.`\
+https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
+
+**Democrats Eye Strict New Limits on White House Budget Powers**\
+`The incoming majority is also planning aggressive oversight of the White House budget director, who appears to be working to install an ally to monitor the budget office’s handling of federal spending.`\
+https://www.nytimes.com/2026/11/13/business/democrats-eye-strict-new-limits-on-white-house-budget-powers.html
+
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/11/13/movies/movie-review-roundup.html
+
+**A Catio Can Just Be a Box. Here’s How to Build One.**\
+`Knowing how to construct a box is a useful skill for anyone, even those without cats.`\
+https://www.nytimes.com/2026/11/13/realestate/a-catio-can-just-be-a-box-heres-how-to-build-one.html
+
+**‘I Had to Have Faith’: How a Democrat Defied Long Odds in Mississippi’s Senate Race**\
+`Few were paying much attention to Scott Colom for most of his campaign. Then he toppled the Republican incumbent.`\
+https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-defied-odds.html
+
 **We Just Witnessed an Electoral Regicide**\
 `The midterms were a classic example of a restoration election in which voters rein in a dictatorial presidency and reset the constitutional order.`\
 https://www.nytimes.com/2026/11/13/opinion/midterms-election-government.html
