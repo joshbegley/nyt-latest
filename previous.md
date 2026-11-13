@@ -1,3 +1,7 @@
+**Inside The Times’s Phone Call With Jensen Huang**\
+`On the “Hard Fork” podcast, the journalist Ryan Mac spoke about the approach that he and his colleague Tripp Mickle took to reporting on the Nvidia C.E.O. Jensen Huang. When Mickle called Huang directly, they were surprised to find that he answered.`\
+https://www.nytimes.com/video/podcasts/100000011281737/inside-the-timess-phone-call-with-jensen-huang.html
+
 **Huang and Lutnick Summoned to Testify Before Congress**\
 `Senator Tim Scott said he had requested that the Nvidia co-founder and the commerce secretary appear before the Senate Banking Committee.`\
 https://www.nytimes.com/2026/11/12/business/jensen-huang-howard-lutnick-testify-capitol-hill.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath
 **Books Our Editors Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html
-
-**House Passes Competing Veterans Bills in a Fight Over Funding**\
-`Legislation addressing the retirement pay of veterans with combat-related disabilities is making its way through Congress, but could collapse amid a funding clash.`\
-https://www.nytimes.com/2026/11/12/us/politics/house-veterans-benefits-bill-funding.html
 

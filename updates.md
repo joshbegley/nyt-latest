@@ -1,3 +1,7 @@
+**Inside The Times’s Phone Call With Jensen Huang**\
+`On the “Hard Fork” podcast, the journalist Ryan Mac spoke about the approach that he and his colleague Tripp Mickle took to reporting on the Nvidia C.E.O. Jensen Huang. When Mickle called Huang directly, they were surprised to find that he answered.`\
+https://www.nytimes.com/video/podcasts/100000011281737/inside-the-timess-phone-call-with-jensen-huang.html
+
 **Howard Lutnick Took Softer Line on Nvidia as Calls for Tougher Controls Grew**\
 `Critics say Howard Lutnick, the commerce secretary, and his department have shielded Nvidia as concerns have grown over A.I. chip sales to firms like Megaspeed.`\
 https://www.nytimes.com/2026/11/12/us/politics/lutnick-nvidia-commerce-china-chips.html

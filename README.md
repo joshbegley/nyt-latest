@@ -1,3 +1,7 @@
+**Humpback Whale Appears in the Hudson, Delighting Boaters and New Yorkers**\
+`The whale was spotted swimming, feeding and breaching in the Hudson River on Thursday.`\
+https://www.nytimes.com/2026/11/12/nyregion/humpback-whale-hudson-river-nyc.html
+
 **Inside The Times’s Phone Call With Jensen Huang**\
 `On the “Hard Fork” podcast, the journalist Ryan Mac spoke about the approach that he and his colleague Tripp Mickle took to reporting on the Nvidia C.E.O. Jensen Huang. When Mickle called Huang directly, they were surprised to find that he answered.`\
 https://www.nytimes.com/video/podcasts/100000011281737/inside-the-timess-phone-call-with-jensen-huang.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
 **A Frantic Search for Survivors in the Brooklyn Building Collapse**\
 `At one moment, an apartment building was standing. At another, it had tumbled into a hole. Ruin, and death, followed.`\
 https://www.nytimes.com/2026/11/12/nyregion/brooklyn-building-collapse-aftermath.html
-
-**Books Our Editors Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/11/12/books/review/new-recommended-books.html
 
