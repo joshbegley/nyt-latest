@@ -1,3 +1,11 @@
+**Cargo Ship Crashes Into Docked Riverboat in New Orleans**\
+`Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
+**Meet Eileen Laubacher, the Navy Veteran Who Beat Lauren Boebert**\
+`Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
+https://www.nytimes.com/2026/11/13/us/elections/eileen-laubacher-defeated-lauren-boebert.html
+
 **Ship Crashes Into Docked Riverboat in New Orleans Port**\
 `The river boat appeared to have capsized and taken on water after being struck by a ship. The river boat was set to begin an eight-day excursion starting on Friday.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
