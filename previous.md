@@ -1,3 +1,7 @@
+**The U.S.-Israel Relationship Is Broken. Here’s How Eisenkot Could Fix It.**\
+`Former Israeli and U.S. ambassadors, lawmakers and analysts largely agree on steps Gadi Eisenkot could take if he becomes prime minister. But they are risky.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/the-us-israel-relationship-is-broken-heres-how-eisenkot-could-fix-it.html
+
 **15-Minute Lesson Plan: Accidental Art**\
 `What overlooked beauty can you find if you look?`\
 https://www.nytimes.com/2026/11/13/learning/15-minute-lesson-plan-accidental-art.html
@@ -10,13 +14,13 @@ https://www.nytimes.com/2026/11/13/arts/asia-eurovision-song-contest-when-what.h
 `As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
 https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
 
-**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
-`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
-https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
-
 **Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
 `A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
+
+**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
+`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
 
 **Bloomberg Will Seed a New Pro-Charter School Group With $1 Million**\
 `Great Public Schools New York will enter the charter school battle in New York City with money from Michael R. Bloomberg and be led by a former adviser to Andrew M. Cuomo.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/world/australia/100000011281290/missing-teenager-6
 **I Wrote Jensen Huang’s Biography. Here’s What Led to His Downfall.**\
 `How to understand the former Nvidia chief’s stunning departure.`\
 https://www.nytimes.com/2026/11/12/opinion/jensen-huang-nvidia.html
-
-**Thanksgiving Month**\
-`Why wait for the holiday to load up on turkey, pie and all the fixings?`\
-https://www.nytimes.com/2026/11/12/dining/thanksgiving-month.html
 

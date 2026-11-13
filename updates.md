@@ -1,3 +1,7 @@
+**The U.S.-Israel Relationship Is Broken. Here’s How Eisenkot Could Fix It.**\
+`Former Israeli and U.S. ambassadors, lawmakers and analysts largely agree on steps Gadi Eisenkot could take if he becomes prime minister. But they are risky.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/the-us-israel-relationship-is-broken-heres-how-eisenkot-could-fix-it.html
+
 **In French Election, Centrists Eye a Judo Star and a Central Banker**\
 `Some voters want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
 https://www.nytimes.com/2026/11/13/world/europe/france-riner-judo-lagarde-election.html
