@@ -1,3 +1,11 @@
+**Flashback: Your Weekly History Quiz, Nov. 14, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html
+
+**Pope Leo XIV Returns to ‘Homeland’ Peru as Part of South America Tour**\
+`Pope Leo XIV returned to Peru, the country the American-born pontiff called his second home, for the final leg of his 12-day tour of South America.`\
+https://www.nytimes.com/video/world/americas/100000011282248/pope-leo-xiv-peru-trip.html
+
 **With Huang Out, Asian Americans Lose a Star, and Fear What Comes Next**\
 `Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
 https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-take
 `The Treasury secretary blamed the department for not sanctioning the Singaporean firm and said that Nvidia employees should be held accountable if they sidestepped the law.`\
 https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
 
-**Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
+**Jensen Huang’s Resignation From Nvidia Worries the A.I. Start-Up World**\
 `Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
 https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-
 **We Just Witnessed an Electoral Regicide**\
 `The midterms were a classic example of a restoration election in which voters rein in a dictatorial presidency and reset the constitutional order.`\
 https://www.nytimes.com/2026/11/13/opinion/midterms-election-government.html
-
-**Kids’ Movies to Stream Now**\
-`This month’s picks include the latest installments of beloved franchises and a live-action remake of a popular Disney animation.`\
-https://www.nytimes.com/2026/11/13/movies/kids-movies-streaming-now.html
-
-**One Man’s Quest to Create the Perfect Whiskey Glass**\
-`An Austrian designer is unveiling a version that aims to solve an age-old problem for connoisseurs: how to keep the alcohol from overpowering the aroma.`\
-https://www.nytimes.com/2026/11/13/dining/drinks/kurt-josef-zalto-whiskey-glass.html
 
