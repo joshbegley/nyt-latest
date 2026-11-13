@@ -1,3 +1,7 @@
+**Asian Americans Share Disappointment and Fear After Jensen Huang Scandal**\
+`Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
+https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
+
 **Flashback: Your Weekly History Quiz, Nov. 14, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html

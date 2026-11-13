@@ -6,7 +6,7 @@ https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html
 `Pope Leo XIV returned to Peru, the country the American-born pontiff called his second home, for the final leg of his 12-day tour of South America.`\
 https://www.nytimes.com/video/world/americas/100000011282248/pope-leo-xiv-peru-trip.html
 
-**With Huang Out, Asian Americans Lose a Star, and Fear What Comes Next**\
+**Asian Americans Share Disappointment and Fear After Jensen Huang Scandal**\
 `Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
 https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
 
