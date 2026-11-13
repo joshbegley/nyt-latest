@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
-`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. He added that officials did not know the cause and said it would “take some time” to restart airport operations.`\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials did not know its cause and said it would “take some time” to restart airport operations.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\

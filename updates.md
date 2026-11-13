@@ -1,3 +1,15 @@
+**Chiclayo, Pope Leo’s Other Home, Comes Out In Force to Welcome Father Robert**\
+`Leo XIV returned to the city in Peru where he served as bishop for eight years, drawing large crowds who remembered him before he was pope.`\
+https://www.nytimes.com/2026/11/13/world/europe/pope-leo-xiv-peru-chiclayo.html
+
+**Need Relationship Advice? Our Columnists Have Answers.**\
+`The “Modern Love” podcast will join with the writers of the Ask a Therapist and Social Q’s columns to field listener questions in a coming episode.`\
+https://www.nytimes.com/2026/11/13/podcasts/relationship-advice-ask-our-columnists.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. He added that officials did not know the cause and said it would “take some time” to restart airport operations.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
 `Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. “There was no indication as of yet that this was a nefarious attack against us,” he said. He added that officials were not ruling out any cause.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
