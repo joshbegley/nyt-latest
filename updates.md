@@ -1,3 +1,7 @@
+**Chris Van Hollen Set to Challenge Chuck Schumer for Senate Majority Leader**\
+`Senator Chris Van Hollen of Maryland has emerged as a favorite of Democrats seeking an alternative to Senator Chuck Schumer, who says he has the votes to win.`\
+https://www.nytimes.com/2026/11/12/us/politics/van-hollen-schumer-democrats-majority-leader.html
+
 **Humpback Whale Appears in the Hudson, Delighting Boaters and New Yorkers**\
 `The whale was spotted swimming, feeding and breaching in the Hudson River on Thursday.`\
 https://www.nytimes.com/2026/11/12/nyregion/humpback-whale-hudson-river-nyc.html
