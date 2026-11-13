@@ -1,3 +1,7 @@
+**America Will Have Less Influence in the Middle East. Is That So Bad?**\
+`A smaller footprint means lower costs and more responsibility from Gulf allies.`\
+https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
+
 **After Influence Peddling Claims, White House Restricts Lobbyist Meetings**\
 `The office of Stephen Miller, President Trump’s new chief of staff, outlined a new policy that seeks to show independence from special interests.`\
 https://www.nytimes.com/2026/11/13/us/politics/stephen-miller-memo-wiles.html
