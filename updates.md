@@ -1,3 +1,11 @@
+**Lutnick Took a Softer Line on Nvidia as Calls for Tougher Controls Grew**\
+`Critics say Howard Lutnick, the commerce secretary, and his department have shielded Nvidia as concerns have grown over A.I. chip sales to firms like Megaspeed.`\
+https://www.nytimes.com/2026/11/12/us/politics/lutnick-nvidia-commerce-china-chips.html
+
+**Who Could Replace Jensen Huang as Nvidia’s CEO? Here Are 7 Candidates.**\
+`President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
+https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
+
 **Offset Is Tired of Being Rap’s Villain**\
 `Watch the full Popcast conversation with Offset here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011273005/offset-is-tired-of-being-raps-villain.html
