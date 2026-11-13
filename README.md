@@ -1,3 +1,7 @@
+**The Local: Thanksgiving harvest and earthen art**\
+`Plus, Allianz Field’s sculptural menagerie expands.`\
+https://www.nytimes.com/2026/11/13/briefing/thanksgiving-harvest-earthen-art.html
+
 **Why Jensen Huang Was Essential to Nvidia’s Rise**\
 `Jensen Huang was the driving force at Nvidia, with 60 direct reports and no clear succession plan. Tripp Mickle, one of our technology reporters, examines Mr. Huang’s central role in the company and the artificial intelligence industry.`\
 https://www.nytimes.com/video/business/100000011275611/why-jensen-huang-was-essential-to-nvidias-rise.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/well/laugh-humor-self-acceptance.html
 **Don’t Expect Woke Hollywood to Come Roaring Back**\
 `Is Trump’s nonstop assault on media and culture over?`\
 https://www.nytimes.com/2026/11/13/opinion/midterms-hollywood-paramount-trump.html
-
-**What Are Your Superstitions?**\
-`Do you believe in luck? What small habits and rituals do you follow to bring on the good fortune or ward off the bad in your life?`\
-https://www.nytimes.com/2026/11/13/learning/what-are-your-superstitions.html
 
