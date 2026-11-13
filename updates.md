@@ -1,3 +1,7 @@
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. “There was no indication as of yet that this was a nefarious attack against us,” he said. He added that officials were not ruling out any cause.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Local Leaders Call for Answers in Deadly Brooklyn Building Collapse**\
 `New York City officials gathered at a news conference in Flatbush on Friday in a show of support for the families affected by an apartment building that partially collapsed on Wednesday, killing eight people.`\
 https://www.nytimes.com/video/nyregion/100000011282609/brooklyn-building-collapse-answers-accountability.html

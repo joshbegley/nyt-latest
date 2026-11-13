@@ -1,3 +1,7 @@
+**Need Relationship Advice? Our Columnists Have Answers.**\
+`The “Modern Love” podcast will join with the writers of the Ask a Therapist and Social Q’s columns to field listener questions in a coming episode.`\
+https://www.nytimes.com/2026/11/13/podcasts/relationship-advice-ask-our-columnists.html
+
 **Local Leaders Call for Answers in Deadly Brooklyn Building Collapse**\
 `New York City officials gathered at a news conference in Flatbush on Friday in a show of support for the families affected by an apartment building that partially collapsed on Wednesday, killing eight people.`\
 https://www.nytimes.com/video/nyregion/100000011282609/brooklyn-building-collapse-answers-accountability.html
@@ -11,7 +15,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
-`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. “There was no indication as of yet that this was a nefarious attack against us,” he said. He added that officials were not ruling out any cause.`\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. He added that officials were not ruling out any cause and said it would “take some time” to restart airport operations.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/dining/got-frozen-tortellini-youre-halfway-to
 **Sister June Carpenter, the Oldest Shaker, Has Died**\
 `Now there are only two practicing members of the last active Shaker community in the United States. Sister June was 88.`\
 https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
-
-**Fewer Fed Meetings Raise Stakes of Warsh’s Communications**\
-`The Federal Reserve will vote on interest rates less frequently beginning next year as part of a plan by the central bank’s chairman, Kevin M. Warsh, to overhaul how it operates.`\
-https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html
 

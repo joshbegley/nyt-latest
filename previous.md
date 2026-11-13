@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
-`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials do not suspect foul play. “There was no indication as of yet that this was a nefarious attack against us,” he said. He added that officials were not ruling out any cause.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
