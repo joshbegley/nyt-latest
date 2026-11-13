@@ -1,3 +1,11 @@
+**How the Deadly Brooklyn Building Collapse Unfolded**\
+`The sudden collapse of a Brooklyn building turned a busy neighborhood into a disaster zone and left families devastated.`\
+https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-flatbush.html
+
+**Security Camera Footage Captures Brooklyn Building Collapse**\
+`Video from a security camera shows the moment an adjacent building in Brooklyn collapsed on Wednesday.`\
+https://www.nytimes.com/video/nyregion/100000011281567/brooklyn-building-collapse.html
+
 **Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
 `The outage began early Thursday afternoon, causing problems for offices, agencies and individuals around the globe.`\
 https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
