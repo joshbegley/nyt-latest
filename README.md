@@ -1,3 +1,7 @@
+**Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
+`The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
+https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
+
 **‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
 `With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
 https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/well/move/important-muscles-longevity-advice.
 **How Peter Farrelly Captured a New Side of ‘Rocky’**\
 `The director of “I Play Rocky” narrates a scene that takes place on the set of “Rocky,” during a breakthrough moment for Sylvester Stallone.`\
 https://www.nytimes.com/2026/11/13/movies/i-play-rocky-clip.html
-
-**How Peter Farrelly Captured a New Side of ‘Rocky’**\
-`Peter Farrelly, the director of “I Play Rocky,” narrates a scene depicting a breakthrough moment for Sylvester Stallone during the making of the 1976 film “Rocky.”`\
-https://www.nytimes.com/video/movies/100000011244066/i-play-rocky-scene.html
 
