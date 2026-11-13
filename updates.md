@@ -1,3 +1,11 @@
+**With Huang Out, Asian Americans Lose a Star, and Fear What Comes Next**\
+`Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
+https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
+
+**Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
+`The Treasury secretary blamed the department for not sanctioning the Singaporean firm and said that Nvidia employees should be held accountable if they sidestepped the law.`\
+https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
+
 **Jensen Huang Lost His Job. Wall Street Lost Its Biggest Prize.**\
 `The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
