@@ -1,8 +1,16 @@
+**Offset on Getting Shot: ‘I Broke My Mama’s Heart’**\
+`On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
+https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
+
+**Offset Is Tired of Being the Villain**\
+`Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
+https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
+
 **Cargo Ship Crashes Into Docked Riverboat in New Orleans**\
 `Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
-**N.Y.C. Officials Expand Collapse Inquiry as Families Demand Answers**\
+**Inquiry Into Brooklyn Building Collapse Expands as Families Demand Answers**\
 `The Department of Buildings has also hired an engineering firm to provide an independent report on what caused the three-story building to collapse, killing eight people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-inquiry-families.html
 
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
 **‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
 `With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
 https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
-
-**After the Fall**\
-`We’re looking at the scandals at Nvidia.`\
-https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
-
-**‘The Headlines’ News Quiz: Nov. 13, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/11/13/podcasts/the-headlines/the-headlines-news-quiz-nov-13-2026.html
 
