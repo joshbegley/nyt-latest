@@ -1,3 +1,7 @@
+**The Swingiest State Has Gone Very Red**\
+`A lot of Republicans have moved to the state since Covid, and those newcomers really like the way Republicans are running it.`\
+https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
+
 **Burgers, Boycotts and the Ad That Divided an Ohio Community**\
 `When a popular restaurant hosted Vivek Ramaswamy after he ran a controversial attack ad in the governor’s race, customers turned against it and Medina, Ohio, was left reeling.`\
 https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
