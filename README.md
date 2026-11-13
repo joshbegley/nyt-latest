@@ -1,3 +1,7 @@
+**America Will Have Less Influence in the Middle East. Is That So Bad?**\
+`A smaller footprint means lower costs and more responsibility from Gulf allies.`\
+https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
+
 **After Influence Peddling Claims, White House Restricts Lobbyist Meetings**\
 `The office of Stephen Miller, President Trump’s new chief of staff, outlined a new policy that seeks to show independence from special interests.`\
 https://www.nytimes.com/2026/11/13/us/politics/stephen-miller-memo-wiles.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html
 **Employee of Prestigious Law Firm Is Charged With Insider Trading**\
 `A document processor who had worked at the firm since 1989 made about $70,000 in illicit profits off inside knowledge, prosecutors said.`\
 https://www.nytimes.com/2026/11/12/nyregion/insider-trading-indictment-cravath-swaine-moore.html
-
-**Black Turnout Rose in Georgia, Powered by Younger Voters**\
-`Black voters under 30 outpaced young white voters for the first time since 2012, contributing to a statewide sweep by Democrats.`\
-https://www.nytimes.com/2026/11/12/us/black-turnout-georgia.html
 
