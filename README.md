@@ -186,11 +186,15 @@ https://www.nytimes.com/2026/11/13/podcasts/the-daily/israel-gadi-eisenkot-netan
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
 https://www.nytimes.com/2026/11/13/crosswords/connections-companion-1252.html
 
-**NYT Strands Hints for November 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
-https://www.nytimes.com/2026/11/13/crosswords/strands-sidekick-986.html
+**Midterm Elections Live Updates: Democrats’ Lead in Mississippi Senate Race Grows**\
+`Democrats have won at least 253 seats in the House and 54 in the Senate, but about two dozen remain too close to call. In Mississippi, the Democratic edge is about 2,500 votes.`\
+https://www.nytimes.com/live/2026/11/06/us/midterm-elections-trump
 
-**Today’s Wordle HInts for November 14, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 14, 2026.`\
-https://www.nytimes.com/2026/11/13/crosswords/wordle-review-1974.html
+**Midterm Elections Live Updates: Democrats Clear 250 House Seats in Decisive Power Shift**\
+`The party’s growing tally approached the result in 2008, when Barack Obama captured the White House. Democrats also held leads in the uncalled Senate races in Mississippi and Alaska.`\
+https://www.nytimes.com/live/2026/11/05/us/midterm-elections-democrats-trump
+
+**Democrats Seize Control of Congress as Voters Rebuke Trump**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump
 

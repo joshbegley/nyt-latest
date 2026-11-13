@@ -1,3 +1,11 @@
+**Mamdani Overhauls N.Y.P.D. Unit Criticized for Its Handling of Protests**\
+`The Strategic Response Group will be revamped, with its crowd-control and counterterrorism duties dispersed to other units, including a new Civilian Dialogue Unit.`\
+https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-protests.html
+
+**Personal Style Can’t Be Hacked**\
+`Wearing the same thing all the time doesn’t make you stylish.`\
+https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
+
 **Richard Glossip, Ex-Oklahoma Death Row Prisoner, Pleads to Lesser Charge**\
 `By pleading guilty to accessory to murder after the fact, Richard Glossip will avoid a retrial of the first-degree murder charge.`\
 https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
