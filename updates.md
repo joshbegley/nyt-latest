@@ -1,3 +1,11 @@
+**Europe Haggles Over Who Will Represent It in Talks With Russia**\
+`After coveting a seat in the Ukraine war discussions, Europe is poised to get one. Deciding who should speak for the continent is its own negotiation.`\
+https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
+
+**Inside the N.B.A. Gambling Scandal**\
+`Pablo investigates Jontay Porter, and the mob, with The New Yorker.`\
+https://www.nytimes.com/2026/11/13/podcasts/nba-jontay-porter-gambling.html
+
 **Use Humor to Defuse Awkward Moments**\
 `If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
 https://www.nytimes.com/2026/11/13/well/nl-awkward-humor-self-deprecating.html
