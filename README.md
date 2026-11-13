@@ -1,3 +1,11 @@
+**Hasan Piker on How Democrats Should Wield Power**\
+`Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
+https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
+
+**Looking Past Nvidia Turmoil, Stocks Log Best Week in Months**\
+`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as artificial intelligence stocks have broadly risen.`\
+https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
+
 **Huang’s Downfall Could Shake the Economy, and Detainees Have Disappeared From an ICE Database**\
 `Plus, the Friday news quiz.`\
 https://www.nytimes.com/2026/11/13/podcasts/the-headlines/huang-stocks-economy-ice.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/13/t-magazine/canada-yukon-hiking-women.html
 **Berluti Gives ‘The Little Prince’ a New Adaptation**\
 `Plus: furniture that channels a designer’s inner child, moonstone-and-tanzanite earrings and more recommendations from T Magazine.`\
 https://www.nytimes.com/2026/11/13/t-magazine/le-petit-prince-berluti.html
-
-**I Can’t Believe It’s Not Leather**\
-`A rose gold-and-diamond Hermès necklace that nods to the house’s equestrian history.`\
-https://www.nytimes.com/2026/11/13/t-magazine/hermes-necklace-horse-whip.html
-
-**The Virtues of Traveling on Foot**\
-`Three writers discover that the most ancient and intimate way to experience a place is by walking through it.`\
-https://www.nytimes.com/2026/11/13/t-magazine/walking-travel.html
 
