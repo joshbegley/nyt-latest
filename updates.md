@@ -1,3 +1,39 @@
+**After Influence Peddling Claims, White House Restricts Lobbyist Meetings**\
+`The office of Stephen Miller, President Trump’s new chief of staff, outlined a new policy that seeks to show independence from special interests.`\
+https://www.nytimes.com/2026/11/13/us/politics/stephen-miller-memo-wiles.html
+
+**In French Election, Centrists Eye a Judo Star and a Central Banker**\
+`Centrists want alternatives to a matchup between the far right and far left in the 2027 presidential election. Teddy Riner, the judo champion, is in, while Christine Lagarde is less likely.`\
+https://www.nytimes.com/2026/11/13/world/europe/france-riner-judo-lagarde-election.html
+
+**Quote of the Day: ‘What Are We to Do?’ African Farmers Fearful as El Niño Bears Down.**\
+`Quotation of the Day for Friday, November 13, 2026.`\
+https://www.nytimes.com/2026/11/13/pageoneplus/quote-of-the-day-what-are-we-to-do-african-farmers-fearful-as-el-nino-bears-down.html
+
+**The Man I Could Not Get Over**\
+`Some desire is so powerful you may feel it only once.`\
+https://www.nytimes.com/2026/11/13/style/modern-love-the-man-i-could-not-get-over.html
+
+**She Has Breast Cancer. He Lost His Job. Then, Poof, a Dream Wedding.**\
+`After facing a series of difficult challenges, Elena Volkova and Peter Napolitano received a much-needed bright spot: a wedding brought together in just two weeks.`\
+https://www.nytimes.com/2026/11/13/style/elena-volkova-peter-napolitano-wedding.html
+
+**After a 12-Year Intermission, They Met at the Altar**\
+`Eli Wasserman and Jeffrey Eisner share a love of Jewish food and theater — but after reuniting in 2025, an old love letter and a borrowed hoodie gave them a second act.`\
+https://www.nytimes.com/2026/11/13/style/jeffrey-eisner-eli-wasserman-wedding.html
+
+**A Discreet Relationship and a Surprising Discovery**\
+`Rosie Kaur and Mandeep Singh wanted to be engaged before meeting each other’s families. But an unexpected loss created a different timeline.`\
+https://www.nytimes.com/2026/11/13/style/rosie-kaur-mandeep-singh-wedding.html
+
+**They Met in Silence and Haven’t Stopped Talking Since**\
+`Yvonne Sung and Daniel Bess captured each other’s attention at a silent meditation retreat and felt instant excitement (and calm) in one another’s presence.`\
+https://www.nytimes.com/2026/11/13/style/yvonne-sung-daniel-bess-wedding.html
+
+**From the Front Page: The Supreme Court Upholds a Ruling Against Bus Segregation in Montgomery, Ala., on Nov. 13, 1956**\
+`The justices upheld a ruling that racial segregation on Montgomery public buses was unconstitutional, helping end the city’s yearlong bus boycott.`\
+https://www.nytimes.com/2026/11/13/learning/from-the-front-page-the-supreme-court-upholds-a-ruling-against-bus-segregation-in-montgomery-ala-on-nov-13-1956.html
+
 **How the Deadly Brooklyn Building Collapse Unfolded**\
 `The sudden collapse of a Brooklyn building turned a busy neighborhood into a disaster zone and left families devastated.`\
 https://www.nytimes.com/2026/11/12/nyregion/building-collapse-brooklyn-flatbush.html
