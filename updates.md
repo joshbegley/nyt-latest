@@ -1,3 +1,23 @@
+**How Wall Street Is Pitching Anthropic’s I.P.O.: ‘Too Crucial to Fail’**\
+`As market uncertainty deepens, investment banks are on a roadshow to sell investors on what could be the largest public offering ever.`\
+https://www.nytimes.com/2026/11/13/business/anthropic-ipo-roadshow.html
+
+**Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
+`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people on Friday in New Orleans.`\
+https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, says Trump administration officials blamed a telecommunication outage but said they said did not know its cause and that it would “take some time” to fix the issues grounding flights.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
+**Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
+`The G.O.P. was able to avoid more House midterm losses — on top of the advantage it already had from gerrymandering.`\
+https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
+
+**All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
+`Search and rescue operations were continuing after the riverboat, which had 129 people aboard, was struck by a tanker ship on Friday afternoon, the authorities said.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
 **No Criminal Charges for Driver of Truck That Plowed Into Crowd in Kansas**\
 `A district attorney called the crash a tragedy but said that it did not meet the criteria for criminal prosecution.`\
 https://www.nytimes.com/2026/11/13/us/wichita-kansas-soccer-field-crash-charges.html
