@@ -1,3 +1,7 @@
+**Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
+`They helped the G.O.P. avoid more House midterm losses — on top of the advantage they already have from gerrymandering.`\
+https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
+
 **African Miss Universe Contestants Struggle to Get U.S. Visas**\
 `A crackdown on entry by some citizens of African countries by the U.S. immigration officials means that some contestants might not get visas in time to attend the pageant in Puerto Rico this month.`\
 https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/arts/music/rosalia-milo-j-latin-grammys-winne
 **A Scorecard for Huang’s Exit From Nvidia**\
 `The ouster of Jensen Huang from the chipmaker he helped found is reverberating throughout Silicon Valley, Washington and beyond.`\
 https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercussions.html
-
-**Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
-`The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
-https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
 
