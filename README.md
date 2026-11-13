@@ -1,3 +1,7 @@
+**‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
+`With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
+https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
+
 **After the Fall**\
 `We’re looking at the scandals at Nvidia.`\
 https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/movies/i-play-rocky-clip.html
 **How Peter Farrelly Captured a New Side of ‘Rocky’**\
 `Peter Farrelly, the director of “I Play Rocky,” narrates a scene depicting a breakthrough moment for Sylvester Stallone during the making of the 1976 film “Rocky.”`\
 https://www.nytimes.com/video/movies/100000011244066/i-play-rocky-scene.html
-
-**A Finger Lakes Living Room Takes Inspiration From the Water**\
-`Lauren Sands, the founder of LES Collection, turned her former childhood lake house in New York into a sophisticated sanctuary`\
-https://www.nytimes.com/2026/11/13/realestate/a-finger-lakes-living-room-takes-inspiration-from-the-water.html
 
