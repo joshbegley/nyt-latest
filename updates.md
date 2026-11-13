@@ -1,3 +1,7 @@
+**Jensen Huang Lost His Job. Wall Street Lost Its Biggest Prize.**\
+`The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
+https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
+
 **‘Russell Brand: Open Secret’ on Netflix: 7 Takeaways**\
 `The documentary, released Friday, includes on-camera interviews with former partners. It was released just hours after a British news outlet reported further accusations against Brand.`\
 https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html

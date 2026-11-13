@@ -1,3 +1,7 @@
+**With Huang Out, Asian Americans Lose a Star, and Fear What Comes Next**\
+`Many East Asians said that he had swagger and seemed like a superhero. Now there are worries that the spy scandal turns into hyper scrutiny against them.`\
+https://www.nytimes.com/2026/11/13/us/jensen-huang-nvidia-asian-americans.html
+
 **Jensen Huang Lost His Job. Wall Street Lost Its Biggest Prize.**\
 `The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
 https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html
 
 **Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
-`The Treasury secretary blamed the department for not sanctioning Megaspeed and said that Nvidia employees should be held accountable if they sidestepped the law.`\
+`The Treasury secretary blamed the department for not sanctioning the Singaporean firm and said that Nvidia employees should be held accountable if they sidestepped the law.`\
 https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
 
 **Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/movies/kids-movies-streaming-now.html
 **One Man’s Quest to Create the Perfect Whiskey Glass**\
 `An Austrian designer is unveiling a version that aims to solve an age-old problem for connoisseurs: how to keep the alcohol from overpowering the aroma.`\
 https://www.nytimes.com/2026/11/13/dining/drinks/kurt-josef-zalto-whiskey-glass.html
-
-**Broadway Shows Closing Soon: ‘School Girls,’ ‘Two Strangers’ and More**\
-`The final curtain call is approaching for Jocelyn Bioh’s comedy, Bill Irwin’s take on Molière and a meet-cute musical. Plus, a few more titles to put on your holiday must-see list.`\
-https://www.nytimes.com/2026/11/13/arts/broadway-shows-closing-school-girls-two-strangers.html
 

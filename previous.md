@@ -1,3 +1,7 @@
+**Jensen Huang Lost His Job. Wall Street Lost Its Biggest Prize.**\
+`The ousted Nvidia chief executive was the consummate dealmaker leading the trillion-dollar A.I. build out.`\
+https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-wall-street.html
+
 **‘Russell Brand: Open Secret’ on Netflix: 7 Takeaways**\
 `The documentary, released Friday, includes on-camera interviews with former partners. It was released just hours after a British news outlet reported further accusations against Brand.`\
 https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/dining/drinks/kurt-josef-zalto-whiskey-glass.
 **Broadway Shows Closing Soon: ‘School Girls,’ ‘Two Strangers’ and More**\
 `The final curtain call is approaching for Jocelyn Bioh’s comedy, Bill Irwin’s take on Molière and a meet-cute musical. Plus, a few more titles to put on your holiday must-see list.`\
 https://www.nytimes.com/2026/11/13/arts/broadway-shows-closing-school-girls-two-strangers.html
-
-**The Click of Falling Bricks: A Building’s Shocking Collapse**\
-`It remains unclear why a building on Flatbush Avenue collapsed. Officials said there were no more victims in the rubble.`\
-https://www.nytimes.com/2026/11/13/nyregion/the-click-of-falling-bricks-a-buildings-shocking-collapse.html
 
