@@ -1,5 +1,9 @@
 **Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
 `Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-netanyahu-racism-arabs.html
+
+**Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
+`Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
 https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-accuses-netanyahu-of-inciting-hatred-against-arabs.html
 
 **What Should the New Congress Do?**\
