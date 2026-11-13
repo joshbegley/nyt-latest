@@ -1,3 +1,7 @@
+**‘Russell Brand: Open Secret’ on Netflix: 7 Takeaways**\
+`The documentary, released Friday, includes on-camera interviews with former partners. It was released just hours after a British news outlet reported further accusations against Brand.`\
+https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html
+
 **Bessent Faults Commerce Dept. for Failing to Blacklist Megaspeed**\
 `The Treasury secretary blamed the department for not sanctioning Megaspeed and said that Nvidia employees should be held accountable if they sidestepped the law.`\
 https://www.nytimes.com/2026/11/13/business/economy/bessent-commerce-megaspeed-lutnick.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/arts/broadway-shows-closing-school-girls-two-
 **The Click of Falling Bricks: A Building’s Shocking Collapse**\
 `It remains unclear why a building on Flatbush Avenue collapsed. Officials said there were no more victims in the rubble.`\
 https://www.nytimes.com/2026/11/13/nyregion/the-click-of-falling-bricks-a-buildings-shocking-collapse.html
-
-**‘We Squandered an Opportunity’: The Christian Right on Its Election Rout**\
-`The midterm election results were a stinging setback for the movement, setting off a scramble among activists to regroup ahead of the 2028 presidential contest.`\
-https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
 

@@ -1,3 +1,7 @@
+**‘Russell Brand: Open Secret’ on Netflix: 7 Takeaways**\
+`The documentary, released Friday, includes on-camera interviews with former partners. It was released just hours after a British news outlet reported further accusations against Brand.`\
+https://www.nytimes.com/2026/11/13/movies/russell-brand-netflix-open-secret-takeaways.html
+
 **Despite Nvidia’s Drop, Stocks Push Ahead**\
 `A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as stocks have held their ground broadly.`\
 https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
