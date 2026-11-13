@@ -1,3 +1,7 @@
+**Hasan Piker on Liberal Zionism**\
+`On “The Ezra Klein Show,” the political commentator Hasan Piker discusses his views on liberal Zionism with Ezra Klein.`\
+https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zionism.html
+
 **Hasan Piker on How Democrats Should Wield Power**\
 `Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/world/europe/education-meritocracy.html
 **In the Wilds of the Yukon, a Novelist Faces Herself**\
 `Trekking through the territory on her birthday, Maggie Shipstead reconsiders her relationship to aging and risk.`\
 https://www.nytimes.com/2026/11/13/t-magazine/canada-yukon-hiking-women.html
-
-**Berluti Gives ‘The Little Prince’ a New Adaptation**\
-`Plus: furniture that channels a designer’s inner child, moonstone-and-tanzanite earrings and more recommendations from T Magazine.`\
-https://www.nytimes.com/2026/11/13/t-magazine/le-petit-prince-berluti.html
 

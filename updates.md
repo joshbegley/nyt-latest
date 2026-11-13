@@ -1,3 +1,7 @@
+**Hasan Piker on Liberal Zionism**\
+`On “The Ezra Klein Show,” the political commentator Hasan Piker discusses his views on liberal Zionism with Ezra Klein.`\
+https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zionism.html
+
 **Hasan Piker on How Democrats Should Wield Power**\
 `Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
 https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
