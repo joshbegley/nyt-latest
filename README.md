@@ -1,3 +1,7 @@
+**Lutnick Took a Softer Line on Nvidia as Calls for Tougher Controls Grew**\
+`Critics say Howard Lutnick, the commerce secretary, and his department have shielded Nvidia as concerns have grown over A.I. chip sales to firms like Megaspeed.`\
+https://www.nytimes.com/2026/11/12/us/politics/lutnick-nvidia-commerce-china-chips.html
+
 **Offset Is Tired of Being Rap’s Villain**\
 `Watch the full Popcast conversation with Offset here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011273005/offset-is-tired-of-being-raps-villain.html
@@ -50,7 +54,7 @@ https://www.nytimes.com/2026/11/12/world/europe/paul-barril-dead.html
 `State Senator Cindy Holscher won the race. Though Kansas is reliably Republican in presidential elections, its voters often break for Democrats in midterms.`\
 https://www.nytimes.com/2026/11/12/us/kansas-governor-democrat-holscher-wins.html
 
-**7 People Nvidia Could Consider for Its Next C.E.O.**\
+**Who Could Replace Jensen Huang as Nvidia’s CEO? Here Are 7 Candidates.**\
 `President Trump suggested Tim Cook, Apple’s former C.E.O., to replace Jensen Huang at Nvidia. Here are others with experience in chips or A.I.`\
 https://www.nytimes.com/2026/11/12/technology/jensen-huang-nvidia-successor.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/business/economy/fed-warsh-october.html
 **What Students Are Saying About Law Enforcement in Schools**\
 `Teenagers weigh in on whether police officers make schools feel safer and how much of a role they should have in disciplining students.`\
 https://www.nytimes.com/2026/11/12/learning/what-students-are-saying-about-law-enforcement-in-schools.html
-
-**Paul LePage, Ex-Governor of Maine, Flips House Seat to Republicans**\
-`Paul LePage defeated a progressive Democrat, Matt Dunlap, in the state’s rural Second Congressional District.`\
-https://www.nytimes.com/2026/11/12/sports/paul-lepage-maine-house-race.html
 
