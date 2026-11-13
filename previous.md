@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html
 `An Army Green Beret and revered combat veteran, he created a magazine that was a purveyor of gonzo military journalism. He was 93.`\
 https://www.nytimes.com/2026/11/12/obituaries/robert-k-brown-dead.html
 
-**SpaceX Plans $74 Billion Investment to Build Data Centers in Texas and Arizona**\
-`Elon Musk’s rocket and artificial intelligence company has spent billions to develop the giant warehouses full of computer servers that power the technology.`\
-https://www.nytimes.com/2026/11/12/business/spacex-data-center.html
-
