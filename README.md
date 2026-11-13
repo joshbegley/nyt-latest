@@ -30,7 +30,7 @@ https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-
 `Offset has become a regular and reliable villain of the social internet. The Atlanta rapper and Migos member talks to ‘Popcast’ about how this narrative affects him and his family.`\
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 
-**Cargo Ship Crashes Into Docked Riverboat in New Orleans**\
+**Search and Rescue Underway in New Orleans After Cargo Ship Crashes Into Riverboat**\
 `Search and rescue operations were continuing after the riverboat, which was docked and had 129 people aboard, was struck by a cargo ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
