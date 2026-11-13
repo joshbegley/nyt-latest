@@ -1,3 +1,7 @@
+**Even Scott Colom’s Backers Were Skeptical. Here’s How He Won in Mississippi.**\
+`Few were paying much attention to Mr. Colom for most of his Senate campaign. Then he toppled the Republican incumbent.`\
+https://www.nytimes.com/2026/11/13/us/politics/scott-colom-mississippi-democrat-defied-odds.html
+
 **SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
 `The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
 https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
