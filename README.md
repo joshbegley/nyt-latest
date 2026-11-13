@@ -1,3 +1,19 @@
+**Airports Fill Up With Stuck Families and Stranded Travelers**\
+`The emergency ground disrupted travel plans across the country.`\
+https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html
+
+**Trump Officials Press Congress to Renew Spying Law in Lame-Duck Session**\
+`The request to extend a high-profile warrantless surveillance law would add a thorny issue during waning Republican control.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-congress-section-702-surveillance.html
+
+**Trump Administration Delays Enforcement of Medicaid Work Requirement**\
+`The federal government had planned to require poor adults to prove they were working or lose insurance coverage starting Jan. 1. Now, it will let states wait until July.`\
+https://www.nytimes.com/2026/11/13/us/politics/medicaid-work-requirement-delay.html
+
+**Mamdani Makes Deal With Trump to Delay SNAP Rules for Stores Across U.S.**\
+`Small businesses that accept food stamps will have another 90 days to comply with new rules for stocking food staples, Mayor Zohran Mamdani said.`\
+https://www.nytimes.com/2026/11/13/nyregion/mamdani-trump-snap-rule-delay.html
+
 **5 Takeaways from Joe Biden’s Memoir: The Debate, Dropping Out and Advice From Romney**\
 `The 46th president defends his decision to run for re-election, which many in his party now regard as a mistake, and revisits the disastrous debate that forced him to end his campaign.`\
 https://www.nytimes.com/2026/11/13/us/politics/joe-biden-new-memoir-takeaways.html
@@ -9,6 +25,10 @@ https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
 **Democrats Vie for Support in Race for Top Senate Job**\
 `Senator Chris Van Hollen of Maryland said he wouldn’t run for president to focus on his leadership challenge to Senator Chuck Schumer, who remained confident he would prevail.`\
 https://www.nytimes.com/2026/11/13/us/politics/democrats-senate-leader.html
+
+**The last ground stop in 2023 came after a pilot warning system went down.**\
+`(No description)`\
+https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
 
 **Surfers Scramble to Mavericks in California to Catch Building-Size Waves**\
 `Amid back-to-back storms hitting the coast, surfers could get a rare opportunity to catch big waves.`\
@@ -79,7 +99,7 @@ https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 
 **All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
-`Search and rescue operations were continuing after the riverboat, which had 129 people aboard, was struck by a tanker ship on Friday afternoon, the authorities said.`\
+`Search and rescue operations were continuing after the riverboat, which had nearly 200 people aboard, was struck by a tanker ship on Friday afternoon, the authorities said.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
 **Inquiry Into Brooklyn Building Collapse Expands as Families Demand Answers**\
@@ -169,20 +189,4 @@ https://www.nytimes.com/2026/11/13/books/review/promise-me-america-joe-biden.htm
 **Tom Cruise Leads Toasts for Steven Spielberg at MoMa Film Gala**\
 `Bruce Springsteen, Martin Scorsese and Drew Barrymore, among others, paid tribute to the filmmaker at the Museum of Modern Art’s annual film gala.`\
 https://www.nytimes.com/2026/11/13/style/steven-spielberg-moma-colbert-tom-cruise.html
-
-**Microsoft’s Global Outage and Fixes: What We Know**\
-`The company described “encouraging” progress on efforts to overcome a second day of disruptions to its email, messaging and other services.`\
-https://www.nytimes.com/2026/11/13/technology/microsoft-outage-what-to-know.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a French thriller, a sensuous Spanish drama, an Argentine dark comedy and more.`\
-https://www.nytimes.com/2026/11/13/movies/international-movies-streaming.html
-
-**Flashback: Your Weekly History Quiz, Nov. 14, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/11/13/upshot/flashback.html
-
-**Pope Leo XIV Returns to ‘Homeland’ Peru as Part of South America Tour**\
-`Pope Leo XIV returned to Peru, the country the American-born pontiff called his second home, for the final leg of his 12-day tour of South America.`\
-https://www.nytimes.com/video/world/americas/100000011282248/pope-leo-xiv-peru-trip.html
 
