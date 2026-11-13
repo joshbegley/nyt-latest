@@ -1,3 +1,7 @@
+**What’s. The Deal. With Maybelline’s. New Slogan.**\
+`An attempt to update one of the most famous tag lines in marketing history left many consumers scratching their heads.`\
+https://www.nytimes.com/2026/11/13/style/maybe-its-maybelline-slogan.html
+
 **Europe Agrees on a Team to Represent It in Talks With Russia**\
 `After coveting a seat in the Ukraine war discussions, Europe is poised to get one. The continent wants to fill it with a six-member team.`\
 https://www.nytimes.com/2026/11/13/world/europe/europe-ukraine-talks-russia.html
