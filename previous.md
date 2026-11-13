@@ -1,3 +1,7 @@
+**Deed Theft Is Rising, Along With Property Values**\
+`The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
+https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
+
 **Rosalía and Milo J Win Big: 6 Key Moments From the Latin Grammys**\
 `The performance-heavy show featured spectacles from Anitta, Daddy Yankee and more, plus a stirring tribute to José Alfredo Jiménez.`\
 https://www.nytimes.com/2026/11/13/arts/music/rosalia-milo-j-latin-grammys-winners.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/world/asia/china-military-purge-zhang-shengmi
 **‘The Visitors’ Review: A Sister’s Call for Help? Let the Squabbles Begin.**\
 `In Bryna Turner’s new play, a woman in need of a kidney transplant asks her siblings to make a sacrifice, and prove their love.`\
 https://www.nytimes.com/2026/11/13/theater/the-visitors-review-mary-wiseman.html
-
-**Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
-`The new epicenter of Congo’s fast-spreading outbreak is a region scarred by rebel violence. Responders are struggling to help it.`\
-https://www.nytimes.com/2026/11/13/world/africa/ebola-congo-isis.html
 

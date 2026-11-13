@@ -1,3 +1,7 @@
+**Deed Theft Is Rising, Along With Property Values**\
+`The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
+https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
+
 **Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
 `Throughout the years, tech giants have had mixed records after losing visionary founders who propelled their success. Successors with tech expertise helps.`\
 https://www.nytimes.com/2026/11/13/technology/nvidia-ceo-jen-huang-loss.html
