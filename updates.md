@@ -1,3 +1,15 @@
+**Ship Crashes Into Docked Riverboat in New Orleans Port**\
+`The river boat appeared to have capsized and taken on water after being struck by a ship. The river boat was set to begin an eight-day excursion starting on Friday.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
+**N.Y.C. Officials Expand Collapse Inquiry as Families Demand Answers**\
+`The Department of Buildings has also hired an engineering firm to provide an independent report on what caused the three-story building to collapse, killing eight people.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-inquiry-families.html
+
+**Supreme Court Set to Hear Trump’s Ban on Asylum Claims at Border**\
+`Lower courts have ruled against the policy, which has effectively shut down avenues for people seeking asylum protections and to remain in the United States.`\
+https://www.nytimes.com/2026/11/13/us/politics/supreme-court-trump-asylum-border.html
+
 **‘Get Focused on London’: How Iran’s Agents Attacked European Targets**\
 `A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
 https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html

@@ -1,3 +1,15 @@
+**Ship Crashes Into Docked Riverboat in New Orleans Port**\
+`The river boat appeared to have capsized and taken on water after being struck by a ship. The river boat was set to begin an eight-day excursion starting on Friday.`\
+https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
+
+**N.Y.C. Officials Expand Collapse Inquiry as Families Demand Answers**\
+`The Department of Buildings has also hired an engineering firm to provide an independent report on what caused the three-story building to collapse, killing eight people.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-inquiry-families.html
+
+**Supreme Court Set to Hear Trump’s Ban on Asylum Claims at Border**\
+`Lower courts have ruled against the policy, which has effectively shut down avenues for people seeking asylum protections and to remain in the United States.`\
+https://www.nytimes.com/2026/11/13/us/politics/supreme-court-trump-asylum-border.html
+
 **‘Get Focused on London’: How Iran’s Agents Attacked European Targets**\
 `A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
 https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/11/13/briefing/jensen-huang.html
 **‘The Headlines’ News Quiz: Nov. 13, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/13/podcasts/the-headlines/the-headlines-news-quiz-nov-13-2026.html
-
-**Hasan Piker on Liberal Zionism**\
-`On “The Ezra Klein Show,” the political commentator Hasan Piker discusses his views on liberal Zionism with Ezra Klein.`\
-https://www.nytimes.com/video/opinion/100000011278289/hasan-piker-on-liberal-zionism.html
-
-**Hasan Piker on How Democrats Should Wield Power**\
-`Hasan Piker wants Democrats to confront Trump with “files and trials” once they control the House and Senate. On “The Ezra Klein Show,” he explains his agenda for the Democratic Party.`\
-https://www.nytimes.com/video/opinion/100000011278291/hasan-piker-on-how-democrats-should-wield-power.html
-
-**Despite Nvidia’s Drop, Stocks Push Ahead**\
-`A drop in Nvidia shares after the ouster of the company’s chief executive has not spread to the rest of the market, as stocks have held their ground broadly.`\
-https://www.nytimes.com/2026/11/13/business/nvidia-turmoil-stock-market.html
 
