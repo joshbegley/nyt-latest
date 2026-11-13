@@ -1,3 +1,7 @@
+**A Scorecard for Huang’s Exit From Nvidia**\
+`The ouster of Jensen Huang from the chipmaker he helped found is reverberating throughout Silicon Valley, Washington and beyond.`\
+https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercussions.html
+
 **A Restaurant Hosted Ramaswamy After His Attack Ad. It’s Paying a Price.**\
 `When a popular restaurant agreed to serve as a campaign stop for G.O.P. candidates ahead of Election Day, longtime customers turned against it and Medina, Ohio, was left reeling.`\
 https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
