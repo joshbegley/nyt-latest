@@ -1,3 +1,7 @@
+**What’s. The Deal. With Maybelline’s. New Slogan.**\
+`An attempt to update one of the most famous tag lines in marketing history left many consumers scratching their heads.`\
+https://www.nytimes.com/2026/11/13/style/maybe-its-maybelline-slogan.html
+
 **Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
 `Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
 https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-netanyahu-racism-arabs.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/podcasts/choosing-a-guest-bed-people-will-act
 **The Fall of Jensen Huang: How the Nvidia Scandal Unfolded**\
 `Tracing the undoing of one of the most influential figures in the A.I. boom.`\
 https://www.nytimes.com/interactive/2026/11/13/technology/nvidia-jensen-huang.html
-
-**Nvidia Lost Its Founding C.E.O. Can It Keep Its Momentum?**\
-`Throughout the years, tech giants have had mixed records after losing visionary founders who propelled their success. Successors with tech expertise helps.`\
-https://www.nytimes.com/2026/11/13/technology/nvidia-ceo-jen-huang-loss.html
 
