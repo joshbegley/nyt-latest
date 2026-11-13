@@ -1,3 +1,7 @@
+**SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
+`The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
+https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
+
 **Use Humor to Defuse Awkward Moments**\
 `If you can laugh at yourself, other people will feel more at ease around you, expert say.`\
 https://www.nytimes.com/2026/11/13/well/laugh-humor-self-acceptance.html
