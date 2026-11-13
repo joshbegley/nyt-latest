@@ -1,3 +1,7 @@
+**SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
+`The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
+https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
+
 **Deed Theft Is Rising, Along With Property Values**\
 `The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
 https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/books/review/nyt-nypl-best-illustrated-childr
 **After Xi Purges China’s Generals, a Military Inquisitor Rises**\
 `The rise of Zhang Shengmin suggests that China’s top brass remains embroiled in investigations, potentially complicating preparations for war over Taiwan.`\
 https://www.nytimes.com/2026/11/13/world/asia/china-military-purge-zhang-shengmin-taiwan.html
-
-**‘The Visitors’ Review: A Sister’s Call for Help? Let the Squabbles Begin.**\
-`In Bryna Turner’s new play, a woman in need of a kidney transplant asks her siblings to make a sacrifice, and prove their love.`\
-https://www.nytimes.com/2026/11/13/theater/the-visitors-review-mary-wiseman.html
 
