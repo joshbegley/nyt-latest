@@ -1,3 +1,11 @@
+**Local Leaders Call for Answers in Deadly Brooklyn Building Collapse**\
+`New York City officials gathered at a news conference in Flatbush on Friday in a show of support for the families affected by an apartment building that partially collapsed on Wednesday, killing eight people.`\
+https://www.nytimes.com/video/nyregion/100000011282609/brooklyn-building-collapse-answers-accountability.html
+
+**How Does a 74-Year-Old in Argentina Escape House Arrest on the Fifth Floor?**\
+`The answer involves a heating pad, a bomb scare and animal fats. Police are still searching for an Italian man facing extradition on terrorism charges from the 1970s.`\
+https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escapes-house-arrest.html
+
 **Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
 `Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying 129 people in New Orleans on Friday.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
 **Fewer Fed Meetings Raise Stakes of Warsh’s Communications**\
 `The Federal Reserve will vote on interest rates less frequently beginning next year as part of a plan by the central bank’s chairman, Kevin M. Warsh, to overhaul how it operates.`\
 https://www.nytimes.com/2026/11/13/business/federal-reserve-meetings-warsh.html
-
-**Wall Street Braces for Anthropic’s Spending**\
-`The company’s financial picture may get murky as it deals with employee stock compensation and the growing costs of artificial intelligence.`\
-https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
-
-**Why Anthropic’s Dario Amodei Has Angered OpenAI and Other A.I. Peers**\
-`Dario Amodei, the company’s chief executive, publicly frets about the dangers of artificial intelligence and has made enemies of his peers along the way.`\
-https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.html
 
