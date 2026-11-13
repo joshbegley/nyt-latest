@@ -1,3 +1,11 @@
+**Are You Being Nice to the Bots?**\
+`What’s the harm in being nice to a chatbot? With tech companies warning of potential future A.I. sentience, Spencer Klavan, an associate editor for the Claremont Review of Books, argues that treating chatbots like humans puts us on a slippery slope of redefining moral personhood. “We won’t really be elevating the moral status of A.I.,” he argues. All we’ll be doing is reducing living human beings “to the equivalent of a box of equations.”`\
+https://www.nytimes.com/video/opinion/100000011268114/are-you-being-nice-to-the-bots.html
+
+**Wall Street Makes Its Pitch for Anthropic’s I.P.O.**\
+`As market uncertainty deepens, investment banks are on a roadshow to sell investors on what could be the largest public offering ever.`\
+https://www.nytimes.com/2026/11/13/business/anthropic-ipo-roadshow.html
+
 **How Wall Street Is Pitching Anthropic’s I.P.O.: ‘Too Crucial to Fail’**\
 `As market uncertainty deepens, investment banks are on a roadshow to sell investors on what could be the largest public offering ever.`\
 https://www.nytimes.com/2026/11/13/business/anthropic-ipo-roadshow.html
