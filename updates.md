@@ -1,3 +1,7 @@
+**Seth Meyers Is Excited by Scott Colom’s Historic Win in Mississippi**\
+`“This is the best news to come out of Mississippi since — this is the best news to come out of Mississippi!” Meyers said.`\
+https://www.nytimes.com/2026/11/13/arts/television/late-night-seth-meyers-scott-colom.html
+
 **America Will Have Less Influence in the Middle East. Is That So Bad?**\
 `A smaller footprint means lower costs and more responsibility from Gulf allies.`\
 https://www.nytimes.com/2026/11/13/opinion/america-iran-war-middle-east.html
