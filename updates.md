@@ -1,3 +1,19 @@
+**Howard Lutnick Has Got to Go**\
+`The secretary of commerce is almost as responsible for Nvidia’s crisis as the fallen chief executive Jensen Huang.`\
+https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
+
+**Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
+`Travelers are entitled to a refund if your flight is canceled, regardless of the reason, or if a flight is significantly delayed or changed and you decide not to take it.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
+
+**How Does a 74-Year-Old in Argentina Escape House Arrest on the Fifth Floor?**\
+`It involved a heating pad, animal fat and a bomb scare. The police are still looking for an Italian man facing extradition on 1970s-era terrorism charges.`\
+https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escapes-house-arrest.html
+
+**Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
+`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying nearly 200 people on Friday in New Orleans.`\
+https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
+
 **Airports Fill Up With Stuck Families and Stranded Travelers**\
 `The emergency ground disrupted travel plans across the country.`\
 https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html

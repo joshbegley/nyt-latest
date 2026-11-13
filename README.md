@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
 `Senator Chris Van Hollen of Maryland said he wouldn’t run for president to focus on his leadership challenge to Senator Chuck Schumer, who remained confident he would prevail.`\
 https://www.nytimes.com/2026/11/13/us/politics/democrats-senate-leader.html
 
-**The last ground stop in 2023 came after a pilot warning system went down.**\
-`(No description)`\
+**Last Ground Stop, in 2023, Came After a Pilot Warning System Went Down**\
+`The outage that year lasted around 90 minutes.`\
 https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
 
 **Surfers Scramble to Mavericks in California to Catch Building-Size Waves**\
