@@ -119,7 +119,7 @@ https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
 https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
 
 **Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
-`The company said that some of its servers were unexpectedly unavailable, straining the remaining infrastructure, and that it was working to bring users back online.`\
+`The outage began early Thursday afternoon, causing problems for offices, agencies and individuals around the globe.`\
 https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
 
 **Roger Taylor, Drummer for Duran Duran, Quits Band Because of Tinnitus**\

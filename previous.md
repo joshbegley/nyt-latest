@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 13, 2026**\
+`Mike Graczyk makes his New York Times debut.`\
+https://www.nytimes.com/2026/11/12/crosswords/daily-puzzle-2026-11-13.html
+
 **Chris Van Hollen Set to Challenge Chuck Schumer for Senate Majority Leader**\
 `Senator Chris Van Hollen of Maryland has emerged as a favorite of Democrats seeking an alternative to Senator Chuck Schumer, who says he has the votes to win.`\
 https://www.nytimes.com/2026/11/12/us/politics/van-hollen-schumer-democrats-majority-leader.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/opinion/100000011233698/listen.html
 **How Does Search, Rescue and Recovery Work for a Building Collapse?**\
 `The Fire Department’s efforts in Brooklyn are following a standard playbook that has been deployed countless times after similar disasters around the world.`\
 https://www.nytimes.com/2026/11/12/nyregion/search-rescue-recovery.html
-
-**Robert K. Brown, Publisher of Soldier of Fortune Magazine, Has Died**\
-`An Army Green Beret and revered combat veteran, he created a magazine that was a purveyor of gonzo military journalism. He was 93.`\
-https://www.nytimes.com/2026/11/12/obituaries/robert-k-brown-dead.html
 
