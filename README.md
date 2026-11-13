@@ -1,3 +1,7 @@
+**Rosalía and Milo J Win Big: 6 Key Moments From the Latin Grammys**\
+`The performance-heavy show featured spectacles from Anitta, Daddy Yankee and more, plus a stirring tribute to José Alfredo Jiménez.`\
+https://www.nytimes.com/2026/11/13/arts/music/rosalia-milo-j-latin-grammys-winners.html
+
 **A Scorecard for Huang’s Exit From Nvidia**\
 `The ouster of Jensen Huang from the chipmaker he helped found is reverberating throughout Silicon Valley, Washington and beyond.`\
 https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercussions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/theater/the-visitors-review-mary-wiseman.html
 **Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
 `The new epicenter of Congo’s fast-spreading outbreak is a region scarred by rebel violence. Responders are struggling to help it.`\
 https://www.nytimes.com/2026/11/13/world/africa/ebola-congo-isis.html
-
-**5 Muscles to Strengthen as You Age**\
-`We all know we need to strength train to move well and feel strong. But which exercises are the most important?`\
-https://www.nytimes.com/2026/11/13/well/move/important-muscles-longevity-advice.html
 
