@@ -1,3 +1,7 @@
+**5 Takeaways from Joe Biden’s Memoir: The Debate, Dropping Out and Advice From Romney**\
+`The 46th president defends his decision to run for re-election, which many in his party now regard as a mistake, and revisits the disastrous debate that forced him to end his campaign.`\
+https://www.nytimes.com/2026/11/13/us/politics/joe-biden-new-memoir-takeaways.html
+
 **A Nationwide Ground Stop**\
 `Also, Russia lays out its hard-line demands. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
