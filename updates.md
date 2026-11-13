@@ -1,3 +1,27 @@
+**Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
+`A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
+
+**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
+`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
+
+**Bloomberg Will Seed a New Pro-Charter School Group With $1 Million**\
+`Great Public Schools New York will enter the charter school battle in New York City with money from Michael R. Bloomberg and be led by a former adviser to Andrew M. Cuomo.`\
+https://www.nytimes.com/2026/11/13/nyregion/bloomberg-charter-schools-super-pac.html
+
+**Where the M.T.A.’s Vintage Bus Fleet Goes to Get a Makeover**\
+`At the Zerega Bus Maintenance and Training Facility in the Bronx, bus models of yore are refurbished to look — and run — just as well as they did in their heyday.`\
+https://www.nytimes.com/2026/11/13/nyregion/vintage-mta-bus-restoration.html
+
+**NYT Spelling Bee Answers for November 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/13/crosswords/spelling-bee-forum.html
+
+**U.S. Envoys Urge Moscow to Include Europe in Peace Talks**\
+`President Trump’s envoys, Steve Witkoff and Jared Kushner, asked President Vladimir V. Putin of Russia to bring Europe into talks on the war in Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011281803/russia-ukraine-putin-trump-europe.html
+
 **Seth Meyers Is Excited by Scott Colom’s Historic Win in Mississippi**\
 `“This is the best news to come out of Mississippi since — this is the best news to come out of Mississippi!” Meyers said.`\
 https://www.nytimes.com/2026/11/13/arts/television/late-night-seth-meyers-scott-colom.html

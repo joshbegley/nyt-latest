@@ -1,3 +1,27 @@
+**Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
+`A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
+
+**Brooklyn D.A. Opens Criminal Inquiry Into Flatbush Building Collapse**\
+`The collapse killed at least eight people and left 18 others injured. As rescue efforts continued, the cause remained under investigation.`\
+https://www.nytimes.com/2026/11/13/nyregion/brooklyn-flatbus-building-collapse-investigation.html
+
+**Bloomberg Will Seed a New Pro-Charter School Group With $1 Million**\
+`Great Public Schools New York will enter the charter school battle in New York City with money from Michael R. Bloomberg and be led by a former adviser to Andrew M. Cuomo.`\
+https://www.nytimes.com/2026/11/13/nyregion/bloomberg-charter-schools-super-pac.html
+
+**Where the M.T.A.’s Vintage Bus Fleet Goes to Get a Makeover**\
+`At the Zerega Bus Maintenance and Training Facility in the Bronx, bus models of yore are refurbished to look — and run — just as well as they did in their heyday.`\
+https://www.nytimes.com/2026/11/13/nyregion/vintage-mta-bus-restoration.html
+
+**NYT Spelling Bee Answers for November 13, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/13/crosswords/spelling-bee-forum.html
+
+**U.S. Envoys Urge Moscow to Include Europe in Peace Talks**\
+`President Trump’s envoys, Steve Witkoff and Jared Kushner, asked President Vladimir V. Putin of Russia to bring Europe into talks on the war in Ukraine.`\
+https://www.nytimes.com/video/world/europe/100000011281803/russia-ukraine-putin-trump-europe.html
+
 **Seth Meyers Is Excited by Scott Colom’s Historic Win in Mississippi**\
 `“This is the best news to come out of Mississippi since — this is the best news to come out of Mississippi!” Meyers said.`\
 https://www.nytimes.com/2026/11/13/arts/television/late-night-seth-meyers-scott-colom.html
@@ -169,28 +193,4 @@ https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-buildin
 **Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
 `The outage began early Thursday afternoon, causing problems for offices, agencies and individuals around the globe.`\
 https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
-
-**Roger Taylor, Drummer for Duran Duran, Quits Band Because of Tinnitus**\
-`Roger Taylor, who has played with the Grammy-winning synth-pop group for decades, said his worsening tinnitus was forcing him to retire.`\
-https://www.nytimes.com/2026/11/12/arts/music/duran-duran-roger-taylor-tinnitus-drummer.html
-
-**Kalshi Severs Its Relationship With Donald Trump Jr.**\
-`The country’s largest prediction market says it ended its contract with the president’s eldest son after his investment firm took a larger stake in its prime competitor.`\
-https://www.nytimes.com/2026/11/12/us/politics/kalshi-donald-trump-jr.html
-
-**Farewell to Stanley Zabar, the ‘Mayor’ of the Upper West Side**\
-`For decades he helped steer Zabar’s, a food institution. He lived for “the store,” his family and his Manhattan neighborhood.`\
-https://www.nytimes.com/2026/11/12/nyregion/stanley-zabar-upper-west-side.html
-
-**Army Officer Accused of Trying to Spy for Russia Is Afghan War Veteran**\
-`The officer, who served at a NATO base in Britain, is expected to be charged in the coming days, two officials said.`\
-https://www.nytimes.com/2026/11/12/world/europe/army-britain-arrest-spy-russia.html
-
-**The End of Russia’s Bravest Newspaper**\
-`For more than 30 years, the paper covered an increasingly repressive state under Vladimir Putin.`\
-https://www.nytimes.com/2026/11/12/world/russia-novaya-gazeta-nvidia-gaza.html
-
-**Employee of Prestigious Law Firm Is Charged With Insider Trading**\
-`A document processor who had worked at the firm since 1989 made about $70,000 in illicit profits off inside knowledge, prosecutors said.`\
-https://www.nytimes.com/2026/11/12/nyregion/insider-trading-indictment-cravath-swaine-moore.html
 

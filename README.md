@@ -1,3 +1,7 @@
+**‘Heartland’ Review: A Lil’ Bit Country Noir**\
+`As a former country music star, Jessica Chastain strides into this Nashville-set thriller just in time for the Country Music Association Awards.`\
+https://www.nytimes.com/2026/11/13/movies/heartland-review-netflix.html
+
 **Video From Inside Brooklyn Building That Collapsed Shows Walls Caving In**\
 `A video verified by The New York Times shows a family’s reaction as their Brooklyn apartment building collapsed. They survived a catastrophe that killed eight other people.`\
 https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-nyc-flatbush-video.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/12/world/americas/mexico-prosecutor-cia-us.html
 **Two Children and 6 Adults Among Deceased After Brooklyn Building Collapse**\
 `A Brooklyn apartment building collapsed into a construction site on Wednesday, killing at least 8 people.`\
 https://www.nytimes.com/video/nyregion/100000011280428/brooklyn-new-york-building-collapse-mamdani.html
-
-**Outlook, Teams and More Microsoft Programs Disrupted by Outage**\
-`The outage began early Thursday afternoon, causing problems for offices, agencies and individuals around the globe.`\
-https://www.nytimes.com/2026/11/12/business/microsoft-outlook-down-outage-email.html
 
