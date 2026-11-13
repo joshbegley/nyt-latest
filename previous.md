@@ -1,3 +1,23 @@
+**Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
+`Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
+https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html
+
+**Jensen Huang’s Leather Jacket Isn’t Helping Him Right Now**\
+`The Nvidia founder’s signature look branded him as a maverick. Does that image read differently now?`\
+https://www.nytimes.com/2026/11/13/style/jensen-huang-nvidia-leather-jacket-ai.html
+
+**Young Cinephiles**\
+`We look at why Gen Z has been hitting the movie theater.`\
+https://www.nytimes.com/2026/11/13/briefing/young-cinephiles.html
+
+**Gavin Newsom Just Did Something Incredibly Important**\
+`Governor Newsom’s commutations should encourage others elected officials to be more active guardians of justice.`\
+https://www.nytimes.com/2026/11/13/opinion/sunday/gavin-newsom-clemency-california.html
+
+**Got Frozen Tortellini? You’re Halfway to This Hearty Dinner.**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/13/dining/got-frozen-tortellini-youre-halfway-to-this-hearty-dinner.html
+
 **Sister June Carpenter, the Oldest Shaker, Has Died**\
 `Now there are only two practicing members of the last active Shaker community in the United States. Sister June was 88.`\
 https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/13/us/christian-right-collapse.html
 **Which $1.3 Million Home in London Would You Choose?**\
 `For sale: A converted warehouse with a rooftop terrace, a historic waterfront penthouse and a cozy family home with a garden.`\
 https://www.nytimes.com/2026/11/13/realestate/which-1-3-million-home-in-london-would-you-choose.html
-
-**A Restaurant Hosted Ramaswamy After His Attack Ad. It’s Paying a Price.**\
-`When a popular restaurant agreed to serve as a campaign stop for G.O.P. candidates ahead of Election Day, longtime customers turned against it and Medina, Ohio, was left reeling.`\
-https://www.nytimes.com/2026/11/13/us/medina-ohio-boycott-restaurant-ramaswamy.html
-
-**Offset Is Tired of Being Rap’s Bad Guy: ‘I Got Lost’**\
-`His superstar groupmate was killed. His marriage imploded. Then, Offset got shot. He’s back to own it all.`\
-https://www.nytimes.com/2026/11/13/arts/music/popcast-interview-offset.html
-
-**Can You Guess When This Photo Was Taken?**\
-`We’ve selected five pictures from the millions in our archives. See if you can figure out when they’re from.`\
-https://www.nytimes.com/interactive/2026/11/13/arts/photo-quiz-game-175.html
-
-**Rex Reed’s Longtime Dakota Apartment Is on the Market**\
-`The asking price for the two-bedroom co-op, which the film critic bought nearly six decades ago, is $5.99 million.`\
-https://www.nytimes.com/2026/11/13/realestate/rex-reed-dakota-apartment-market.html
-
-**How ‘The Art of the Deal’ Became an (Unauthorized) Absurdist Musical**\
-`Undeterred by unanswered rights requests, a theater collective turned President Trump’s 1987 best seller into a sold-out stage hit — with dancing gold bars and a giant banana.`\
-https://www.nytimes.com/2026/11/13/theater/art-of-the-deal-musical-die-kunst-des-deals.html
 

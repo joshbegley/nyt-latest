@@ -1,3 +1,23 @@
+**Silicon Valley Start-Ups Face a Future Without Jensen Huang’s Money**\
+`Mr. Huang championed start-ups, with Nvidia holding $48 billion worth of stakes in 229 private companies, including OpenAI and Anthropic, at the end of July.`\
+https://www.nytimes.com/2026/11/13/technology/jensen-huang-silicon-valley-start-ups.html
+
+**Jensen Huang’s Leather Jacket Isn’t Helping Him Right Now**\
+`The Nvidia founder’s signature look branded him as a maverick. Does that image read differently now?`\
+https://www.nytimes.com/2026/11/13/style/jensen-huang-nvidia-leather-jacket-ai.html
+
+**Young Cinephiles**\
+`We look at why Gen Z has been hitting the movie theater.`\
+https://www.nytimes.com/2026/11/13/briefing/young-cinephiles.html
+
+**Gavin Newsom Just Did Something Incredibly Important**\
+`Governor Newsom’s commutations should encourage others elected officials to be more active guardians of justice.`\
+https://www.nytimes.com/2026/11/13/opinion/sunday/gavin-newsom-clemency-california.html
+
+**Got Frozen Tortellini? You’re Halfway to This Hearty Dinner.**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/13/dining/got-frozen-tortellini-youre-halfway-to-this-hearty-dinner.html
+
 **Sister June Carpenter, the Oldest Shaker, Has Died**\
 `Now there are only two practicing members of the last active Shaker community in the United States. Sister June was 88.`\
 https://www.nytimes.com/2026/11/13/us/june-carpenter-dead.html
