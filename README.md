@@ -1,3 +1,11 @@
+**F.A.A. Declares Nationwide Ground Stop**\
+`The F.A.A. grounded all flights nationwide, citing “extraordinary circumstances” and “reasons of safety.”`\
+https://www.nytimes.com/2026/11/13/world/americas/nationwide-ground-stop-flights-faa.html
+
+**Does Manifesting Actually Work?**\
+`Influencers said a cosmic portal opened at 11:11 on 11/11 — that it was a moment to successfully send wishes into the universe. We look at the science behind that.`\
+https://www.nytimes.com/2026/11/13/briefing/does-manifesting-actually-work.html
+
 **Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
 `They helped the G.O.P. avoid more House midterm losses — on top of the advantage they already have from gerrymandering.`\
 https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.h
 **Deed Theft Is Rising, Along With Property Values**\
 `The victims are often older people or immigrants, with thieves going after vacant land or unoccupied homes. But there are ways to protect yourself.`\
 https://www.nytimes.com/2026/11/13/your-money/deed-title-theft-houses.html
-
-**Rosalía and Milo J Win Big: 6 Key Moments From the Latin Grammys**\
-`The performance-heavy show featured spectacles from Anitta, Daddy Yankee and more, plus a stirring tribute to José Alfredo Jiménez.`\
-https://www.nytimes.com/2026/11/13/arts/music/rosalia-milo-j-latin-grammys-winners.html
-
-**A Scorecard for Huang’s Exit From Nvidia**\
-`The ouster of Jensen Huang from the chipmaker he helped found is reverberating throughout Silicon Valley, Washington and beyond.`\
-https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercussions.html
 
