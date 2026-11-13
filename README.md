@@ -1,3 +1,7 @@
+**African Miss Universe Contestants Struggle to Get U.S. Visas**\
+`A crackdown on entry by some citizens of African countries by the U.S. immigration officials means that some contestants might not get visas in time to attend the pageant in Puerto Rico this month.`\
+https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
+
 **Offset on Getting Shot: ‘I Broke My Mama’s Heart’**\
 `On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
 https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/business/dealbook/huang-nvidia-ouster-repercu
 **Jensen Huang’s Fall Costs Asia an A.I. Ambassador to the U.S.**\
 `The ex-Nvidia C.E.O. was a bridge between companies and governments. His exit will reverberate, especially in China where it could accelerate a self-reliance drive.`\
 https://www.nytimes.com/2026/11/13/business/jensen-huang-nvidia-china-asia.html
-
-**‘Lincoln in the Bardo’ Pulls the Metropolitan Opera Into the YouTube Era**\
-`With all live performances sold out, the Metropolitan Opera is streaming “Lincoln in the Bardo” on YouTube free this Saturday.`\
-https://www.nytimes.com/2026/11/13/arts/music/lincoln-in-the-bardo-metropolitan-opera-youtube-streaming.html
 
