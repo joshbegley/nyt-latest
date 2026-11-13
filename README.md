@@ -1,3 +1,15 @@
+**Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
+`Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
+https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-accuses-netanyahu-of-inciting-hatred-against-arabs.html
+
+**What Should the New Congress Do?**\
+`A second sampling of responses to an Opinion article about ideas for the new Congress. Also: President Trump’s threat.`\
+https://www.nytimes.com/2026/11/13/opinion/democrats-congress-ideas.html
+
+**Trump Signals New Strategy on Iran: A Waiting Game**\
+`The administration appears to be moving toward a long-term economic pressure campaign as President Trump expresses little urgency in securing a nuclear agreement.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-iran-strategy.html
+
 **Timing of Climate Science Reports Ignites a Hot Fight at U.N. Talks**\
 `Several countries that rely heavily on fossil fuels want to delay the next round of scientific assessments that governments use to inform their climate policies.`\
 https://www.nytimes.com/2026/11/13/climate/cop31-turkey-ipcc-climate-report.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/13/technology/nvidia-ceo-jen-huang-loss.html
 **Jensen Huang’s Fall Is Bad for Nvidia but Good for America**\
 `Jensen Huang was a big reason Nvidia preserved the ability to sell chips to China. His departure from the company might change that.`\
 https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia.html
-
-**Hasan Piker Wants to Win**\
-`The socialist Twitch streamer describes himself as “pragmatic” when it comes to how Democrats wield power.`\
-https://www.nytimes.com/2026/11/13/opinion/ezra-klein-podcast-hasan-piker.html
-
-**The Worst Thing Democrats Could Do Right Now**\
-`Democratic power in the final years of the Trump presidency must look, feel and be different from that of the past.`\
-https://www.nytimes.com/2026/11/13/opinion/democrats-trump-congress.html
-
-**‘The Body’ Talks Like ‘Mean Girls’ and Walks Like ‘The Crucible’**\
-`Quinn Shephard’s new Netflix drama uses millennial nostalgia to eerie ends.`\
-https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
 
