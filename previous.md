@@ -1,3 +1,15 @@
+**Stephen Kovacevich, a Pianist of Quiet Intensity, Has Died**\
+`During his long career, he was hailed by critics for a tenderness matched with vigorous intelligence. He was 86.`\
+https://www.nytimes.com/2026/11/13/arts/music/stephen-kovacevich-dead.html
+
+**Book Review: ‘Promise Me, America,’ by Joe Biden**\
+`The former president’s new memoir trumpets his achievements while justifying his decision to run for a second term and his embrace of Israel’s war in Gaza.`\
+https://www.nytimes.com/2026/11/13/books/review/promise-me-america-joe-biden.html
+
+**Tom Cruise Leads Toasts for Steven Spielberg at MoMa Film Gala**\
+`Bruce Springsteen, Martin Scorsese and Drew Barrymore, among others, paid tribute to the filmmaker at the Museum of Modern Art’s annual film gala.`\
+https://www.nytimes.com/2026/11/13/style/steven-spielberg-moma-colbert-tom-cruise.html
+
 **Microsoft’s Global Outage and Fixes: What We Know**\
 `The company described “encouraging” progress on efforts to overcome a second day of disruptions to its email, messaging and other services.`\
 https://www.nytimes.com/2026/11/13/technology/microsoft-outage-what-to-know.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/13/arts/television/the-body-review-netflix.html
 **The Swingiest State Has Gone Very Red**\
 `A lot of Republicans have moved to Florida since Covid, and those newcomers really like the way Republicans are running it.`\
 https://www.nytimes.com/2026/11/13/opinion/florida-republicans-democrats.html
-
-**Democrats Eye Strict New Limits on White House Budget Powers**\
-`The incoming majority is also planning aggressive oversight of the White House budget director, who appears to be working to install an ally to monitor the budget office’s handling of federal spending.`\
-https://www.nytimes.com/2026/11/13/business/democrats-eye-strict-new-limits-on-white-house-budget-powers.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/11/13/movies/movie-review-roundup.html
-
-**A Catio Can Just Be a Box. Here’s How to Build One.**\
-`Knowing how to construct a box is a useful skill for anyone, even those without cats.`\
-https://www.nytimes.com/2026/11/13/realestate/a-catio-can-just-be-a-box-heres-how-to-build-one.html
 
