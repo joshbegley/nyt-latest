@@ -1,3 +1,11 @@
+**Wall Street Braces for Anthropic’s Spending**\
+`The company’s financial picture may get murky as it deals with employee stock compensation and the growing costs of artificial intelligence.`\
+https://www.nytimes.com/2026/11/13/technology/anthropic-ipo-spending-plans.html
+
+**Why Anthropic’s Dario Amodei Has Angered OpenAI and Other A.I. Peers**\
+`Dario Amodei, the company’s chief executive, publicly frets about the dangers of artificial intelligence and has made enemies of his peers along the way.`\
+https://www.nytimes.com/2026/11/13/technology/anthropic-dario-amodei-ai-openai.html
+
 **SpaceX Aims for Starship Launch on Friday. Here’s What to Know.**\
 `The audacious maneuver planned for Friday is a key step toward the company’s goal of making rockets fully reusable.`\
 https://www.nytimes.com/2026/11/13/science/spacex-launch-starship-rocket-catch.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/13/movies/richard-avedon-documentary-netflix.htm
 **Why Aid Isn’t Reaching Ebola’s Epicenter**\
 `The Ebola outbreak in the eastern Democratic Republic of the Congo has a new epicenter, one largely isolated from aid by an armed group that has killed and kidnapped aid workers. Declan Walsh, our chief Africa correspondent, reports from a town where health workers are struggling to contain the outbreak.`\
 https://www.nytimes.com/video/world/africa/100000011257751/why-aid-isnt-reaching-ebolas-epicenter.html
-
-**The 2026 New York Times/New York Public Library Best Illustrated Children’s Books**\
-`Take a peek at this year’s winners.`\
-https://www.nytimes.com/2026/11/13/books/review/nyt-nypl-best-illustrated-childrens-books-award.html
-
-**After Xi Purges China’s Generals, a Military Inquisitor Rises**\
-`The rise of Zhang Shengmin suggests that China’s top brass remains embroiled in investigations, potentially complicating preparations for war over Taiwan.`\
-https://www.nytimes.com/2026/11/13/world/asia/china-military-purge-zhang-shengmin-taiwan.html
 
