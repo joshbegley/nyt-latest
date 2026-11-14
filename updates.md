@@ -1,3 +1,7 @@
+**Live Updates: F.A.A. Ends Nationwide Ground Stop but Delays Persist**\
+`The stoppage stranded thousands of passengers at airports across the country. Transportation Secretary Sean Duffy said old equipment was overloaded, causing “instability” in radar communications.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Officials Blame Outdated Technology for Nationwide Ground Stop**\
 `Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
