@@ -1,3 +1,7 @@
+**House Democrats Open Inquiry After Incoming Lawmaker Accused of Sexual Harassment**\
+`The House Democratic campaign arm is looking into an allegation against Representative-elect Brian Poindexter of Ohio. His campaign says he “gave what he thought was an innocuous compliment to a volunteer.”`\
+https://www.nytimes.com/2026/11/13/us/politics/house-democrats-poindexter-investigation.html
+
 **How the University of North Carolina Tried to Avoid Trump’s Wrath**\
 `The University of North Carolina’s chancellor tried to protect the school from the Trump administration. Work on cancer, suicide, AIDS and coronaviruses was hit anyway.`\
 https://www.nytimes.com/2026/11/13/us/university-north-carolina-science-research-cuts-trump.html
