@@ -1,3 +1,7 @@
+**When Disaster Hit Next Door in Flatbush**\
+`What it felt like when the wall came down in Brooklyn.`\
+https://www.nytimes.com/2026/11/14/nyregion/flatbush-building-collapse-neighbors.html
+
 **Starship Live Updates: SpaceX Rocket Headed for Milestone Landing in Texas**\
 `SpaceX’s Starship spacecraft has dropped out of orbit and will attempt to land back at the Starbase launch facility. If it is successful, it will mark a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch

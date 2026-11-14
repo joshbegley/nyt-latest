@@ -1,3 +1,7 @@
+**When Disaster Hit Next Door in Flatbush**\
+`What it felt like when the wall came down in Brooklyn.`\
+https://www.nytimes.com/2026/11/14/nyregion/flatbush-building-collapse-neighbors.html
+
 **She Was a CBS News Producer When Few Women Were**\
 `Linda Mason started in an entry-level job at CBS Radio in 1966 and rose through the news division’s ranks to senior vice president. She was 84.`\
 https://www.nytimes.com/2026/11/14/business/media/linda-mason-dead-cbs-news.html
@@ -173,12 +177,4 @@ https://www.nytimes.com/2026/11/14/pageoneplus/corrections-nov-14-2026.html
 **Olivia Wilde on How the ‘Don’t Worry Darling’ Tabloid Drama Changed Her**\
 `On “The Interview,” the actor and director Olivia Wilde discussed how she handled the rumors and attention that surrounded her 2022 movie, “Don’t Worry Darling.”`\
 https://www.nytimes.com/video/podcasts/100000011276308/olivia-wilde-on-how-the-dont-worry-darling-tabloid-drama-changed-her.html
-
-**Olivia Wilde on Finding the Courage to Change Your Life**\
-`On “The Interview,” Olivia Wilde discussed becoming a movie director and how the words of Nora Ephron inspired her.`\
-https://www.nytimes.com/video/podcasts/100000011276306/olivia-wilde-on-finding-the-courage-to-change-your-life.html
-
-**Olivia Wilde on the Lie Women Are Told About Having Kids**\
-`On “The Interview,” the actor and director Olivia Wilde talked about how becoming a mother changed how she viewed her body.`\
-https://www.nytimes.com/video/podcasts/100000011276305/olivia-wilde-on-the-lie-women-are-told-about-having-kids.html
 
