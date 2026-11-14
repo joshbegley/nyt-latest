@@ -1,3 +1,11 @@
+**Meet the Fans Who Traveled to Bangkok for Eurovision Asia**\
+`Some were Asia-based Europeans chasing nostalgia. Others were Americans eager to experience their first edition of the song contest.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
+
+**Live Updates: Duffy to Speak to Reporters as Disruptions Persist After Ground Stop**\
+`Transportation Secretary Sean Duffy is expected to give an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **Live Updates: Eurovision Song Contest to Crown an Asian Champion**\
 `The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
