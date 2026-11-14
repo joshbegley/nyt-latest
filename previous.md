@@ -1,3 +1,7 @@
+**Alaska Senate Race Between Dan Sullivan and Mary Peltola Still Counting Votes**\
+`The race between Senator Dan S. Sullivan and Ms. Peltola, a former congresswoman, is the only Senate contest that hasn’t been called.`\
+https://www.nytimes.com/2026/11/14/us/alaska-senate-race-ranked-choice-tabulation.html
+
 **A Democrat Wins the Alaska Governor’s Race for the First Time Since 1998**\
 `Jonathan Kreiss-Tomkins made a name for himself as a coalition builder willing to raise alarms about his state’s dire fiscal straits.`\
 https://www.nytimes.com/2026/11/14/us/elections/alaska-governor-winner-kreiss-tomkins-jkt.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
 **Offset on Getting Shot: ‘I Broke My Mama’s Heart’**\
 `On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
 https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
-
-**Offset Doesn’t Want to be the Villain Anymore: ‘I’m a Great Person’**\
-`Over the last few years, Offset has become as visible for his personal setbacks — including his divorce from Cardi B and getting shot outside a Florida casino — as he is for his musicmaking. On ‘Popcast’ he talks about getting “lost” and why he’s now back to being focused on music.`\
-https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
 

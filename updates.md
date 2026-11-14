@@ -1,3 +1,7 @@
+**Alaska Senate Race Between Dan Sullivan and Mary Peltola Still Counting Votes**\
+`The race between Senator Dan S. Sullivan and Ms. Peltola, a former congresswoman, is the only Senate contest that hasn’t been called.`\
+https://www.nytimes.com/2026/11/14/us/alaska-senate-race-ranked-choice-tabulation.html
+
 **A Democrat Wins the Alaska Governor’s Race for the First Time Since 1998**\
 `Jonathan Kreiss-Tomkins made a name for himself as a coalition builder willing to raise alarms about his state’s dire fiscal straits.`\
 https://www.nytimes.com/2026/11/14/us/elections/alaska-governor-winner-kreiss-tomkins-jkt.html
