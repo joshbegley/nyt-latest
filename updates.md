@@ -1,3 +1,7 @@
+**After Relative Silence, Joe Rogan Said MAGA Has Lost the “Podcast Bros”**\
+`The nation’s top podcaster addressed the midterm election results, days after declaring that he thinks politics is “gross.”`\
+https://www.nytimes.com/2026/11/14/style/after-relative-silence-joe-rogan-said-trumps-policies-have-lost-the-podcast-bros.html
+
 **Travel Nightmare Continues for Stranded Passengers Awaiting Flights**\
 `After a night of fitful sleep on airport floors, some travelers are still stuck amid thousands of flight cancellations following Friday’s ground stop.`\
 https://www.nytimes.com/2026/11/14/us/travel-nightmare-continues-for-stranded-passengers-awaiting-flights.html
