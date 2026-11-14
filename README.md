@@ -1,3 +1,7 @@
+**Live Updates: Disruptions Persist as Air Travel Recovers from Nationwide Ground Stop**\
+`Thousands of travelers across the United States were stranded in the aftermath of a ground stop that Transportation Secretary Sean Duffy blamed on faltering, aging infrastructure.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
 `The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
 https://www.nytimes.com/2026/11/14/magazine/olivia-wilde-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
 **Developer Avoided Stricter Oversight Before Fatal Building Collapse**\
 `By winning approval for a three-story building, then seeking to add more stories, the Brooklyn developer was not subject to the more rigorous oversight required for larger projects.`\
 https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight.html
-
-**House Democrats Open Inquiry After Incoming Lawmaker Accused of Sexual Harassment**\
-`The House Democratic campaign arm is looking into an allegation against Representative-elect Brian Poindexter of Ohio. His campaign says he “gave what he thought was an innocuous compliment to a volunteer.”`\
-https://www.nytimes.com/2026/11/13/us/politics/house-democrats-poindexter-investigation.html
 
