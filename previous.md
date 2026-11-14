@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/11/13/us/elections/eileen-laubacher-defeated-lauren
 `The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
 https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
 
-**Katsu Naito on His Portraits of a ’90s Red-Light District in Downtown Manhattan**\
-`Katsu Naito looks back at his 1990s-era photographs of the women who worked in the Meatpacking District after hours.`\
-https://www.nytimes.com/2026/11/13/t-magazine/katsu-naito-1990s-new-york.html
-
