@@ -1,3 +1,7 @@
+**Orchestrator’s Work**\
+`Byron Walden’s latest themeless puzzle will have solvers crying: “Bravissimo!”`\
+https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
+
 **Developer Avoided Stricter Oversight Before Fatal Building Collapse**\
 `By winning approval for a three-story building, then seeking to add more stories, the Brooklyn developer was not subject to the more rigorous oversight required for larger projects.`\
 https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight.html

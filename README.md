@@ -1,3 +1,7 @@
+**Hear How Air Traffic Controllers Grappled With the Ground Stoppage Chaos**\
+`Radio conversations gave a glimpse of how air traffic controllers handled the stoppage of air travel across the United States.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-air-traffic-control-pilots.html
+
 **Orchestrator’s Work**\
 `Byron Walden’s latest themeless puzzle will have solvers crying: “Bravissimo!”`\
 https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/09/us/lauren-boebert-colorado-house-election.htm
 **Mamdani Overhauls N.Y.P.D. Unit Criticized for Its Handling of Protests**\
 `The Strategic Response Group will be revamped, with its crowd-control and counterterrorism duties dispersed to other units, including a new Civilian Dialogue Unit.`\
 https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-protests.html
-
-**Personal Style Can’t Be Hacked**\
-`Wearing the same thing all the time doesn’t make you stylish.`\
-https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
 
