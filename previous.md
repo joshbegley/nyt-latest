@@ -31,7 +31,7 @@ https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-o
 https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
 
 **Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
-`Travelers are entitled to a refund if your flight is canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
+`Travelers are entitled to refunds if their flights are canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
 
 **Airports Fill Up With Stuck Families and Stranded Travelers**\
@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
-`Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are about to speak at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
+`Transportation Secretary Sean Duffy said that “instability” in radar communications began just after 3:30 p.m. Homeland Security Secretary Markwayne Mullin says that so far there is no indication of a cyberattack.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
