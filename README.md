@@ -1,3 +1,7 @@
+**An Elotes-Flavored Corn Pudding for Future You**\
+`You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
+https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html
+
 **Meet the Fans Who Traveled to Bangkok for Eurovision Asia**\
 `Some were Asia-based Europeans chasing nostalgia. Others were Americans eager to experience their first edition of the song contest.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
 `President Trump and U.S. tech executives are expected to gather for a major summit in Shenzhen next week. On the agenda: a stalled trade war, expanding export controls, and suspected spy games.`\
 https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
 
-**Live Updates: Eurovision Song Contest to Crown an Asia Champion**\
-`The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+**Live Updates: Eurovision Song Contest Crowns an Asia Champion**\
+`Carmelle of the Philippines defeated 10 competitors at the first edition of the high-camp event in Asia, held in Bangkok.`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
 
 **Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/t-magazine/hotels-restaurants-foraging-food.h
 **In ‘Minotaur,’ Andrey Zvyagintsev Confronts the Costs of Putin’s War**\
 `Andrey Zvyagintsev’s “Minotaur,” a Cannes prizewinner, uses the story of a cheating spouse to examine the compromises Russians make under authoritarianism.`\
 https://www.nytimes.com/2026/11/14/movies/andrey-zvyagintsev-minotaur.html
-
-**He Was China’s Man in Panama. Then He Became a Wanted Man.**\
-`A Chinese businessman arrived in Panama with money and power. Then he sold a port when his luck turned. Now China wants him sent back.`\
-https://www.nytimes.com/2026/11/14/business/zhang-liang-china-panama.html
 
