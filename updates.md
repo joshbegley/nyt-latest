@@ -1,3 +1,7 @@
+**Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
+`Travelers are entitled to a refund if your flight is canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
+
 **Jewish Heirs Challenge Sale of $180 Million van Gogh Painting at Sotheby’s**\
 `Heirs say “Blossoming Chestnut Trees” was sold under Nazi-era duress. The auction house says it is “committed to working toward a mutually satisfactory resolution.”`\
 https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
