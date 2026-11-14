@@ -1,3 +1,7 @@
+**Side Tracks**\
+`Sala Wanetick and Emily Biegas’s latest collaboration will get you spinning ‘round.`\
+https://www.nytimes.com/2026/11/14/crosswords/daily-puzzle-2026-11-15.html
+
 **SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
 `SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
 https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
