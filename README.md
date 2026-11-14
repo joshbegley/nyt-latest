@@ -1,3 +1,7 @@
+**‘There’s No Juice Left to Squeeze From MAGA’**\
+`More than a week after the blue wave, what comes next for both parties?`\
+https://www.nytimes.com/video/opinion/100000011276423/theres-no-juice-left-to-squeeze-from-maga.html
+
 **Forever in Bluejeans**\
 `A reflection on denim.`\
 https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/world/europe/russell-brand-david-walliams-gag
 **From the Front Page: New Orleans Schools Begin Integration on Nov. 14, 1960**\
 `Four Black first graders integrated two previously all-white elementary schools in New Orleans, escorted by federal marshals past jeering segregationist crowds.`\
 https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-schools-begin-integration-on-nov-14-1960.html
-
-**See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
-`On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
-https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
 

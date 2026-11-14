@@ -1,3 +1,11 @@
+**Why a Little Extra Weight May Benefit Older People**\
+`Even in the age of obesity drugs, researchers say many don’t need to shed pounds.`\
+https://www.nytimes.com/2026/11/14/well/obesity-paradox-weight-older-people.html
+
+**Have Cocktails Become Too Beautiful?**\
+`Fueled by trends on social media, bartenders are creating increasingly theatrical cocktails. But are they any good?`\
+https://www.nytimes.com/2026/11/14/dining/drinks/cocktails-social-media-theatrical.html
+
 **Forever in Bluejeans**\
 `A reflection on denim.`\
 https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html

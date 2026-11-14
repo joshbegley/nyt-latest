@@ -40,7 +40,7 @@ https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
 
 **Why a Little Extra Weight May Benefit Older People**\
 `Even in the age of obesity drugs, researchers say many don’t need to shed pounds.`\
-https://www.nytimes.com/2026/11/14/well/why-a-little-extra-weight-may-benefit-older-people.html
+https://www.nytimes.com/2026/11/14/well/obesity-paradox-weight-older-people.html
 
 **As Congress Plans Investigations, White House Prepares Ferocious Response**\
 `The Trump administration has quietly been laying the groundwork for an aggressive all-out effort to thwart newly empowered Democrats’ attempts at oversight.`\
@@ -84,7 +84,7 @@ https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-scandal-silico
 
 **Have Cocktails Become Too Beautiful?**\
 `Fueled by trends on social media, bartenders are creating increasingly theatrical cocktails. But are they any good?`\
-https://www.nytimes.com/2026/11/14/dining/drinks/have-cocktails-become-too-beautiful.html
+https://www.nytimes.com/2026/11/14/dining/drinks/cocktails-social-media-theatrical.html
 
 **The Mexican Architect Whose Blond and Pink Walls Seduced Silicon Valley**\
 `Ricardo Legorreta designed buildings that drew on Mexico’s vernacular. A $43 million Hawaii compound is among the architect’s signature homes now on the market.`\
