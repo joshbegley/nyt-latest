@@ -1,3 +1,23 @@
+**Should I Let a Woman Know That Her Fiancé Cheated on Her With My Friend?**\
+`My friend wants this man’s fiancée to know that he’s a sleazeball who has been unfaithful.`\
+https://www.nytimes.com/2026/11/14/magazine/friend-cheating-fiance-ethics.html
+
+**In Canada, Watching the N.H.L. Has Become Expensive and Cumbersome**\
+`Games behind paywalls and exorbitant costs forcing a drop in attendance — even to watch Connor McDavid in Edmonton — have only compounded the loss of a Saturday night ritual.`\
+https://www.nytimes.com/2026/11/14/world/canada/national-hockey-league-rogers-sportsnet.html
+
+**NYT Connections Answers for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/connections-companion-1253.html
+
+**NYT Strands Hints for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/strands-sidekick-987.html
+
+**Today’s Wordle Hints for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
+
 **What’s Behind the Trump-Huang Relationship?**\
 `President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
 https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
