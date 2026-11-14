@@ -1,3 +1,7 @@
+**South Sudan’s National Election, Its First, Will Be Delayed**\
+`Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
+https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
+
 **Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
 `The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
 https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/arts/design/steen-ostergaard-dead.html
 **Avast! Bring Your Dog-Eared Melvilles to the ‘Moby-Dick’ Bar.**\
 `In Lower Manhattan, a salt-sprayed cocktail bar pays homage to the 175-year-old white whale of American literature. So does its book club.`\
 https://www.nytimes.com/2026/11/14/books/moby-dick-book-club-quick-eternity.html
-
-**When a Master Magician Meets a Bumbling Student ...**\
-`A sit-down with the ace magician Asi Wind, whose new book shares a few trade secrets, should have paid off with at least one successful caper. Not quite.`\
-https://www.nytimes.com/2026/11/14/books/review/asi-wind-magician.html
 

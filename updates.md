@@ -1,3 +1,7 @@
+**Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
+`His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royale.” He was 87.`\
+https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
+
 **Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
 `The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
 https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html

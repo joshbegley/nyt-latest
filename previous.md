@@ -175,7 +175,7 @@ https://www.nytimes.com/2026/11/14/theater/othello-actors-shakespeare-play.html
 https://www.nytimes.com/2026/11/14/arts/music/dolly-parton-u2-ella-langley-new-songs.html
 
 **Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
-`His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royal.” He was 87.`\
+`His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royale.” He was 87.`\
 https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
 
 **This ‘Hunger Games’ Actress Can Doze at the Drop of a Hat**\
