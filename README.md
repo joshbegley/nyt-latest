@@ -1,3 +1,7 @@
+**Starship Live Updates: SpaceX Tries for Milestone Rocket Landing**\
+`After orbiting Earth, SpaceX’s Starship spacecraft will attempt to land back at the launch facility in Texas. If it is successful, it will mark a major step in SpaceX’s quest to build fully reusable rockets.`\
+https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
+
 **In the Rubble of a Fallen Building, He Rescued a 2-Year-Old**\
 `Miguel Tigsilema, a construction worker, was looking for survivors in the horrific aftermath of a collapse in Brooklyn. He saw a small boy.`\
 https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-boy-rescue.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/video/podcasts/100000011276299/olivia-wilde-the-most-dif
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
 `The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
 https://www.nytimes.com/video/podcasts/100000011276065/olivia-wilde-hit-bottom-heres-how-she-bounced-back.html
-
-**The Jensen Huang Scandal Has Shocked Even Scandal-Prone Silicon Valley**\
-`As Jensen Huang abruptly departs, the tech community grapples with an eternal question: Why do the smartest and most successful men so often act so stupidly?`\
-https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-scandal-silicon-valley.html
-
-**Have Cocktails Become Too Beautiful?**\
-`Fueled by trends on social media, bartenders are creating increasingly theatrical cocktails. But are they any good?`\
-https://www.nytimes.com/2026/11/14/dining/drinks/cocktails-social-media-theatrical.html
 
