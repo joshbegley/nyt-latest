@@ -1,3 +1,7 @@
+**Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
+`A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
+https://www.nytimes.com/2026/11/14/nyregion/key-witness-in-comey-case-attests-to-justice-depts-aggressive-tactics.html
+
 **Here’s Why It Could Take Days for Flights to Return to Normal**\
 `With hundreds of planes out of position and crews out of hours, restarting the nation’s flight system is no easy task.`\
 https://www.nytimes.com/2026/11/14/us/faa-groundstop-flights-restarting.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/arts/music/dolly-parton-u2-ella-langley-new-s
 **Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
 `His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royale.” He was 87.`\
 https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
-
-**This ‘Hunger Games’ Actress Can Doze at the Drop of a Hat**\
-`“You have to get really good at napping,” said Whitney Peak of “Sunrise on the Reaping,” “because you can have breaks anywhere from five minutes to three hours.”`\
-https://www.nytimes.com/2026/11/14/movies/whitney-peak-hunger-games-sunrise-reaping.html
 
