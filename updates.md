@@ -1,3 +1,7 @@
+**Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
+`Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
+https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
+
 **Alaska Senate Race Between Dan Sullivan and Mary Peltola Still Counting Votes**\
 `The race between Senator Dan S. Sullivan and Ms. Peltola, a former congresswoman, is the only Senate contest that hasn’t been called.`\
 https://www.nytimes.com/2026/11/14/us/alaska-senate-race-ranked-choice-tabulation.html
