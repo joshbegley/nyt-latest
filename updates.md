@@ -1,3 +1,7 @@
+**Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
+`The high-camp event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Geopolitics Looms Over Eurovision, but Not Its Asian Edition**\
 `So far, the contest’s organizers have kept politics offstage. The European edition shows how difficult that can be.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
