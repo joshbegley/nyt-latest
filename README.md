@@ -1,6 +1,6 @@
 **Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
 `In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
-https://www.nytimes.com/2026/11/14/science/brain-implants-give-als-patients-the-voice-to-speak-and-sing.html
+https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
 
 **South Sudan’s National Election, Its First, Will Be Delayed**\
 `Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
