@@ -1,3 +1,23 @@
+**Should I Let a Woman Know That Her Fiancé Cheated on Her With My Friend?**\
+`My friend wants this man’s fiancée to know that he’s a sleazeball who has been unfaithful.`\
+https://www.nytimes.com/2026/11/14/magazine/friend-cheating-fiance-ethics.html
+
+**In Canada, Watching the N.H.L. Has Become Expensive and Cumbersome**\
+`Games behind paywalls and exorbitant costs forcing a drop in attendance — even to watch Connor McDavid in Edmonton — have only compounded the loss of a Saturday night ritual.`\
+https://www.nytimes.com/2026/11/14/world/canada/national-hockey-league-rogers-sportsnet.html
+
+**NYT Connections Answers for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/connections-companion-1253.html
+
+**NYT Strands Hints for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/strands-sidekick-987.html
+
+**Today’s Wordle Hints for November 15, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
+
 **What’s Behind the Trump-Huang Relationship?**\
 `President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
 https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
 **What to Know About Friday’s Nationwide Ground Stop**\
 `The air traffic control system’s overloaded, antiquated telecommunications equipment sustained its latest widespread failure, prompting a call for more money to fuel faster upgrades.`\
 https://www.nytimes.com/2026/11/13/us/faa-ground-stop-flights-what-to-know.html
-
-**Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
-`After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
-https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html
-
-**Pilots and Controllers Kept Communicating During Outage**\
-`Transportation Secretary Sean Duffy said during the intermittent outage, controllers could still reach pilots.`\
-https://www.nytimes.com/2026/11/13/us/faa-ground-stop-outage-plane-landings.html
-
-**Ground Stop Scrambles Travel Plans for Sports Teams Across the Country**\
-`Some professional and college sports teams were stuck on runways, or opting to pile into buses, ahead of games this weekend that are now uncertain.`\
-https://www.nytimes.com/2026/11/13/us/ground-stop-flights-sports-nba-football.html
-
-**Hear How Air Traffic Controllers Grappled With the Ground Stoppage Chaos**\
-`Radio conversations gave a glimpse of how air traffic controllers handled the stoppage of air travel across the United States.`\
-https://www.nytimes.com/2026/11/13/us/ground-stop-air-traffic-control-pilots.html
-
-**Orchestrator’s Work**\
-`Byron Walden’s latest themeless puzzle will have solvers crying: “Bravissimo!”`\
-https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
 
