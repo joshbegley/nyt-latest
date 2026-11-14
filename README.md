@@ -1,3 +1,7 @@
+**5 Big Questions as C.E.O.s Meet in China**\
+`President Trump and U.S. tech executives are expected to gather for a major summit in Shenzhen next week. On the agenda: a stalled trade war, expanding export controls, and suspected spy games.`\
+https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
+
 **Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
 `The event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrant
 **Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
 `Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
 https://www.nytimes.com/2026/11/14/nyregion/new-jersey-wind-farms-energy.html
-
-**NYT Spelling Bee Answers for November 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
 

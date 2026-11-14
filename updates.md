@@ -1,3 +1,7 @@
+**Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
+`The event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Brooklyn Building Collapse Tragedy Devastates Immigrant Families**\
 `Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
 https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html

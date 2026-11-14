@@ -1,3 +1,7 @@
+**Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
+`The event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
 `President Volodymyr Zelensky said the system, which Ukraine uses to guide drones, was being throttled over Russian-occupied territory. SpaceX, its developer, has denied the claim.`\
 https://www.nytimes.com/2026/11/14/world/europe/ukraine-starshield-zelensky.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/nyregion/new-jersey-wind-farms-energy.html
 **NYT Spelling Bee Answers for November 14, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
-
-**U.S. Officials Blame Outdated Systems for Nationwide Ground Stop**\
-`Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
-https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
 
