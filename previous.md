@@ -1,4 +1,4 @@
-**Officials Blame Outdated Technology for Nationwide Ground Stop**\
+**U.S. Officials Blame Outdated Systems for Nationwide Ground Stop**\
 `Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
 
