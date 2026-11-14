@@ -1,3 +1,7 @@
+**Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
+`The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
+https://www.nytimes.com/2026/11/14/magazine/olivia-wilde-interview.html
+
 **This Man Stole $9 Million in Gold Bars on the Upper West Side, Police Say**\
 `The victim, who believed his financial assets had been compromised, was the target of an online fraud scheme and believed he had to buy the precious metal, the authorities said.`\
 https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight
 **House Democrats Open Inquiry After Incoming Lawmaker Accused of Sexual Harassment**\
 `The House Democratic campaign arm is looking into an allegation against Representative-elect Brian Poindexter of Ohio. His campaign says he “gave what he thought was an innocuous compliment to a volunteer.”`\
 https://www.nytimes.com/2026/11/13/us/politics/house-democrats-poindexter-investigation.html
-
-**How the University of North Carolina Tried to Avoid Trump’s Wrath**\
-`The University of North Carolina’s chancellor tried to protect the school from the Trump administration. Work on cancer, suicide, AIDS and coronaviruses was hit anyway.`\
-https://www.nytimes.com/2026/11/13/us/university-north-carolina-science-research-cuts-trump.html
 

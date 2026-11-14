@@ -1,3 +1,7 @@
+**Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
+`The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
+https://www.nytimes.com/2026/11/14/magazine/olivia-wilde-interview.html
+
 **This Man Stole $9 Million in Gold Bars on the Upper West Side, Police Say**\
 `The victim, who believed his financial assets had been compromised, was the target of an online fraud scheme and believed he had to buy the precious metal, the authorities said.`\
 https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
