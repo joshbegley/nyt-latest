@@ -1,3 +1,11 @@
+**Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
+`The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
+https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
+
+**Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
+`Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **Eurovision Song Contest Crowns an Asia Champion**\
 `Carmelle of the Philippines defeated 10 competitors at the first edition of the high-camp event in Asia, held in Bangkok.`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
