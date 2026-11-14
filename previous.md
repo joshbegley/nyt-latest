@@ -1,3 +1,15 @@
+**Trump Kept Out of Sight as F.A.A. Issued Flight Ground Stop**\
+`The F.A.A. called a rare halt on flights nationwide, but the president stayed away from cameras and issued social media posts on the entertainment industry and California’s Democratic governor.`\
+https://www.nytimes.com/2026/11/14/us/politics/trump-flights-air-traffic-social-media.html
+
+**Defense Contractor L3Harris Was Behind Upgrade That Led to Ground Stop**\
+`The little-known defense giant does a lot of work for the Federal Aviation Administration and owns the equipment for the agency’s telecommunications network.`\
+https://www.nytimes.com/2026/11/14/us/l3harris-ground-stop.html
+
+**Duffy Says System Upgrade Led to U.S. Ground Stop**\
+`Travelers across the United States faced delays and uncertainty on Saturday after a ground stop halted air travel. Federal officials blamed the disruption on a communication failure caused by a system upgrade.`\
+https://www.nytimes.com/video/us/100000011284963/faa-nationwide-ground-stop-flights.html
+
 **The Surf’s Way, Way Up as Huge Waves Pound the California Coast**\
 `Officials warned onlookers to stay off the beaches as waves of more than 50 feet in spots posed hazards. The intense conditions were too dangerous for even seasoned surfers at some beaches.`\
 https://www.nytimes.com/2026/11/14/weather/california-coast-waves-high-surf.html
@@ -165,12 +177,4 @@ https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
-
-**Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
-`The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
-https://www.nytimes.com/2026/11/14/magazine/olivia-wilde-interview.html
-
-**This Man Stole $9 Million in Gold Bars on the Upper West Side, Police Say**\
-`The victim, who believed his financial assets had been compromised, was the target of an online fraud scheme and believed he had to buy the precious metal, the authorities said.`\
-https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
 
