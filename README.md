@@ -1,3 +1,7 @@
+**Here’s Why It Could Take Days for Flights to Return to Normal**\
+`With hundreds of planes out of position and crews out of hours, restarting the nation’s flight system is no easy task.`\
+https://www.nytimes.com/2026/11/14/us/faa-groundstop-flights-restarting.html
+
 **Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
 `In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
 https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
 **This ‘Hunger Games’ Actress Can Doze at the Drop of a Hat**\
 `“You have to get really good at napping,” said Whitney Peak of “Sunrise on the Reaping,” “because you can have breaks anywhere from five minutes to three hours.”`\
 https://www.nytimes.com/2026/11/14/movies/whitney-peak-hunger-games-sunrise-reaping.html
-
-**Steen Ostergaard, Danish Modern Furniture Designer, Has Died at 90**\
-`His space-age furniture sparked the imagination of Hollywood set designers, who gave it cameos in “Star Trek ” movies and “The Spy Who Loved Me.” He was 90.`\
-https://www.nytimes.com/2026/11/14/arts/design/steen-ostergaard-dead.html
 
