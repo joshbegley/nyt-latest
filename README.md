@@ -1,3 +1,7 @@
+**Orchestrator’s Work**\
+`Byron Walden’s latest themeless puzzle will have solvers crying: “Bravissimo!”`\
+https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
+
 **Developer Avoided Stricter Oversight Before Fatal Building Collapse**\
 `By winning approval for a three-story building, then seeking to add more stories, the Brooklyn developer was not subject to the more rigorous oversight required for larger projects.`\
 https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-prot
 **Personal Style Can’t Be Hacked**\
 `Wearing the same thing all the time doesn’t make you stylish.`\
 https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
-
-**Richard Glossip, Ex-Oklahoma Death Row Prisoner, Pleads to Lesser Charge**\
-`By pleading guilty to accessory to murder after the fact, Richard Glossip will avoid a retrial of the first-degree murder charge.`\
-https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
 
