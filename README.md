@@ -22,6 +22,10 @@ https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-scho
 `On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
 https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
 
+**What to Know About Friday’s Nationwide Ground Stop**\
+`The air traffic control system’s overloaded, antiquated telecommunications equipment sustained its latest widespread failure, prompting a call for more money to fuel faster upgrades.`\
+https://www.nytimes.com/2026/11/13/us/faa-ground-stop-flights-what-to-know.html
+
 **Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
 `After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html
