@@ -2,7 +2,7 @@
 `Kamar Samuels, the city schools chancellor, asked for an independent review days after a paraprofessional was fired following his arrest in the stabbing death of Katie Suarez.`\
 https://www.nytimes.com/2026/11/13/nyregion/suarez-jogger-killed-nyc-schools-investigation.html
 
-**Jewish Heirs Challenge Sale of $180 Million Van Gogh Painting at Sotheby’s**\
+**Jewish Heirs Challenge Sale of $180 Million van Gogh Painting at Sotheby’s**\
 `Heirs say “Blossoming Chestnut Trees” was sold under Nazi-era duress. The auction house says it is “committed to working toward a mutually satisfactory resolution.”`\
 https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
 
@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-co
 https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
 
 **Airports Fill Up With Stuck Families and Stranded Travelers**\
-`The emergency ground disrupted travel plans across the country.`\
+`The emergency ground stop disrupted travel plans across the country.`\
 https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html
 
 **Trump Officials Press Congress to Renew Spying Law in Lame-Duck Session**\

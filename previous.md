@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/11/13/nyregion/suarez-jogger-killed-nyc-schools-inv
 https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
 
 **Tanker Smashes Into Riverboat in New Orleans**\
-`All passengers were accounted for after a cargo ship struck the American Heritage riverboat in New Orleans on Friday. Officials said 32 people were taken to the hospital, none with critical injuries.`\
+`All passengers were accounted for after a cargo ship struck the American Heritage riverboat in New Orleans on Friday. Officials said 32 people were taken to the hospital, and one person had serious injuries.`\
 https://www.nytimes.com/video/us/100000011283918/new-orleans-cruise-ship-crash-riverboat.html
 
 **Mullin Says Nationwide Ground Stop Is a Telecommunication Outage**\
