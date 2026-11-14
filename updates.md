@@ -1,3 +1,11 @@
+**Abolish the Filibuster**\
+`The filibuster makes a productive Senate impossible.`\
+https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
+
+**Live Updates: Duffy Speaks to Reporters as Disruptions Persist After Ground Stop**\
+`Transportation Secretary Sean Duffy is giving an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **An Elotes-Flavored Corn Pudding for Future You**\
 `You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
 https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html

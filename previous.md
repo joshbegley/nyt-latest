@@ -1,3 +1,7 @@
+**Abolish the Filibuster**\
+`The filibuster makes a productive Senate impossible.`\
+https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
+
 **An Elotes-Flavored Corn Pudding for Future You**\
 `You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
 https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
 `President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
 https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
 
-**Live Updates: Duffy to Speak to Reporters as Disruptions Persist After Ground Stop**\
-`Transportation Secretary Sean Duffy is expected to give an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
+**Live Updates: Duffy Speaks to Reporters as Disruptions Persist After Ground Stop**\
+`Transportation Secretary Sean Duffy is giving an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
 
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/books/review/asi-wind-magician.html
 **Why Foraging for Food Is the Latest Trend in Luxury Hotels and Fine-Dining Restaurants**\
 `The latest trend at country hotels and fine-dining restaurants, these excursions are designed to bring out the hunter-gatherer instinct in their guests.`\
 https://www.nytimes.com/2026/11/14/t-magazine/hotels-restaurants-foraging-food.html
-
-**In ‘Minotaur,’ Andrey Zvyagintsev Confronts the Costs of Putin’s War**\
-`Andrey Zvyagintsev’s “Minotaur,” a Cannes prizewinner, uses the story of a cheating spouse to examine the compromises Russians make under authoritarianism.`\
-https://www.nytimes.com/2026/11/14/movies/andrey-zvyagintsev-minotaur.html
 
