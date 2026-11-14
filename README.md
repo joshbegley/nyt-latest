@@ -1,3 +1,7 @@
+**Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
+`Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
+https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
+
 **Alaska Senate Race Between Dan Sullivan and Mary Peltola Still Counting Votes**\
 `The race between Senator Dan S. Sullivan and Ms. Peltola, a former congresswoman, is the only Senate contest that hasn’t been called.`\
 https://www.nytimes.com/2026/11/14/us/alaska-senate-race-ranked-choice-tabulation.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republi
 **African Miss Universe Contestants Struggle to Get U.S. Visas**\
 `A crackdown on entry by some citizens of African countries by the U.S. immigration officials means that some contestants might not get visas in time to attend the pageant in Puerto Rico this month.`\
 https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
-
-**Offset on Getting Shot: ‘I Broke My Mama’s Heart’**\
-`On ‘Popcast,’ the Atlanta rapper Offset shares the story behind photos of him and his mom outside a Florida hospital after he was shot earlier this year, and why he continues to rely on her to set him straight.`\
-https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-broke-my-mamas-heart.html
 
