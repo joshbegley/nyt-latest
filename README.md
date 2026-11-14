@@ -1,3 +1,7 @@
+**Meet the Fans Who Traveled to Bangkok for Eurovision Asia**\
+`Some were Asia-based Europeans chasing nostalgia. Others were Americans eager to experience their first edition of the song contest.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
+
 **Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
 `China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leave some of the region’s best-known musical cultures out of the mix.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/movies/andrey-zvyagintsev-minotaur.html
 **He Was China’s Man in Panama. Then He Became a Wanted Man.**\
 `A Chinese businessman arrived in Panama with money and power. Then he sold a port when his luck turned. Now China wants him sent back.`\
 https://www.nytimes.com/2026/11/14/business/zhang-liang-china-panama.html
-
-**Trump’s Oil Grab in Venezuela Is Testing the Country’s National Identity**\
-`Long-held beliefs in Venezuela about sovereign control over oil are fraying as the U.S. lays claim to the country’s oil reserves.`\
-https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
 

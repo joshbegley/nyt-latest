@@ -1,3 +1,7 @@
+**Live Updates: Eurovision Song Contest to Crown an Asian Champion**\
+`The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
 `China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leave some of the region’s best-known musical cultures out of the mix.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
