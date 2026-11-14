@@ -1,3 +1,7 @@
+**Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
+`After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html
+
 **Pilots and Controllers Kept Communicating During Outage**\
 `Transportation Secretary Sean Duffy said during the intermittent outage, controllers could still reach pilots.`\
 https://www.nytimes.com/2026/11/13/us/faa-ground-stop-outage-plane-landings.html
