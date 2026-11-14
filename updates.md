@@ -1,3 +1,7 @@
+**SpaceX Makes History With Successful Rocket Landing in Texas**\
+`The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
+https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
+
 **Trump Kept Out of Sight as F.A.A. Issued Flight Ground Stop**\
 `The F.A.A. called a rare halt on flights nationwide, but the president stayed away from cameras and issued social media posts on the entertainment industry and California’s Democratic governor.`\
 https://www.nytimes.com/2026/11/14/us/politics/trump-flights-air-traffic-social-media.html
