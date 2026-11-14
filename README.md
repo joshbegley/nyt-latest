@@ -1,3 +1,7 @@
+**Developer Avoided Stricter Oversight Before Fatal Building Collapse**\
+`By winning approval for a three-story building, then seeking to add more stories, the Brooklyn developer was not subject to the more rigorous oversight required for larger projects.`\
+https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight.html
+
 **House Democrats Open Inquiry After Incoming Lawmaker Accused of Sexual Harassment**\
 `The House Democratic campaign arm is looking into an allegation against Representative-elect Brian Poindexter of Ohio. His campaign says he “gave what he thought was an innocuous compliment to a volunteer.”`\
 https://www.nytimes.com/2026/11/13/us/politics/house-democrats-poindexter-investigation.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/style/personal-style-jensen-huang.html
 **Richard Glossip, Ex-Oklahoma Death Row Prisoner, Pleads to Lesser Charge**\
 `By pleading guilty to accessory to murder after the fact, Richard Glossip will avoid a retrial of the first-degree murder charge.`\
 https://www.nytimes.com/2026/11/13/us/richard-glossip-guilty-plea-oklahoma.html
-
-**Van Hollen Says He Will Challenge Schumer for Senate Majority Leader**\
-`Senator Chris Van Hollen of Maryland said he would challenge Senator Chuck Schumer of New York for majority leader. Mr. Schumer was adamant he had the votes to hold his leadership title.`\
-https://www.nytimes.com/video/us/politics/100000011282877/schumer-van-hollen-senate-majority-leader.html
 
