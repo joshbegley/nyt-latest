@@ -1,3 +1,7 @@
+**In the Rubble of a Fallen Building, He Rescued a 2-Year-Old**\
+`Miguel Tigsilema, a construction worker, was looking for survivors in the horrific aftermath of a collapse in Brooklyn. He saw a small boy.`\
+https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-boy-rescue.html
+
 **After Relative Silence, Joe Rogan Said MAGA Has Lost the “Podcast Bros”**\
 `The nation’s top podcaster addressed the midterm election results, days after declaring that he thinks politics is “gross.”`\
 https://www.nytimes.com/2026/11/14/style/after-relative-silence-joe-rogan-said-trumps-policies-have-lost-the-podcast-bros.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-scandal-silico
 **Have Cocktails Become Too Beautiful?**\
 `Fueled by trends on social media, bartenders are creating increasingly theatrical cocktails. But are they any good?`\
 https://www.nytimes.com/2026/11/14/dining/drinks/cocktails-social-media-theatrical.html
-
-**The Mexican Architect Whose Blond and Pink Walls Seduced Silicon Valley**\
-`Ricardo Legorreta designed buildings that drew on Mexico’s vernacular. A $43 million Hawaii compound is among the architect’s signature homes now on the market.`\
-https://www.nytimes.com/2026/11/14/realestate/the-blond-and-pink-walls-that-seduced-silicon-valley.html
 
