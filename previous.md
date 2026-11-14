@@ -1,3 +1,11 @@
+**N.Y.C. Democratic Socialists Urge Ocasio-Cortez to Run for President**\
+`At its biennial convention, the New York chapter of the Democratic Socialists of America set its list of legislative and political priorities through 2028.`\
+https://www.nytimes.com/2026/11/14/nyregion/nyc-dsa-convention-ocasio-cortez-president.html
+
+**Jensen Huang Carried a Secret for More Than a Year. It Led to His Downfall.**\
+`Nvidia’s leader said his relationship with a female customer was just about business. But what he was concealing eventually led to his resignation from the company he created.`\
+https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-board.html
+
 **When Disaster Hit Next Door in Flatbush**\
 `What it felt like when the wall came down in Brooklyn.`\
 https://www.nytimes.com/2026/11/14/nyregion/flatbush-building-collapse-neighbors.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
 **Why a Little Extra Weight May Benefit Older People**\
 `Even in the age of obesity drugs, researchers say many don’t need to shed pounds.`\
 https://www.nytimes.com/2026/11/14/well/obesity-paradox-weight-older-people.html
-
-**As Congress Plans Investigations, White House Prepares Ferocious Response**\
-`The Trump administration has quietly been laying the groundwork for an aggressive all-out effort to thwart newly empowered Democrats’ attempts at oversight.`\
-https://www.nytimes.com/2026/11/14/us/politics/congress-trump-investigations.html
-
-**Corrections: Nov. 14, 2026**\
-`Corrections that appeared in print on Saturday, Nov. 14, 2026.`\
-https://www.nytimes.com/2026/11/14/pageoneplus/corrections-nov-14-2026.html
 

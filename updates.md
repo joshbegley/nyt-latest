@@ -1,3 +1,11 @@
+**N.Y.C. Democratic Socialists Urge Ocasio-Cortez to Run for President**\
+`At its biennial convention, the New York chapter of the Democratic Socialists of America set its list of legislative and political priorities through 2028.`\
+https://www.nytimes.com/2026/11/14/nyregion/nyc-dsa-convention-ocasio-cortez-president.html
+
+**Jensen Huang Carried a Secret for More Than a Year. It Led to His Downfall.**\
+`Nvidia’s leader said his relationship with a female customer was just about business. But what he was concealing eventually led to his resignation from the company he created.`\
+https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-board.html
+
 **Starship Live Updates: SpaceX Makes History With Successful Rocket Landing in Texas**\
 `The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch

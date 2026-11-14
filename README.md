@@ -1,4 +1,4 @@
-**N.Y.C. Democratic Socialists Urge Ocasio-Cortez to Run for President**\
+**NYC Democratic Socialists Urge Ocasio-Cortez to Run for President**\
 `At its biennial convention, the New York chapter of the Democratic Socialists of America set its list of legislative and political priorities through 2028.`\
 https://www.nytimes.com/2026/11/14/nyregion/nyc-dsa-convention-ocasio-cortez-president.html
 
