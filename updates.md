@@ -1,3 +1,11 @@
+**How Can Democrats Govern Under These Conditions?**\
+`The filibuster makes a productive Senate impossible.`\
+https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
+
+**The Buffalo Bills’ Quarterback Is a Moon Truther. That’s Just the Start of It.**\
+`In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
+https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
+
 **She Was a CBS News Producer When Few Women Were**\
 `Linda Mason started in an entry-level job at CBS Radio in 1966 and rose through the news division’s ranks to senior vice president. She was 84.`\
 https://www.nytimes.com/2026/11/14/business/media/linda-mason-dead-cbs-news.html

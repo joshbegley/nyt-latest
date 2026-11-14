@@ -182,7 +182,3 @@ https://www.nytimes.com/video/podcasts/100000011276306/olivia-wilde-on-finding-t
 `On “The Interview,” the actor and director Olivia Wilde talked about how becoming a mother changed how she viewed her body.`\
 https://www.nytimes.com/video/podcasts/100000011276305/olivia-wilde-on-the-lie-women-are-told-about-having-kids.html
 
-**‘Democrat’ in Alaska’s House Race Is Doing Time in a New York Prison**\
-`While Republicans accuse Democrats of dirty tricks in the ongoing Alaska Senate race, the lone House contest in the state has the hallmarks of similar “ballot stacking” shenanigans.`\
-https://www.nytimes.com/2026/11/14/us/elections/alaska-house-race-felon-eric-hafner.html
-
