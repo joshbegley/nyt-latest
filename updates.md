@@ -1,3 +1,15 @@
+**Jewish Heirs Challenge Sale of $180 Million van Gogh Painting at Sotheby’s**\
+`Heirs say “Blossoming Chestnut Trees” was sold under Nazi-era duress. The auction house says it is “committed to working toward a mutually satisfactory resolution.”`\
+https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
+
+**Airports Fill Up With Stuck Families and Stranded Travelers**\
+`The emergency ground stop disrupted travel plans across the country.`\
+https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html
+
+**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+`Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are about to speak at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Tanker Smashes Into Riverboat in New Orleans**\
 `All passengers were accounted for after a cargo ship struck the American Heritage riverboat in New Orleans on Friday. Officials said 32 people were taken to the hospital, and one person had serious injuries.`\
 https://www.nytimes.com/video/us/100000011283918/new-orleans-cruise-ship-crash-riverboat.html
