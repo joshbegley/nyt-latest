@@ -1,3 +1,11 @@
+**Family Dollar to Pay $63 Million Settlement for Overcharging Customers**\
+`Since 2023, the discount retailer has been overcharging shoppers “millions of dollars” at checkout, according to a complaint filed by federal regulators and 17 states.`\
+https://www.nytimes.com/2026/11/14/business/family-dollar-overcharging-settlement.html
+
+**Eurovision Crowns Its First Winner in Asia**\
+`The Eurovision Song Contest crowned its first Asia champion in Bangkok on Saturday, in an event that tested whether a high-camp singing competition with an ardent fan base could appeal to audiences in a new market.`\
+https://www.nytimes.com/video/world/asia/100000011285003/eurovision-crowns-its-first-winner-in-asia.html
+
 **Side Tracks**\
 `Sala Wanetick and Emily Biegas’s latest collaboration will get you spinning ‘round.`\
 https://www.nytimes.com/2026/11/14/crosswords/daily-puzzle-2026-11-15.html
