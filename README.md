@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
 `The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
 https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
 
-**Abolish the Filibuster**\
+**How Can Democrats Govern Under These Conditions?**\
 `The filibuster makes a productive Senate impossible.`\
 https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
 
@@ -106,7 +106,7 @@ https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
 `More than a week after the blue wave, what comes next for both parties?`\
 https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republicans-whats-next.html
 
-**Pro Sports Has a Moon-Landing Conspiracy Problem**\
+**The Buffalo Bills’ Quarterback Is a Moon Truther. That’s Just the Start of It.**\
 `In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
 https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
 
