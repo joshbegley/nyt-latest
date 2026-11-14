@@ -1,3 +1,7 @@
+**Hear How Air Traffic Controllers Grappled With the Ground Stoppage Chaos**\
+`Radio conversations gave a glimpse of how air traffic controllers handled the stoppage of air travel across the United States.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-air-traffic-control-pilots.html
+
 **Orchestrator’s Work**\
 `Byron Walden’s latest themeless puzzle will have solvers crying: “Bravissimo!”`\
 https://www.nytimes.com/2026/11/13/crosswords/daily-puzzle-2026-11-14.html
