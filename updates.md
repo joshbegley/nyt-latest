@@ -1,3 +1,11 @@
+**Tech Leaders Rally Behind Jensen Huang**\
+`In social media posts and letters to Nvidia’s board, Mr. Huang’s billionaire peers described him as a singular leader who could not be replaced at Nvidia.`\
+https://www.nytimes.com/2026/11/14/technology/silicon-valley-nvidia-jensen-huang.html
+
+**Repair That Triggered Air Traffic Meltdown Was Expected to be ‘Routine’**\
+`Officials said that the upgrade to antiquated communications equipment at a remote facility overloaded other parts of the national air traffic system.`\
+https://www.nytimes.com/2026/11/14/us/repair-that-triggered-air-traffic-meltdown-was-expected-to-be-routine.html
+
 **Perhaps the Rumors of Democracy’s Demise Were Premature**\
 `Did the midterm election save it?`\
 https://www.nytimes.com/2026/11/14/magazine/democracy-midterm-elections.html
