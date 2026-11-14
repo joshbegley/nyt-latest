@@ -1,3 +1,7 @@
+**Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
+`President Volodymyr Zelensky said the system, which Ukraine uses to guide drones, was being throttled over Russian-occupied territory. SpaceX, its developer, has denied the claim.`\
+https://www.nytimes.com/2026/11/14/world/europe/ukraine-starshield-zelensky.html
+
 **Talarico Wants to Transcend the Pettiness of Modern Politics. Can He?**\
 `It’s an open question how much unity, healing and love is possible in Trump’s Washington.`\
 https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
 **U.S. Officials Blame Outdated Systems for Nationwide Ground Stop**\
 `Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
-
-**Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
-`Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
-https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
 
