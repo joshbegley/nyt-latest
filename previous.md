@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/11/14/us/politics/congress-trump-investigations.htm
 `Corrections that appeared in print on Saturday, Nov. 14, 2026.`\
 https://www.nytimes.com/2026/11/14/pageoneplus/corrections-nov-14-2026.html
 
-**Olivia Wilde on How the ‘Don’t Worry Darling’ Tabloid Drama Changed Her**\
-`On “The Interview,” the actor and director Olivia Wilde discussed how she handled the rumors and attention that surrounded her 2022 movie, “Don’t Worry Darling.”`\
-https://www.nytimes.com/video/podcasts/100000011276308/olivia-wilde-on-how-the-dont-worry-darling-tabloid-drama-changed-her.html
-
