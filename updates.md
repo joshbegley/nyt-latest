@@ -1,3 +1,31 @@
+**Talarico Wants to Transcend the Pettiness of Modern Politics. Can He?**\
+`It’s an open question how much unity, healing and love is possible in Trump’s Washington.`\
+https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.html
+
+**Jensen Huang’s Fall Is a Dark Consequence of What’s Happening in Silicon Valley**\
+`Silicon Valley’s authoritarianism has left itself particularly vulnerable to Donald Trump’s corruptive tendencies.`\
+https://www.nytimes.com/2026/11/14/opinion/jensen-huang-donald-trump-silicon-valley.html
+
+**Goodbye, Mr. Chips**\
+`Terrible tech bros leading us into a scary future.`\
+https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
+
+**‘There’s No Juice Left to Squeeze From MAGA’**\
+`More than a week after the blue wave, what comes next for both parties?`\
+https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republicans-whats-next.html
+
+**Pro Sports Has a Moon-Landing Conspiracy Problem**\
+`In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
+https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
+
+**Richard Ford: Born to a World at War**\
+`In 1944, daily papers were bigger, and so was the American appetite for news.`\
+https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
+
+**‘There’s No Juice Left to Squeeze From MAGA’**\
+`More than a week after the blue wave, what comes next for both parties?`\
+https://www.nytimes.com/video/opinion/100000011276423/theres-no-juice-left-to-squeeze-from-maga.html
+
 **Why a Little Extra Weight May Benefit Older People**\
 `Even in the age of obesity drugs, researchers say many don’t need to shed pounds.`\
 https://www.nytimes.com/2026/11/14/well/obesity-paradox-weight-older-people.html

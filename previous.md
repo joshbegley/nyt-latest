@@ -1,3 +1,31 @@
+**Talarico Wants to Transcend the Pettiness of Modern Politics. Can He?**\
+`It’s an open question how much unity, healing and love is possible in Trump’s Washington.`\
+https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.html
+
+**Jensen Huang’s Fall Is a Dark Consequence of What’s Happening in Silicon Valley**\
+`Silicon Valley’s authoritarianism has left itself particularly vulnerable to Donald Trump’s corruptive tendencies.`\
+https://www.nytimes.com/2026/11/14/opinion/jensen-huang-donald-trump-silicon-valley.html
+
+**Goodbye, Mr. Chips**\
+`Terrible tech bros leading us into a scary future.`\
+https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
+
+**‘There’s No Juice Left to Squeeze From MAGA’**\
+`More than a week after the blue wave, what comes next for both parties?`\
+https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republicans-whats-next.html
+
+**Pro Sports Has a Moon-Landing Conspiracy Problem**\
+`In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
+https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
+
+**Richard Ford: Born to a World at War**\
+`In 1944, daily papers were bigger, and so was the American appetite for news.`\
+https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
+
+**‘There’s No Juice Left to Squeeze From MAGA’**\
+`More than a week after the blue wave, what comes next for both parties?`\
+https://www.nytimes.com/video/opinion/100000011276423/theres-no-juice-left-to-squeeze-from-maga.html
+
 **Forever in Bluejeans**\
 `A reflection on denim.`\
 https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-techno
 **Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
 `Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
 https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
-
-**Alaska Senate Race Between Dan Sullivan and Mary Peltola Still Counting Votes**\
-`The race between Senator Dan S. Sullivan and Ms. Peltola, a former congresswoman, is the only Senate contest that hasn’t been called.`\
-https://www.nytimes.com/2026/11/14/us/alaska-senate-race-ranked-choice-tabulation.html
-
-**A Democrat Wins the Alaska Governor’s Race for the First Time Since 1998**\
-`Jonathan Kreiss-Tomkins made a name for himself as a coalition builder willing to raise alarms about his state’s dire fiscal straits.`\
-https://www.nytimes.com/2026/11/14/us/elections/alaska-governor-winner-kreiss-tomkins-jkt.html
-
-**Quote of the Day: Time to Stop Being a Diva.**\
-`Quotation of the Day for Saturday, November 14, 2026.`\
-https://www.nytimes.com/2026/11/14/pageoneplus/quote-of-the-day-time-to-stop-being-a-diva.html
-
-**A ‘Generational Clash’ Is Fueling Europe’s Protests**\
-`As retirees live longer, governments need to spend more on pensions. That makes it harder to fund other services, spurring protests like those planned this weekend in France.`\
-https://www.nytimes.com/2026/11/14/world/europe/student-protests-pensions-generations.html
-
-**Two Celebrity Cases Put a Spotlight on British Courts’ Gag Orders**\
-`Russell Brand and the TV personality David Walliams both persuaded courts to suppress misconduct allegations against them. Some say the libel laws need to change.`\
-https://www.nytimes.com/2026/11/14/world/europe/russell-brand-david-walliams-gag-order.html
-
-**From the Front Page: New Orleans Schools Begin Integration on Nov. 14, 1960**\
-`Four Black first graders integrated two previously all-white elementary schools in New Orleans, escorted by federal marshals past jeering segregationist crowds.`\
-https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-schools-begin-integration-on-nov-14-1960.html
-
-**See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
-`On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
-https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
 
