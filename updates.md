@@ -1,3 +1,7 @@
+**Vaughn’s Favorite Thanksgiving Pies**\
+`Make your dessert table the place to be this holiday season with some of our favorite classic and unexpected pie recipes.`\
+https://www.nytimes.com/2026/11/14/dining/vaughns-favorite-thanksgiving-pies.html
+
 **Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
 `The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision

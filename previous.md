@@ -1,3 +1,7 @@
+**Vaughn’s Favorite Thanksgiving Pies**\
+`Make your dessert table the place to be this holiday season with some of our favorite classic and unexpected pie recipes.`\
+https://www.nytimes.com/2026/11/14/dining/vaughns-favorite-thanksgiving-pies.html
+
 **Geopolitics Looms Over Eurovision, but Not Its Asian Edition**\
 `So far, the contest’s organizers have kept politics offstage. The European edition shows how difficult that can be.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
 **Is Longevity a Sport Now? I Competed at the ‘Super Age Games’ to Find Out.**\
 `Right before turning 60, I participated in events testing balance, agility and more. My score promised to tell me how well I’m aging.`\
 https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
-
-**Hosting Ex-Convicts at Their Oakland Home Has Largely Gone Off Without a Hitch**\
-`A couple in Oakland, Calif., has welcomed into their home 24 men recently released from prison sentences for violent crimes, part of a program to ease reintegration into society.`\
-https://www.nytimes.com/2026/11/14/us/ex-convicts-halfway-house-oakland.html
 
