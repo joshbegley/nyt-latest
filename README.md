@@ -182,8 +182,8 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 `Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying nearly 200 people on Friday in New Orleans.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
-**Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
-`Transportation Secretary Sean Duffy said old equipment was overloaded, causing “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
+**Live Updates: F.A.A. Ends Nationwide Ground Stop but Delays Persist**\
+`The stoppage stranded thousands of passengers at airports across the country. Transportation Secretary Sean Duffy said old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
