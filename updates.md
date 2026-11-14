@@ -1,3 +1,7 @@
+**South Sudan’s National Election, Its First, Will Be Delayed**\
+`Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
+https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
+
 **Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
 `His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royale.” He was 87.`\
 https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
