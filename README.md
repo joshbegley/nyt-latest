@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
-`Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are about to speak at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
+`Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are speaking at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\

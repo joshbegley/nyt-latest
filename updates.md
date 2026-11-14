@@ -1,5 +1,9 @@
 **Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
 `U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
+https://www.nytimes.com/2026/11/13/us/politics/nvidia-alice-huang-spy-china.html
+
+**Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
+`U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
 https://www.nytimes.com/2026/11/13/us/politics/nvidia-scandal-what-it-means-to-be-a-spy.html
 
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
