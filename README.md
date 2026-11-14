@@ -10,8 +10,8 @@ https://www.nytimes.com/2026/11/14/business/media/linda-mason-dead-cbs-news.html
 `Dozens of international flights departed from the United States during Friday’s nationwide ground stop. Some planes also left for Hawaii from the West Coast.`\
 https://www.nytimes.com/2026/11/14/business/faa-ground-stop-exceptions-airlines.html
 
-**Starship Live Updates: SpaceX Rocket Headed for Milestone Landing in Texas**\
-`SpaceX’s Starship spacecraft has dropped out of orbit and will attempt to land back at the Starbase launch facility. If it is successful, it will mark a major step in SpaceX’s quest to build fully reusable rockets.`\
+**Starship Live Updates: SpaceX Makes History With Successful Rocket Landing in Texas**\
+`The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
 
 **In the Rubble of a Fallen Building, He Rescued a 2-Year-Old**\
