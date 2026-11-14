@@ -1,3 +1,11 @@
+**The Surf’s Way, Way Up as Huge Waves Pound the California Coast**\
+`Officials warned onlookers to stay off the beaches as waves of more than 50 feet in spots posed hazards. The intense conditions were too dangerous for even seasoned surfers at some beaches.`\
+https://www.nytimes.com/2026/11/14/weather/california-coast-waves-high-surf.html
+
+**NYC Democratic Socialists Urge Ocasio-Cortez to Run for President**\
+`At its biennial convention, the New York chapter of the Democratic Socialists of America set its list of legislative and political priorities through 2028.`\
+https://www.nytimes.com/2026/11/14/nyregion/nyc-dsa-convention-ocasio-cortez-president.html
+
 **N.Y.C. Democratic Socialists Urge Ocasio-Cortez to Run for President**\
 `At its biennial convention, the New York chapter of the Democratic Socialists of America set its list of legislative and political priorities through 2028.`\
 https://www.nytimes.com/2026/11/14/nyregion/nyc-dsa-convention-ocasio-cortez-president.html
