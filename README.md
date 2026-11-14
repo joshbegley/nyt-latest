@@ -1,3 +1,7 @@
+**Tanker Smashes Into Riverboat in New Orleans**\
+`All passengers were accounted for after a cargo ship struck the American Heritage riverboat in New Orleans on Friday. Officials said 32 people were taken to the hospital, none with critical injuries.`\
+https://www.nytimes.com/video/us/100000011283918/new-orleans-cruise-ship-crash-riverboat.html
+
 **Mullin Says Nationwide Ground Stop Is a Telecommunication Outage**\
 `The homeland security secretary said he did not know what caused the outage.`\
 https://www.nytimes.com/2026/11/13/us/markwayne-mullin-faa-ground-stop.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/13/style/maybe-its-maybelline-slogan.html
 **Eisenkot Accuses Netanyahu of Fueling ‘Racist’ Hostility Against Arabs**\
 `Gadi Eisenkot sharply criticized Prime Minister Benjamin Netanyahu days after the Israeli leader attacked Arab lawmakers in a divisive speech.`\
 https://www.nytimes.com/2026/11/13/world/middleeast/eisenkot-netanyahu-racism-arabs.html
-
-**What Should the New Congress Do?**\
-`A second sampling of responses to an Opinion article about ideas for the new Congress. Also: President Trump’s threat.`\
-https://www.nytimes.com/2026/11/13/opinion/democrats-congress-ideas.html
 
