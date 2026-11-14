@@ -1,3 +1,7 @@
+**Here’s Why It Could Take Days for Flights to Return to Normal**\
+`With hundreds of planes out of position and crews out of hours, restarting the nation’s flight system is no easy task.`\
+https://www.nytimes.com/2026/11/14/us/faa-groundstop-flights-restarting.html
+
 **Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
 `In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
 https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
