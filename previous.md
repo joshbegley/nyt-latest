@@ -1,3 +1,15 @@
+**They Had Come From Afar to Build New Lives. Then, All Was Gone.**\
+`Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
+https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html
+
+**Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
+`Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
+https://www.nytimes.com/2026/11/14/nyregion/political-winds-changed-in-new-jersey-could-that-mean-wind-farms.html
+
+**NYT Spelling Bee Answers for November 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
+
 **U.S. Officials Blame Outdated Systems for Nationwide Ground Stop**\
 `Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
@@ -182,19 +194,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 `Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying nearly 200 people on Friday in New Orleans.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
-**Live Updates: F.A.A. Ends Nationwide Ground Stop but Delays Persist**\
-`The stoppage stranded thousands of passengers at airports across the country. Transportation Secretary Sean Duffy said old equipment was overloaded, causing “instability” in radar communications.`\
-https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
-
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
 `A prolonged outage left many without email and other services, the most recent reminder that the world’s technological underpinnings rely on just a few companies.`\
 https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
-
-**Does Manifesting Actually Work?**\
-`Influencers said a cosmic portal opened at 11:11 on 11/11 — that it was a moment to successfully send wishes into the universe. We look at the science behind that.`\
-https://www.nytimes.com/2026/11/13/briefing/does-manifesting-actually-work.html
-
-**Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
-`The G.O.P. was able to avoid more House midterm losses — on top of the advantage it already had from gerrymandering.`\
-https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
 

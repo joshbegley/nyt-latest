@@ -1,3 +1,15 @@
+**They Had Come From Afar to Build New Lives. Then, All Was Gone.**\
+`Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
+https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html
+
+**Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
+`Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
+https://www.nytimes.com/2026/11/14/nyregion/political-winds-changed-in-new-jersey-could-that-mean-wind-farms.html
+
+**NYT Spelling Bee Answers for November 14, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
+
 **U.S. Officials Blame Outdated Systems for Nationwide Ground Stop**\
 `Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
 https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
