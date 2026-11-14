@@ -27,7 +27,7 @@ https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-o
 https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
 
 **Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
-`Travelers are entitled to a refund if your flight is canceled, regardless of the reason, or if a flight is significantly delayed or changed and you decide not to take it.`\
+`Travelers are entitled to a refund if your flight is canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
 
 **Airports Fill Up With Stuck Families and Stranded Travelers**\
