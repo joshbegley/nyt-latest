@@ -1,3 +1,7 @@
+**Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
+`U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
+https://www.nytimes.com/2026/11/13/us/politics/nvidia-scandal-what-it-means-to-be-a-spy.html
+
 **NYC Schools Chancellor Calls for Hiring Inquiry After Arrest in Jogger’s Murder**\
 `Kamar Samuels, the city schools chancellor, asked for an independent review days after a paraprofessional was fired following his arrest in the stabbing death of Katie Suarez.`\
 https://www.nytimes.com/2026/11/13/nyregion/suarez-jogger-killed-nyc-schools-investigation.html
@@ -102,7 +106,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 `Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying nearly 200 people on Friday in New Orleans.`\
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
-**Live Updates: F.A.A. Declares a Rare Nationwide Ground Stop**\
+**Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
 `Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are about to speak at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/business/100000011275611/why-jensen-huang-was-esse
 **Hakeem Jeffries Pushes to Lock Down House Speakership, With No Challenger Emerging**\
 `Facing resistance from the left but no challenger, the Democratic leader is sewing up support from key coalitions as his allies say he deserves a unanimous vote.`\
 https://www.nytimes.com/2026/11/13/us/politics/jeffries-house-speaker-democrats.html
-
-**What’s. The Deal. With Maybelline’s. New Slogan.**\
-`An attempt to update one of the most famous tag lines in marketing history left many consumers scratching their heads.`\
-https://www.nytimes.com/2026/11/13/style/maybe-its-maybelline-slogan.html
 

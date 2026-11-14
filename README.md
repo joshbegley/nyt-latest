@@ -1,6 +1,6 @@
 **Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
 `U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
-https://www.nytimes.com/2026/11/13/us/politics/nvidia-scandal-what-it-means-to-be-a-spy.html
+https://www.nytimes.com/2026/11/13/us/politics/nvidia-alice-huang-spy-china.html
 
 **NYC Schools Chancellor Calls for Hiring Inquiry After Arrest in Jogger’s Murder**\
 `Kamar Samuels, the city schools chancellor, asked for an independent review days after a paraprofessional was fired following his arrest in the stabbing death of Katie Suarez.`\

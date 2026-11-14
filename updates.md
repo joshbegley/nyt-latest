@@ -1,3 +1,11 @@
+**Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
+`U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
+https://www.nytimes.com/2026/11/13/us/politics/nvidia-scandal-what-it-means-to-be-a-spy.html
+
+**Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
+`Markwayne Mullin, the secretary of homeland security, and Transportation Secretary Sean Duffy are about to speak at the White House. Mr. Mullin blamed a telecommunication outage earlier but said officials did not know its cause.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
 `Travelers are entitled to a refund if your flight is canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
