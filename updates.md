@@ -1,3 +1,7 @@
+**Officials Blame Outdated Technology for Nationwide Ground Stop**\
+`Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
+https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
+
 **Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
 `Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
 https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
