@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
 `President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
 https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
 
-**Live Updates: Disruptions Persist as Air Travel Recovers from Nationwide Ground Stop**\
-`Thousands of travelers across the United States were stranded in the aftermath of a ground stop that Transportation Secretary Sean Duffy blamed on faltering, aging infrastructure.`\
+**Live Updates: Duffy to Speak to Reporters as Disruptions Persist After Ground Stop**\
+`Transportation Secretary Sean Duffy is expected to give an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
 
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
