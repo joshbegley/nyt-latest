@@ -1,3 +1,11 @@
+**How the University of North Carolina Tried to Avoid Trump’s Wrath**\
+`The University of North Carolina’s chancellor tried to protect the school from the Trump administration. Work on cancer, suicide, AIDS and coronaviruses was hit anyway.`\
+https://www.nytimes.com/2026/11/13/us/university-north-carolina-science-research-cuts-trump.html
+
+**Trump to Meet With Putin and Xi in China, With Nuclear Proliferation on the Agenda**\
+`The president plans to also discuss the war against Iran, but is not expected to bring up Russia’s war in Ukraine or the scandal that has engulfed Jensen Huang.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-putin-xi-china-nuclear-proliferation.html
+
 **Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
 `U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
 https://www.nytimes.com/2026/11/13/us/politics/nvidia-alice-huang-spy-china.html
@@ -107,7 +115,7 @@ https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escap
 https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
 
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
-`Transportation Secretary Sean Duffy blamed overloaded old equipment and “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
+`Transportation Secretary Sean Duffy said old equipment was overloaded during an upgrade, causing “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
 
 **Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011282877/schumer-van-hollen-sen
 **The Local: Thanksgiving harvest and earthen art**\
 `Plus, Allianz Field’s sculptural menagerie expands.`\
 https://www.nytimes.com/2026/11/13/briefing/thanksgiving-harvest-earthen-art.html
-
-**Why Jensen Huang Was Essential to Nvidia’s Rise**\
-`Jensen Huang was the driving force at Nvidia, with 60 direct reports and no clear succession plan. Tripp Mickle, one of our technology reporters, examines Mr. Huang’s central role in the company and the artificial intelligence industry.`\
-https://www.nytimes.com/video/business/100000011275611/why-jensen-huang-was-essential-to-nvidias-rise.html
-
-**Hakeem Jeffries Pushes to Lock Down House Speakership, With No Challenger Emerging**\
-`Facing resistance from the left but no challenger, the Democratic leader is sewing up support from key coalitions as his allies say he deserves a unanimous vote.`\
-https://www.nytimes.com/2026/11/13/us/politics/jeffries-house-speaker-democrats.html
 

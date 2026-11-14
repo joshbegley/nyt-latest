@@ -1,3 +1,15 @@
+**How the University of North Carolina Tried to Avoid Trump’s Wrath**\
+`The University of North Carolina’s chancellor tried to protect the school from the Trump administration. Work on cancer, suicide, AIDS and coronaviruses was hit anyway.`\
+https://www.nytimes.com/2026/11/13/us/university-north-carolina-science-research-cuts-trump.html
+
+**Trump to Meet With Putin and Xi in China, With Nuclear Proliferation on the Agenda**\
+`The president plans to also discuss the war against Iran, but is not expected to bring up Russia’s war in Ukraine or the scandal that has engulfed Jensen Huang.`\
+https://www.nytimes.com/2026/11/13/us/politics/trump-putin-xi-china-nuclear-proliferation.html
+
+**Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
+`Transportation Secretary Sean Duffy said old equipment was overloaded during an upgrade, causing “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
 `Transportation Secretary Sean Duffy blamed overloaded old equipment and “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
