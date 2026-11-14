@@ -1,3 +1,11 @@
+**She Was a CBS News Producer When Few Women Were**\
+`Linda Mason started in an entry-level job at CBS Radio in 1966 and rose through the news division’s ranks to senior vice president. She was 84.`\
+https://www.nytimes.com/2026/11/14/business/media/linda-mason-dead-cbs-news.html
+
+**How Some Flights Were Exempt From the Ground Stop**\
+`Dozens of international flights departed from the United States during Friday’s nationwide ground stop. Some planes also left for Hawaii from the West Coast.`\
+https://www.nytimes.com/2026/11/14/business/faa-ground-stop-exceptions-airlines.html
+
 **Starship Live Updates: SpaceX Tries for Milestone Rocket Landing**\
 `After orbiting Earth, SpaceX’s Starship spacecraft will attempt to land back at the launch facility in Texas. If it is successful, it will mark a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/14/us/elections/alaska-house-race-felon-eric-haf
 **Olivia Wilde on What It Was Like to Be Ranked For Hotness**\
 `The actor and director Olivia Wilde discussed the focus on her appearance in the early part of her career on “The Interview.”`\
 https://www.nytimes.com/video/podcasts/100000011276304/olivia-wilde-on-what-it-was-like-to-be-ranked-for-hotness.html
-
-**Olivia Wilde: ‘The Most Difficult, Painful Decision I’ve Ever Made’**\
-`On “The Interview,” the actor and director Olivia Wilde talked about relationships and how she felt about splitting up with the father of her children.`\
-https://www.nytimes.com/video/podcasts/100000011276299/olivia-wilde-the-most-difficult-painful-decision-ive-ever-made.html
-
-**Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
-`The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
-https://www.nytimes.com/video/podcasts/100000011276065/olivia-wilde-hit-bottom-heres-how-she-bounced-back.html
 
