@@ -1,3 +1,7 @@
+**Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
+`China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leave some of the region’s best-known musical cultures out of the mix.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
+
 **Vaughn’s Favorite Thanksgiving Pies**\
 `Make your dessert table the place to be this holiday season with some of our favorite classic and unexpected pie recipes.`\
 https://www.nytimes.com/2026/11/14/dining/vaughns-favorite-thanksgiving-pies.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/business/zhang-liang-china-panama.html
 **Trump’s Oil Grab in Venezuela Is Testing the Country’s National Identity**\
 `Long-held beliefs in Venezuela about sovereign control over oil are fraying as the U.S. lays claim to the country’s oil reserves.`\
 https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
-
-**Is Longevity a Sport Now? I Competed at the ‘Super Age Games’ to Find Out.**\
-`Right before turning 60, I participated in events testing balance, agility and more. My score promised to tell me how well I’m aging.`\
-https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
 

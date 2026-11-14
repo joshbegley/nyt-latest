@@ -1,3 +1,7 @@
+**Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
+`China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leave some of the region’s best-known musical cultures out of the mix.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
+
 **Vaughn’s Favorite Thanksgiving Pies**\
 `Make your dessert table the place to be this holiday season with some of our favorite classic and unexpected pie recipes.`\
 https://www.nytimes.com/2026/11/14/dining/vaughns-favorite-thanksgiving-pies.html
