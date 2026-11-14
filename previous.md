@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrant
 
 **Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
 `Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
-https://www.nytimes.com/2026/11/14/nyregion/political-winds-changed-in-new-jersey-could-that-mean-wind-farms.html
+https://www.nytimes.com/2026/11/14/nyregion/new-jersey-wind-farms-energy.html
 
 **NYT Spelling Bee Answers for November 14, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
