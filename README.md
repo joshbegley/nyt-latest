@@ -1,3 +1,7 @@
+**See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
+`On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
+https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
+
 **Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
 `After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
 **Meet Eileen Laubacher, the Navy Veteran Who Beat Lauren Boebert**\
 `Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
 https://www.nytimes.com/2026/11/13/us/elections/eileen-laubacher-defeated-lauren-boebert.html
-
-**Russia Revives Demand That NATO Retrench to Secure Ukraine Deal**\
-`The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
-https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
 
