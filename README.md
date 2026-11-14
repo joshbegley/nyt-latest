@@ -1,3 +1,7 @@
+**Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
+`In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
+https://www.nytimes.com/2026/11/14/science/brain-implants-give-als-patients-the-voice-to-speak-and-sing.html
+
 **South Sudan’s National Election, Its First, Will Be Delayed**\
 `Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
 https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/movies/whitney-peak-hunger-games-sunrise-reap
 **Steen Ostergaard, Danish Modern Furniture Designer, Has Died at 90**\
 `His space-age furniture sparked the imagination of Hollywood set designers, who gave it cameos in “Star Trek ” movies and “The Spy Who Loved Me.” He was 90.`\
 https://www.nytimes.com/2026/11/14/arts/design/steen-ostergaard-dead.html
-
-**Avast! Bring Your Dog-Eared Melvilles to the ‘Moby-Dick’ Bar.**\
-`In Lower Manhattan, a salt-sprayed cocktail bar pays homage to the 175-year-old white whale of American literature. So does its book club.`\
-https://www.nytimes.com/2026/11/14/books/moby-dick-book-club-quick-eternity.html
 
