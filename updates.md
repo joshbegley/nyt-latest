@@ -1,3 +1,11 @@
+**An Elotes-Flavored Corn Pudding for Future You**\
+`You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
+https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html
+
+**Live Updates: Eurovision Song Contest Crowns an Asia Champion**\
+`Carmelle of the Philippines defeated 10 competitors at the first edition of the high-camp event in Asia, held in Bangkok.`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Live Updates: Eurovision Song Contest to Crown an Asia Champion**\
 `The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
