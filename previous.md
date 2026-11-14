@@ -170,10 +170,6 @@ https://www.nytimes.com/2026/11/14/crosswords/strands-sidekick-987.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
 https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
 
-**What’s Behind the Trump-Huang Relationship?**\
-`President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
-https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
-
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
