@@ -1,3 +1,7 @@
+**Live Updates: Disruptions Persist as Air Travel Recovers from Nationwide Ground Stop**\
+`Thousands of travelers across the United States were stranded in the aftermath of a ground stop that Transportation Secretary Sean Duffy blamed on faltering, aging infrastructure.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
 `The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
 https://www.nytimes.com/2026/11/14/magazine/olivia-wilde-interview.html
