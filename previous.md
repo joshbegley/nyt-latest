@@ -1,3 +1,7 @@
+**Pilots and Controllers Kept Communicating During Outage**\
+`Transportation Secretary Sean Duffy said during the intermittent outage, controllers could still reach pilots.`\
+https://www.nytimes.com/2026/11/13/us/faa-ground-stop-outage-plane-landings.html
+
 **Ground Stop Scrambles Travel Plans for Sports Teams Across the Country**\
 `Some professional and college sports teams were stuck on runways, or opting to pile into buses, ahead of games this weekend that are now uncertain.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-sports-nba-football.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
 **Katsu Naito on His Portraits of a ’90s Red-Light District in Downtown Manhattan**\
 `Katsu Naito looks back at his 1990s-era photographs of the women who worked in the Meatpacking District after hours.`\
 https://www.nytimes.com/2026/11/13/t-magazine/katsu-naito-1990s-new-york.html
-
-**Lauren Boebert Loses Re-election Bid in Colorado House Race to Eileen Laubacher**\
-`Ms. Boebert’s loss to Eileen Laubacher in a conservative House district represents a significant victory for Democrats.`\
-https://www.nytimes.com/2026/11/09/us/lauren-boebert-colorado-house-election.html
 

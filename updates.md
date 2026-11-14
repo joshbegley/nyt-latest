@@ -1,3 +1,7 @@
+**Pilots and Controllers Kept Communicating During Outage**\
+`Transportation Secretary Sean Duffy said during the intermittent outage, controllers could still reach pilots.`\
+https://www.nytimes.com/2026/11/13/us/faa-ground-stop-outage-plane-landings.html
+
 **Ground Stop Scrambles Travel Plans for Sports Teams Across the Country**\
 `Some professional and college sports teams were stuck on runways, or opting to pile into buses, ahead of games this weekend that are now uncertain.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-sports-nba-football.html
