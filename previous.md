@@ -1,3 +1,7 @@
+**5 Big Questions as C.E.O.s Meet in China**\
+`President Trump and U.S. tech executives are expected to gather for a major summit in Shenzhen next week. On the agenda: a stalled trade war, expanding export controls, and suspected spy games.`\
+https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
+
 **Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
 `The event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
@@ -182,7 +186,7 @@ https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
 `Right before turning 60, I participated in events testing balance, agility and more. My score promised to tell me how well I’m aging.`\
 https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
 
-**Ex-Convict? Come Live With Memi and Scott.**\
+**Hosting Ex-Convicts at Their Oakland Home Has Largely Gone Off Without a Hitch**\
 `A couple in Oakland, Calif., has welcomed into their home 24 men recently released from prison sentences for violent crimes, part of a program to ease reintegration into society.`\
 https://www.nytimes.com/2026/11/14/us/ex-convicts-halfway-house-oakland.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrant
 **Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
 `Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
 https://www.nytimes.com/2026/11/14/nyregion/new-jersey-wind-farms-energy.html
-
-**NYT Spelling Bee Answers for November 14, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/14/crosswords/spelling-bee-forum.html
 
