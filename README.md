@@ -1,3 +1,7 @@
+**Ground Stop Scrambles Travel Plans for Sports Teams Across the Country**\
+`Some professional and college sports teams were stuck on runways, or opting to pile into buses, ahead of games this weekend that are now uncertain.`\
+https://www.nytimes.com/2026/11/13/us/ground-stop-flights-sports-nba-football.html
+
 **Hear How Air Traffic Controllers Grappled With the Ground Stoppage Chaos**\
 `Radio conversations gave a glimpse of how air traffic controllers handled the stoppage of air travel across the United States.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-air-traffic-control-pilots.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/13/t-magazine/katsu-naito-1990s-new-york.html
 **Lauren Boebert Loses Re-election Bid in Colorado House Race to Eileen Laubacher**\
 `Ms. Boebert’s loss to Eileen Laubacher in a conservative House district represents a significant victory for Democrats.`\
 https://www.nytimes.com/2026/11/09/us/lauren-boebert-colorado-house-election.html
-
-**Mamdani Overhauls N.Y.P.D. Unit Criticized for Its Handling of Protests**\
-`The Strategic Response Group will be revamped, with its crowd-control and counterterrorism duties dispersed to other units, including a new Civilian Dialogue Unit.`\
-https://www.nytimes.com/2026/11/13/nyregion/nypd-strategic-response-mamdani-protests.html
 
