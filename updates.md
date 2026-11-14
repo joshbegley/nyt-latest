@@ -1,3 +1,7 @@
+**Geopolitics Looms Over Eurovision, but Not Its Asian Edition**\
+`So far, the contest’s organizers have kept politics offstage. The European edition shows how difficult that can be.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
+
 **5 Big Questions as C.E.O.s Meet in China**\
 `President Trump and U.S. tech executives are expected to gather for a major summit in Shenzhen next week. On the agenda: a stalled trade war, expanding export controls, and suspected spy games.`\
 https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
