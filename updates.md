@@ -1,3 +1,11 @@
+**SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
+`SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
+https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
+
+**Richard Ford: In 1944, One Boy’s Birth Meant Little**\
+`The newspaper was taken up with stories of destruction, enemies and a ruined Benedictine abbey.`\
+https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
+
 **Specialized High School Test Crashes, Rattling Students Across New York**\
 `The Specialized High School Admissions Test is the sole admissions criterion for the city’s eight specialized high schools. Technical difficulties sent students home with promises of an opportunity to retake it.`\
 https://www.nytimes.com/2026/11/14/nyregion/specialized-high-schools-test-crashes-nyc.html

@@ -1,3 +1,7 @@
+**SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
+`SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
+https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
+
 **Specialized High School Test Crashes, Rattling Students Across New York**\
 `The Specialized High School Admissions Test is the sole admissions criterion for the city’s eight specialized high schools. Technical difficulties sent students home with promises of an opportunity to retake it.`\
 https://www.nytimes.com/2026/11/14/nyregion/specialized-high-schools-test-crashes-nyc.html
@@ -142,8 +146,8 @@ https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republica
 `In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
 https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
 
-**Richard Ford: Born to a World at War**\
-`In 1944, daily papers were bigger, and so was the American appetite for news.`\
+**Richard Ford: In 1944, One Boy’s Birth Meant Little**\
+`The newspaper was taken up with stories of destruction, enemies and a ruined Benedictine abbey.`\
 https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
 
 **‘There’s No Juice Left to Squeeze From MAGA’**\
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/world/canada/national-hockey-league-rogers-sp
 **NYT Connections Answers for November 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
 https://www.nytimes.com/2026/11/14/crosswords/connections-companion-1253.html
-
-**NYT Strands Hints for November 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
-https://www.nytimes.com/2026/11/14/crosswords/strands-sidekick-987.html
 
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\

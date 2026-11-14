@@ -1,3 +1,7 @@
+**Side Tracks**\
+`Sala Wanetick and Emily Biegas’s latest collaboration will get you spinning ‘round.`\
+https://www.nytimes.com/2026/11/14/crosswords/daily-puzzle-2026-11-15.html
+
 **SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
 `SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
 https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/magazine/friend-cheating-fiance-ethics.html
 **In Canada, Watching the N.H.L. Has Become Expensive and Cumbersome**\
 `Games behind paywalls and exorbitant costs forcing a drop in attendance — even to watch Connor McDavid in Edmonton — have only compounded the loss of a Saturday night ritual.`\
 https://www.nytimes.com/2026/11/14/world/canada/national-hockey-league-rogers-sportsnet.html
-
-**NYT Connections Answers for November 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
-https://www.nytimes.com/2026/11/14/crosswords/connections-companion-1253.html
 
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
