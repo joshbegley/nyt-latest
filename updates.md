@@ -1,3 +1,7 @@
+**Forever in Bluejeans**\
+`A reflection on denim.`\
+https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html
+
 **Political Winds Changed in New Jersey. Could That Mean Wind Farms?**\
 `Advocates for renewable energy see opportunity in the ousting of former Representative Jeff Van Drew, an outspoken critic of offshore wind development.`\
 https://www.nytimes.com/2026/11/14/nyregion/new-jersey-wind-farms-energy.html
