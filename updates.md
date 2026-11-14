@@ -1,3 +1,7 @@
+**Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
+`Transportation Secretary Sean Duffy blamed overloaded old equipment and “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
+https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
+
 **Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
 `Travelers are entitled to refunds if their flights are canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
