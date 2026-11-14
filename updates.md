@@ -1,3 +1,7 @@
+**Travel Nightmare Continues for Stranded Passengers Awaiting Flights**\
+`After a night of fitful sleep on airport floors, some travelers are still stuck amid thousands of flight cancellations following Friday’s ground stop.`\
+https://www.nytimes.com/2026/11/14/us/travel-nightmare-continues-for-stranded-passengers-awaiting-flights.html
+
 **Tech Leaders Rally Behind Jensen Huang**\
 `In social media posts and letters to Nvidia’s board, Mr. Huang’s billionaire peers described him as a singular leader who could not be replaced at Nvidia.`\
 https://www.nytimes.com/2026/11/14/technology/silicon-valley-nvidia-jensen-huang.html

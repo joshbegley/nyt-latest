@@ -1,3 +1,7 @@
+**After Relative Silence, Joe Rogan Said MAGA Has Lost the “Podcast Bros”**\
+`The nation’s top podcaster addressed the midterm election results, days after declaring that he thinks politics is “gross.”`\
+https://www.nytimes.com/2026/11/14/style/after-relative-silence-joe-rogan-said-trumps-policies-have-lost-the-podcast-bros.html
+
 **Travel Nightmare Continues for Stranded Passengers Awaiting Flights**\
 `After a night of fitful sleep on airport floors, some travelers are still stuck amid thousands of flight cancellations following Friday’s ground stop.`\
 https://www.nytimes.com/2026/11/14/us/travel-nightmare-continues-for-stranded-passengers-awaiting-flights.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/dining/drinks/cocktails-social-media-theatric
 **The Mexican Architect Whose Blond and Pink Walls Seduced Silicon Valley**\
 `Ricardo Legorreta designed buildings that drew on Mexico’s vernacular. A $43 million Hawaii compound is among the architect’s signature homes now on the market.`\
 https://www.nytimes.com/2026/11/14/realestate/the-blond-and-pink-walls-that-seduced-silicon-valley.html
-
-**My Condo Wants Charging Spots for Electric Cars. How Do We Add Them Fairly?**\
-`Installing EV charging can be complicated, requiring buy-in from your association, building management and the local electric utility provider.`\
-https://www.nytimes.com/2026/11/14/realestate/my-condo-wants-charging-spots-for-electric-cars-how-do-we-add-them-fairly.html
 
