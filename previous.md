@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
 `A couple in Oakland, Calif., has welcomed into their home 24 men recently released from prison sentences for violent crimes, part of a program to ease reintegration into society.`\
 https://www.nytimes.com/2026/11/14/us/ex-convicts-halfway-house-oakland.html
 
-**They Had Come From Afar to Build New Lives. Then, All Was Gone.**\
+**Brooklyn Building Collapse Tragedy Devastates Immigrant Families**\
 `Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
 https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html
 

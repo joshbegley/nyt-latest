@@ -1,3 +1,7 @@
+**Brooklyn Building Collapse Tragedy Devastates Immigrant Families**\
+`Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
+https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html
+
 **Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
 `President Volodymyr Zelensky said the system, which Ukraine uses to guide drones, was being throttled over Russian-occupied territory. SpaceX, its developer, has denied the claim.`\
 https://www.nytimes.com/2026/11/14/world/europe/ukraine-starshield-zelensky.html
