@@ -1,3 +1,7 @@
+**Officials Blame Outdated Technology for Nationwide Ground Stop**\
+`Sean Duffy, the transportation secretary, said on Friday that flights were halted for hours because old equipment was overloaded, causing “instability” in radar communications.`\
+https://www.nytimes.com/video/us/100000011284502/officials-blame-outdated-technology-for-nationwide-ground-stop.html
+
 **Bomb Found at Ethanol Plant in Peoria, Ill., Mayor Says**\
 `Residents in a one-mile radius of the plant were advised to evacuate after the device was located at an industrial site along the Illinois River.`\
 https://www.nytimes.com/2026/11/14/us/bomb-ethanol-plant-peoria-illinois.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/13/briefing/does-manifesting-actually-work.html
 **Did the Redistricting Wars Backfire on Republicans? In a Word, No.**\
 `The G.O.P. was able to avoid more House midterm losses — on top of the advantage it already had from gerrymandering.`\
 https://www.nytimes.com/2026/11/13/upshot/gerrymanders-midterm-elections-republicans.html
-
-**African Miss Universe Contestants Struggle to Get U.S. Visas**\
-`A crackdown on entry by some citizens of African countries by the U.S. immigration officials means that some contestants might not get visas in time to attend the pageant in Puerto Rico this month.`\
-https://www.nytimes.com/2026/11/13/world/africa/miss-universe-us-visas.html
 
