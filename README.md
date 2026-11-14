@@ -1,3 +1,7 @@
+**Tech Leaders Rally Behind Jensen Huang**\
+`In social media posts and letters to Nvidia’s board, Mr. Huang’s billionaire peers described him as a singular leader who could not be replaced at Nvidia.`\
+https://www.nytimes.com/2026/11/14/technology/silicon-valley-nvidia-jensen-huang.html
+
 **Repair That Triggered Air Traffic Meltdown Was Expected to be ‘Routine’**\
 `Officials said that the upgrade to antiquated communications equipment at a remote facility overloaded other parts of the national air traffic system.`\
 https://www.nytimes.com/2026/11/14/us/repair-that-triggered-air-traffic-meltdown-was-expected-to-be-routine.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/realestate/my-condo-wants-charging-spots-for-
 **Top Democrat Eyes Filibuster-Proof Budget Bill to Unlock Affordability Agenda**\
 `The lawmaker set to lead the House Budget Committee outlined Democrats’ options for forcing a negotiation with President Trump on an economic package to bring down living costs.`\
 https://www.nytimes.com/2026/11/14/us/politics/house-democrats-affordability-costs-budget.html
-
-**Wendell Pierce and Other Actors on the Challenge of Playing Othello**\
-`As an acclaimed production returns to the stage, four actors reflect on one of theater’s great challenges for Black performers.`\
-https://www.nytimes.com/2026/11/14/theater/othello-actors-shakespeare-play.html
 
