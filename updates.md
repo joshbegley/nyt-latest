@@ -1,3 +1,7 @@
+**Live Updates: Eurovision Song Contest to Crown an Asia Champion**\
+`The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Meet the Fans Who Traveled to Bangkok for Eurovision Asia**\
 `Some were Asia-based Europeans chasing nostalgia. Others were Americans eager to experience their first edition of the song contest.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
