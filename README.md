@@ -1,3 +1,7 @@
+**Forever in Bluejeans**\
+`A reflection on denim.`\
+https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html
+
 **Should I Let a Woman Know That Her Fiancé Cheated on Her With My Friend?**\
 `My friend wants this man’s fiancée to know that he’s a sleazeball who has been unfaithful.`\
 https://www.nytimes.com/2026/11/14/magazine/friend-cheating-fiance-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-scho
 **See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
 `On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
 https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
-
-**What to Know About Friday’s Nationwide Ground Stop**\
-`The air traffic control system’s overloaded, antiquated telecommunications equipment sustained its latest widespread failure, prompting a call for more money to fuel faster upgrades.`\
-https://www.nytimes.com/2026/11/13/us/faa-ground-stop-flights-what-to-know.html
 
