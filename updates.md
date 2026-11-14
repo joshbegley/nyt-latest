@@ -1,3 +1,7 @@
+**Developer Avoided Stricter Oversight Before Fatal Building Collapse**\
+`By winning approval for a three-story building, then seeking to add more stories, the Brooklyn developer was not subject to the more rigorous oversight required for larger projects.`\
+https://www.nytimes.com/2026/11/13/nyregion/flatbush-building-collapse-oversight.html
+
 **Live Updates: F.A.A. Says Nationwide Ground Stop Is Over**\
 `Transportation Secretary Sean Duffy said old equipment was overloaded, causing “instability” in radar communications. Homeland Security Secretary Markwayne Mullin says there is no indication yet of a cyberattack but did not rule it out.`\
 https://www.nytimes.com/live/2026/11/13/us/ground-stop-nationwide-flights-faa
