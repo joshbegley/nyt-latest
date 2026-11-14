@@ -1,3 +1,23 @@
+**Quote of the Day: Time to Stop Being a Diva.**\
+`Quotation of the Day for Saturday, November 14, 2026.`\
+https://www.nytimes.com/2026/11/14/pageoneplus/quote-of-the-day-time-to-stop-being-a-diva.html
+
+**A ‘Generational Clash’ Is Fueling Europe’s Protests**\
+`As retirees live longer, governments need to spend more on pensions. That makes it harder to fund other services, spurring protests like those planned this weekend in France.`\
+https://www.nytimes.com/2026/11/14/world/europe/student-protests-pensions-generations.html
+
+**Two Celebrity Cases Put a Spotlight on British Courts’ Gag Orders**\
+`Russell Brand and the TV personality David Walliams both persuaded courts to suppress misconduct allegations against them. Some say the libel laws need to change.`\
+https://www.nytimes.com/2026/11/14/world/europe/russell-brand-david-walliams-gag-order.html
+
+**From the Front Page: New Orleans Schools Begin Integration on Nov. 14, 1960**\
+`Four Black first graders integrated two previously all-white elementary schools in New Orleans, escorted by federal marshals past jeering segregationist crowds.`\
+https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-schools-begin-integration-on-nov-14-1960.html
+
+**See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
+`On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
+https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
+
 **Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
 `After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html

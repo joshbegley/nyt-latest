@@ -1,3 +1,23 @@
+**Quote of the Day: Time to Stop Being a Diva.**\
+`Quotation of the Day for Saturday, November 14, 2026.`\
+https://www.nytimes.com/2026/11/14/pageoneplus/quote-of-the-day-time-to-stop-being-a-diva.html
+
+**A ‘Generational Clash’ Is Fueling Europe’s Protests**\
+`As retirees live longer, governments need to spend more on pensions. That makes it harder to fund other services, spurring protests like those planned this weekend in France.`\
+https://www.nytimes.com/2026/11/14/world/europe/student-protests-pensions-generations.html
+
+**Two Celebrity Cases Put a Spotlight on British Courts’ Gag Orders**\
+`Russell Brand and the TV personality David Walliams both persuaded courts to suppress misconduct allegations against them. Some say the libel laws need to change.`\
+https://www.nytimes.com/2026/11/14/world/europe/russell-brand-david-walliams-gag-order.html
+
+**From the Front Page: New Orleans Schools Begin Integration on Nov. 14, 1960**\
+`Four Black first graders integrated two previously all-white elementary schools in New Orleans, escorted by federal marshals past jeering segregationist crowds.`\
+https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-schools-begin-integration-on-nov-14-1960.html
+
+**See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
+`On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
+https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
+
 **Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
 `After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
 https://www.nytimes.com/2026/11/13/us/ground-stop-flights-democrats-denver.html
@@ -173,24 +193,4 @@ https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-
 **All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
 `Gov. Jeff Landry of Louisiana called it a “literal miracle on the Mississippi” that all of the nearly 200 people aboard the riverboat were rescued.`\
 https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
-
-**Inquiry Into Brooklyn Building Collapse Expands as Families Demand Answers**\
-`The Department of Buildings has also hired an engineering firm to provide an independent report on what caused the three-story building to collapse, killing eight people.`\
-https://www.nytimes.com/2026/11/13/nyregion/brooklyn-building-collapse-inquiry-families.html
-
-**Supreme Court Set to Hear Trump’s Ban on Asylum Claims at Border**\
-`Lower courts have ruled against the policy, which has effectively shut down avenues for people seeking asylum protections and to remain in the United States.`\
-https://www.nytimes.com/2026/11/13/us/politics/supreme-court-trump-asylum-border.html
-
-**‘Get Focused on London’: How Iran’s Agents Attacked European Targets**\
-`A wave of assaults in Britain and elsewhere in the spring sowed fear across Europe. Prosecutors shed new light on how Iran took aim at U.S. allies.`\
-https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html
-
-**Meet Eileen Laubacher, the Navy Veteran Who Beat Lauren Boebert**\
-`Eileen Laubacher, a retired rear admiral, defeated one of the highest-profile supporters of President Trump in a deep-red district that she knows will be tough to hold.`\
-https://www.nytimes.com/2026/11/13/us/elections/eileen-laubacher-defeated-lauren-boebert.html
-
-**Russia Revives Demand That NATO Retrench to Secure Ukraine Deal**\
-`The hard-line position of Russian officials in closed-door negotiations about ending the war thrusts European security into the heart of the talks.`\
-https://www.nytimes.com/2026/11/13/us/politics/russia-demand-nato-ukraine.html
 
