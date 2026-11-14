@@ -1,3 +1,11 @@
+**A Democrat Wins the Alaska Governor’s Race for the First Time Since 1998**\
+`Jonathan Kreiss-Tomkins made a name for himself as a coalition builder willing to raise alarms about his state’s dire fiscal straits.`\
+https://www.nytimes.com/2026/11/14/us/elections/alaska-governor-winner-kreiss-tomkins-jkt.html
+
+**What to Know About Friday’s Nationwide Ground Stop**\
+`The air traffic control system’s overloaded, antiquated telecommunications equipment sustained its latest widespread failure, prompting a call for more money to fuel faster upgrades.`\
+https://www.nytimes.com/2026/11/13/us/faa-ground-stop-flights-what-to-know.html
+
 **Quote of the Day: Time to Stop Being a Diva.**\
 `Quotation of the Day for Saturday, November 14, 2026.`\
 https://www.nytimes.com/2026/11/14/pageoneplus/quote-of-the-day-time-to-stop-being-a-diva.html

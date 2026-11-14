@@ -1,3 +1,7 @@
+**A Democrat Wins the Alaska Governor’s Race for the First Time Since 1998**\
+`Jonathan Kreiss-Tomkins made a name for himself as a coalition builder willing to raise alarms about his state’s dire fiscal straits.`\
+https://www.nytimes.com/2026/11/14/us/elections/alaska-governor-winner-kreiss-tomkins-jkt.html
+
 **Quote of the Day: Time to Stop Being a Diva.**\
 `Quotation of the Day for Saturday, November 14, 2026.`\
 https://www.nytimes.com/2026/11/14/pageoneplus/quote-of-the-day-time-to-stop-being-a-diva.html
@@ -17,6 +21,10 @@ https://www.nytimes.com/2026/11/14/learning/from-the-front-page-new-orleans-scho
 **See How Air Travel Ground to a Halt at the 6 Busiest U.S. Airports**\
 `On Friday, when the Federal Aviation Administration grounded all flights across the country, the skies emptied of planes.`\
 https://www.nytimes.com/interactive/2026/11/13/us/us-airports-ground-stop.html
+
+**What to Know About Friday’s Nationwide Ground Stop**\
+`The air traffic control system’s overloaded, antiquated telecommunications equipment sustained its latest widespread failure, prompting a call for more money to fuel faster upgrades.`\
+https://www.nytimes.com/2026/11/13/us/faa-ground-stop-flights-what-to-know.html
 
 **Even High-Flying Democrats Found Themselves Grounded in the Mile High City**\
 `After a nationwide ground stop, several governors and the former secretary of transportation were among those stranded in a Denver hotel bar.`\
@@ -189,8 +197,4 @@ https://www.nytimes.com/video/podcasts/100000011273033/offset-on-getting-shot-i-
 **Offset Doesn’t Want to be the Villain Anymore: ‘I’m a Great Person’**\
 `Over the last few years, Offset has become as visible for his personal setbacks — including his divorce from Cardi B and getting shot outside a Florida casino — as he is for his musicmaking. On ‘Popcast’ he talks about getting “lost” and why he’s now back to being focused on music.`\
 https://www.nytimes.com/video/podcasts/100000011273020/offset-is-tired-of-being-the-villain.html
-
-**All Accounted for After Tanker Crashes Into Docked New Orleans Riverboat**\
-`Gov. Jeff Landry of Louisiana called it a “literal miracle on the Mississippi” that all of the nearly 200 people aboard the riverboat were rescued.`\
-https://www.nytimes.com/2026/11/13/us/new-orleans-cruise-ship-crash.html
 
