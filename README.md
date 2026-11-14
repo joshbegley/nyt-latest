@@ -1,3 +1,119 @@
+**This Man Stole $9 Million in Gold Bars on the Upper West Side, Police Say**\
+`The victim, who believed his financial assets had been compromised, was the target of an online fraud scheme and believed he had to buy the precious metal, the authorities said.`\
+https://www.nytimes.com/2026/11/14/nyregion/gold-bars-scam-new-york-city.html
+
+**Why a Little Extra Weight May Benefit Older People**\
+`Even in the age of obesity drugs, researchers say many don’t need to shed pounds.`\
+https://www.nytimes.com/2026/11/14/well/why-a-little-extra-weight-may-benefit-older-people.html
+
+**As Congress Plans Investigations, White House Prepares Ferocious Response**\
+`The Trump administration has quietly been laying the groundwork for an aggressive all-out effort to thwart newly empowered Democrats’ attempts at oversight.`\
+https://www.nytimes.com/2026/11/14/us/politics/congress-trump-investigations.html
+
+**Corrections: Nov. 14, 2026**\
+`Corrections that appeared in print on Saturday, Nov. 14, 2026.`\
+https://www.nytimes.com/2026/11/14/pageoneplus/corrections-nov-14-2026.html
+
+**Olivia Wilde on How the ‘Don’t Worry Darling’ Tabloid Drama Changed Her**\
+`On “The Interview,” the actor and director Olivia Wilde discussed how she handled the rumors and attention that surrounded her 2022 movie, “Don’t Worry Darling.”`\
+https://www.nytimes.com/video/podcasts/100000011276308/olivia-wilde-on-how-the-dont-worry-darling-tabloid-drama-changed-her.html
+
+**Olivia Wilde on Finding the Courage to Change Your Life**\
+`On “The Interview,” Olivia Wilde discussed becoming a movie director and how the words of Nora Ephron inspired her.`\
+https://www.nytimes.com/video/podcasts/100000011276306/olivia-wilde-on-finding-the-courage-to-change-your-life.html
+
+**Olivia Wilde on the Lie Women Are Told About Having Kids**\
+`On “The Interview,” the actor and director Olivia Wilde talked about how becoming a mother changed how she viewed her body.`\
+https://www.nytimes.com/video/podcasts/100000011276305/olivia-wilde-on-the-lie-women-are-told-about-having-kids.html
+
+**Olivia Wilde on What It Was Like to Be Ranked For Hotness**\
+`The actor and director Olivia Wilde discussed the focus on her appearance in the early part of her career on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011276304/olivia-wilde-on-what-it-was-like-to-be-ranked-for-hotness.html
+
+**‘Democrat’ in Alaska’s House Race Is Doing Time in a New York Prison**\
+`While Republicans accuse Democrats of dirty tricks in the ongoing Alaska Senate race, the lone House contest in the state has the hallmarks of similar “ballot stacking” shenanigans.`\
+https://www.nytimes.com/2026/11/14/us/elections/alaska-house-race-felon-eric-hafner.html
+
+**Olivia Wilde: ‘The Most Difficult, Painful Decision I’ve Ever Made’**\
+`On “The Interview,” the actor and director Olivia Wilde talked about relationships and how she felt about splitting up with the father of her children.`\
+https://www.nytimes.com/video/podcasts/100000011276299/olivia-wilde-the-most-difficult-painful-decision-ive-ever-made.html
+
+**Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
+`The actor-director learned a lot about shame, regret and failure — and then made a hit movie.`\
+https://www.nytimes.com/video/podcasts/100000011276065/olivia-wilde-hit-bottom-heres-how-she-bounced-back.html
+
+**The Jensen Huang Scandal Has Shocked Even Scandal-Prone Silicon Valley**\
+`As Jensen Huang abruptly departs, the tech community grapples with an eternal question: Why do the smartest and most successful men so often act so stupidly?`\
+https://www.nytimes.com/2026/11/14/technology/jensen-huang-nvidia-scandal-silicon-valley.html
+
+**Have Cocktails Become Too Beautiful?**\
+`Fueled by trends on social media, bartenders are creating increasingly theatrical cocktails. But are they any good?`\
+https://www.nytimes.com/2026/11/14/dining/drinks/have-cocktails-become-too-beautiful.html
+
+**The Mexican Architect Whose Blond and Pink Walls Seduced Silicon Valley**\
+`Ricardo Legorreta designed buildings that drew on Mexico’s vernacular. A $43 million Hawaii compound is among the architect’s signature homes now on the market.`\
+https://www.nytimes.com/2026/11/14/realestate/the-blond-and-pink-walls-that-seduced-silicon-valley.html
+
+**My Condo Wants Charging Spots for Electric Cars. How Do We Add Them Fairly?**\
+`Installing EV charging can be complicated, requiring buy-in from your association, building management and the local electric utility provider.`\
+https://www.nytimes.com/2026/11/14/realestate/my-condo-wants-charging-spots-for-electric-cars-how-do-we-add-them-fairly.html
+
+**Top Democrat Eyes Filibuster-Proof Budget Bill to Unlock Affordability Agenda**\
+`The lawmaker set to lead the House Budget Committee outlined Democrats’ options for forcing a negotiation with President Trump on an economic package to bring down living costs.`\
+https://www.nytimes.com/2026/11/14/us/politics/house-democrats-affordability-costs-budget.html
+
+**Wendell Pierce and Other Actors on the Challenge of Playing Othello**\
+`As an acclaimed production returns to the stage, four actors reflect on one of theater’s great challenges for Black performers.`\
+https://www.nytimes.com/2026/11/14/theater/othello-actors-shakespeare-play.html
+
+**Dolly Parton Sings With U2, and 9 More Songs We’re Talking About**\
+`Hear the duet that is the country star’s last recording, along with Ella Langley’s stoic meditation, BigXthaPlug’s new chart entry and more.`\
+https://www.nytimes.com/2026/11/14/arts/music/dolly-parton-u2-ella-langley-new-songs.html
+
+**Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
+`His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royal.” He was 87.`\
+https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
+
+**This ‘Hunger Games’ Actress Can Doze at the Drop of a Hat**\
+`“You have to get really good at napping,” said Whitney Peak of “Sunrise on the Reaping,” “because you can have breaks anywhere from five minutes to three hours.”`\
+https://www.nytimes.com/2026/11/14/movies/whitney-peak-hunger-games-sunrise-reaping.html
+
+**Steen Ostergaard, Danish Modern Furniture Designer, Has Died at 90**\
+`His space-age furniture sparked the imagination of Hollywood set designers, who gave it cameos in “Star Trek ” movies and “The Spy Who Loved Me.” He was 90.`\
+https://www.nytimes.com/2026/11/14/arts/design/steen-ostergaard-dead.html
+
+**Avast! Bring Your Dog-Eared Melvilles to the ‘Moby-Dick’ Bar.**\
+`In Lower Manhattan, a salt-sprayed cocktail bar pays homage to the 175-year-old white whale of American literature. So does its book club.`\
+https://www.nytimes.com/2026/11/14/books/moby-dick-book-club-quick-eternity.html
+
+**When a Master Magician Meets a Bumbling Student ...**\
+`A sit-down with the ace magician Asi Wind, whose new book shares a few trade secrets, should have paid off with at least one successful caper. Not quite.`\
+https://www.nytimes.com/2026/11/14/books/review/asi-wind-magician.html
+
+**Why Foraging for Food Is the Latest Trend in Luxury Hotels and Fine-Dining Restaurants**\
+`The latest trend at country hotels and fine-dining restaurants, these excursions are designed to bring out the hunter-gatherer instinct in their guests.`\
+https://www.nytimes.com/2026/11/14/t-magazine/hotels-restaurants-foraging-food.html
+
+**In ‘Minotaur,’ Andrey Zvyagintsev Confronts the Costs of Putin’s War**\
+`Andrey Zvyagintsev’s “Minotaur,” a Cannes prizewinner, uses the story of a cheating spouse to examine the compromises Russians make under authoritarianism.`\
+https://www.nytimes.com/2026/11/14/movies/andrey-zvyagintsev-minotaur.html
+
+**He Was China’s Man in Panama. Then He Became a Wanted Man.**\
+`A Chinese businessman arrived in Panama with money and power. Then he sold a port when his luck turned. Now China wants him sent back.`\
+https://www.nytimes.com/2026/11/14/business/zhang-liang-china-panama.html
+
+**Trump’s Oil Grab in Venezuela Is Testing the Country’s National Identity**\
+`Long-held beliefs in Venezuela about sovereign control over oil are fraying as the U.S. lays claim to the country’s oil reserves.`\
+https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
+
+**Is Longevity a Sport Now? I Competed at the ‘Super Age Games’ to Find Out.**\
+`Right before turning 60, I participated in events testing balance, agility and more. My score promised to tell me how well I’m aging.`\
+https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
+
+**Ex-Convict? Come Live With Memi and Scott.**\
+`A couple in Oakland, Calif., has welcomed into their home 24 men recently released from prison sentences for violent crimes, part of a program to ease reintegration into society.`\
+https://www.nytimes.com/2026/11/14/us/ex-convicts-halfway-house-oakland.html
+
 **They Had Come From Afar to Build New Lives. Then, All Was Gone.**\
 `Theirs was a story as old as New York. On a street in Brooklyn, immigrants had arrived to work and live, until their lives intersected in tragedy.`\
 https://www.nytimes.com/2026/11/14/nyregion/building-collapse-brooklyn-immigrants.html
@@ -81,120 +197,4 @@ https://www.nytimes.com/2026/11/13/us/politics/house-democrats-poindexter-invest
 **How the University of North Carolina Tried to Avoid Trump’s Wrath**\
 `The University of North Carolina’s chancellor tried to protect the school from the Trump administration. Work on cancer, suicide, AIDS and coronaviruses was hit anyway.`\
 https://www.nytimes.com/2026/11/13/us/university-north-carolina-science-research-cuts-trump.html
-
-**Trump to Meet With Putin and Xi in China, With Nuclear Proliferation on the Agenda**\
-`The president plans to also discuss the war against Iran, but is not expected to bring up Russia’s war in Ukraine or the scandal that has engulfed Jensen Huang.`\
-https://www.nytimes.com/2026/11/13/us/politics/trump-putin-xi-china-nuclear-proliferation.html
-
-**Nvidia Scandal Prompts Questions of What It Means to Be a Spy**\
-`U.S. intelligence agencies believe a woman who had an affair with Jensen Huang was a Chinese asset. But there is much more that they are still assessing about her role.`\
-https://www.nytimes.com/2026/11/13/us/politics/nvidia-alice-huang-spy-china.html
-
-**NYC Schools Chancellor Calls for Hiring Inquiry After Arrest in Jogger’s Murder**\
-`Kamar Samuels, the city schools chancellor, asked for an independent review days after a paraprofessional was fired following his arrest in the stabbing death of Katie Suarez.`\
-https://www.nytimes.com/2026/11/13/nyregion/suarez-jogger-killed-nyc-schools-investigation.html
-
-**Jewish Heirs Challenge Sale of $180 Million van Gogh Painting at Sotheby’s**\
-`Heirs say “Blossoming Chestnut Trees” was sold under Nazi-era duress. The auction house says it is “committed to working toward a mutually satisfactory resolution.”`\
-https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
-
-**Tanker Smashes Into Riverboat in New Orleans**\
-`All passengers were accounted for after a cargo ship struck the American Heritage riverboat in New Orleans on Friday. Officials said 32 people were taken to the hospital, and one person had serious injuries.`\
-https://www.nytimes.com/video/us/100000011283918/new-orleans-cruise-ship-crash-riverboat.html
-
-**Mullin Says Nationwide Ground Stop Is a Telecommunication Outage**\
-`The homeland security secretary said he did not know what caused the outage.`\
-https://www.nytimes.com/2026/11/13/us/markwayne-mullin-faa-ground-stop.html
-
-**SpaceX Calls Off Attempt to Catch Rocket Booster**\
-`The Starship booster splashed down in the Gulf of Mexico soon after the launch.`\
-https://www.nytimes.com/video/science/space/100000011284097/spacex-calls-off-attempt-to-catch-rocket-booster.html
-
-**Oprah Winfrey’s Influence on Social Media**\
-`In 1986, Oprah Winfrey disclosed on-air that she was a victim of childhood sexual abuse. On “Interesting Times,” the author Catherine Liu argues that Oprah’s disclosure established a template for public confessions that informs the way politicians behave today.`\
-https://www.nytimes.com/video/opinion/100000011274189/oprah-winfreys-influence-on-social-media.html
-
-**Howard Lutnick Has Got to Go**\
-`The secretary of commerce is almost as responsible for Nvidia’s crisis as the fallen chief executive Jensen Huang.`\
-https://www.nytimes.com/2026/11/13/opinion/jensen-huang-nvidia-howard-lutnick-commerce.html
-
-**Flight Canceled During the FAA Ground Stop? Here’s What to Do.**\
-`Travelers are entitled to refunds if their flights are canceled, regardless of the reason, but airlines won’t guarantee other amenities, such as a hotel room or meal vouchers.`\
-https://www.nytimes.com/2026/11/13/us/ground-stop-flight-delays-cancellations-tips.html
-
-**Airports Fill Up With Stuck Families and Stranded Travelers**\
-`The emergency ground stop disrupted travel plans across the country.`\
-https://www.nytimes.com/2026/11/13/us/airports-stranded-travelers.html
-
-**Trump Officials Press Congress to Renew Spying Law in Lame-Duck Session**\
-`The request to extend a high-profile warrantless surveillance law would add a thorny issue during waning Republican control.`\
-https://www.nytimes.com/2026/11/13/us/politics/trump-congress-section-702-surveillance.html
-
-**Trump Administration Delays Enforcement of Medicaid Work Requirement**\
-`The federal government had planned to require poor adults to prove they were working or lose insurance coverage starting Jan. 1. Now, it will let states wait until July.`\
-https://www.nytimes.com/2026/11/13/us/politics/medicaid-work-requirement-delay.html
-
-**Mamdani Makes Deal With Trump to Delay SNAP Rules for Stores Across U.S.**\
-`Small businesses that accept food stamps will have another 90 days to comply with new rules for stocking food staples, Mayor Zohran Mamdani said.`\
-https://www.nytimes.com/2026/11/13/nyregion/mamdani-trump-snap-rule-delay.html
-
-**5 Takeaways from Joe Biden’s Memoir: The Debate, Dropping Out and Advice From Romney**\
-`The 46th president defends his decision to run for re-election, which many in his party now regard as a mistake, and revisits the disastrous debate that forced him to end his campaign.`\
-https://www.nytimes.com/2026/11/13/us/politics/joe-biden-new-memoir-takeaways.html
-
-**A Nationwide Ground Stop**\
-`Also, Russia lays out its hard-line demands. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/11/13/briefing/a-nationwide-ground-stop.html
-
-**Democrats Vie for Support in Race for Top Senate Job**\
-`Senator Chris Van Hollen of Maryland said he wouldn’t run for president to focus on his leadership challenge to Senator Chuck Schumer, who remained confident he would prevail.`\
-https://www.nytimes.com/2026/11/13/us/politics/democrats-senate-leader.html
-
-**Last Ground Stop, in 2023, Came After a Pilot Warning System Went Down**\
-`The outage that year lasted around 90 minutes.`\
-https://www.nytimes.com/2026/11/13/us/2023-ground-stop-faa-pilot-warning-system.html
-
-**Surfers Scramble to Mavericks in California to Catch Building-Size Waves**\
-`Amid back-to-back storms hitting the coast, surfers could get a rare opportunity to catch big waves.`\
-https://www.nytimes.com/2026/11/13/weather/california-storm-mavericks-surfers.html
-
-**Are You Being Nice to the Bots?**\
-`What’s the harm in being nice to a chatbot? With tech companies warning of potential future A.I. sentience, Spencer Klavan, an associate editor for the Claremont Review of Books, argues that treating chatbots like humans puts us on a slippery slope of redefining moral personhood. “We won’t really be elevating the moral status of A.I.,” he argues. All we’ll be doing is reducing living human beings “to the equivalent of a box of equations.”`\
-https://www.nytimes.com/video/opinion/100000011268114/are-you-being-nice-to-the-bots.html
-
-**Wall Street Makes Its Pitch for Anthropic’s I.P.O.**\
-`As market uncertainty deepens, investment banks are on a roadshow to sell investors on what could be the largest public offering ever.`\
-https://www.nytimes.com/2026/11/13/business/anthropic-ipo-roadshow.html
-
-**No Criminal Charges for Driver of Truck That Plowed Into Crowd in Kansas**\
-`A district attorney called the crash a tragedy but said that it did not meet the criteria for criminal prosecution.`\
-https://www.nytimes.com/2026/11/13/us/wichita-kansas-soccer-field-crash-charges.html
-
-**The Numbers Behind Scott Colom’s Stunning Upset in the Mississippi Senate Race**\
-`To win a Senate seat in a highly polarized, deeply Republican state, Scott Colom needed a perfect storm. He got it.`\
-https://www.nytimes.com/2026/11/13/us/elections/scott-colom-senate-upset-history-mississippi.html
-
-**Chiclayo, Pope Leo’s Other Home, Comes Out In Force to Welcome Father Robert**\
-`Leo XIV returned to the city in Peru where he served as bishop for eight years, drawing large crowds who remembered him before he was pope.`\
-https://www.nytimes.com/2026/11/13/world/europe/pope-leo-xiv-peru-chiclayo.html
-
-**Need Relationship Advice? Our Columnists Have Answers.**\
-`The “Modern Love” podcast will join with the writers of the Ask a Therapist and Social Q’s columns to field listener questions in a coming episode.`\
-https://www.nytimes.com/2026/11/13/podcasts/relationship-advice-ask-our-columnists.html
-
-**Local Leaders Call for Answers in Deadly Brooklyn Building Collapse**\
-`New York City officials gathered at a news conference in Flatbush on Friday in a show of support for the families affected by an apartment building that partially collapsed on Wednesday, killing eight people.`\
-https://www.nytimes.com/video/nyregion/100000011282609/brooklyn-building-collapse-answers-accountability.html
-
-**How Does a 74-Year-Old in Argentina Escape House Arrest on the Fifth Floor?**\
-`It involved a heating pad, animal fat and a bomb scare. The police are still looking for an Italian man facing extradition on 1970s-era terrorism charges.`\
-https://www.nytimes.com/2026/11/13/world/americas/74-year-old-in-argentina-escapes-house-arrest.html
-
-**Riverboat Cruise Sinks After Collision With Cargo Ship in New Orleans**\
-`Search-and-rescue operations are underway after a cargo ship collided with a river cruiser carrying nearly 200 people on Friday in New Orleans.`\
-https://www.nytimes.com/video/us/100000011283622/new-orleans-cruise-ship-crash.html
-
-**Inside Microsoft’s Rush to Get Back Online After a Global Outage**\
-`A prolonged outage left many without email and other services, the most recent reminder that the world’s technological underpinnings rely on just a few companies.`\
-https://www.nytimes.com/2026/11/13/business/microsoft-outage.html
 
