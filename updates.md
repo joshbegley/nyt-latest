@@ -1,3 +1,7 @@
+**Starship Live Updates: SpaceX Rocket Headed for Milestone Landing in Texas**\
+`SpaceX’s Starship spacecraft has dropped out of orbit and will attempt to land back at the Starbase launch facility. If it is successful, it will mark a major step in SpaceX’s quest to build fully reusable rockets.`\
+https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
+
 **How Can Democrats Govern Under These Conditions?**\
 `The filibuster makes a productive Senate impossible.`\
 https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
