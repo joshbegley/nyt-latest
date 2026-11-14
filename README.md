@@ -7,7 +7,7 @@ https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
 https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
 
 **Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
-`The event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+`The high-camp event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
 
 **Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
