@@ -1,3 +1,7 @@
+**Perhaps the Rumors of Democracy’s Demise Were Premature**\
+`Did the midterm election save it?`\
+https://www.nytimes.com/2026/11/14/magazine/democracy-midterm-elections.html
+
 **Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
 `A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
 https://www.nytimes.com/2026/11/14/nyregion/key-witness-in-comey-case-attests-to-justice-depts-aggressive-tactics.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/theater/othello-actors-shakespeare-play.html
 **Dolly Parton Sings With U2, and 9 More Songs We’re Talking About**\
 `Hear the duet that is the country star’s last recording, along with Ella Langley’s stoic meditation, BigXthaPlug’s new chart entry and more.`\
 https://www.nytimes.com/2026/11/14/arts/music/dolly-parton-u2-ella-langley-new-songs.html
-
-**Olivier Mourgue Has Died. His Chairs Starred in ‘2001: A Space Odyssey.’**\
-`His colorful seating was life-size pop art. You might also recognize it from the James Bond spoof “Casino Royale.” He was 87.`\
-https://www.nytimes.com/2026/11/14/arts/design/olivier-mourgue-dead.html
 
