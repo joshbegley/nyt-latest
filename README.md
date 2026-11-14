@@ -1,3 +1,7 @@
+**Specialized High School Test Crashes, Rattling Students Across New York**\
+`The Specialized High School Admissions Test is the sole admissions criterion for the city’s eight specialized high schools. Technical difficulties sent students home with promises of an opportunity to retake it.`\
+https://www.nytimes.com/2026/11/14/nyregion/specialized-high-schools-test-crashes-nyc.html
+
 **Trump Kept Out of Sight as F.A.A. Issued Flight Ground Stop**\
 `The F.A.A. called a rare halt on flights nationwide, but the president stayed away from cameras and issued social media posts on the entertainment industry and California’s Democratic governor.`\
 https://www.nytimes.com/2026/11/14/us/politics/trump-flights-air-traffic-social-media.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/crosswords/connections-companion-1253.html
 **NYT Strands Hints for November 15, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
 https://www.nytimes.com/2026/11/14/crosswords/strands-sidekick-987.html
-
-**Today’s Wordle Hints for November 15, 2026**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 15, 2026.`\
-https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
 
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
