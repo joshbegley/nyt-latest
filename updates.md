@@ -1,3 +1,7 @@
+**Specialized High School Test Crashes, Rattling Students Across New York**\
+`The Specialized High School Admissions Test is the sole admissions criterion for the city’s eight specialized high schools. Technical difficulties sent students home with promises of an opportunity to retake it.`\
+https://www.nytimes.com/2026/11/14/nyregion/specialized-high-schools-test-crashes-nyc.html
+
 **SpaceX Makes History With Successful Rocket Landing in Texas**\
 `The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
