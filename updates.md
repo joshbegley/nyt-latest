@@ -1,3 +1,7 @@
+**Starship Live Updates: SpaceX Makes History With Successful Rocket Landing in Texas**\
+`The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
+https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
+
 **When Disaster Hit Next Door in Flatbush**\
 `What it felt like when the wall came down in Brooklyn.`\
 https://www.nytimes.com/2026/11/14/nyregion/flatbush-building-collapse-neighbors.html
