@@ -186,7 +186,3 @@ https://www.nytimes.com/video/podcasts/100000011276305/olivia-wilde-on-the-lie-w
 `While Republicans accuse Democrats of dirty tricks in the ongoing Alaska Senate race, the lone House contest in the state has the hallmarks of similar “ballot stacking” shenanigans.`\
 https://www.nytimes.com/2026/11/14/us/elections/alaska-house-race-felon-eric-hafner.html
 
-**Olivia Wilde on What It Was Like to Be Ranked For Hotness**\
-`The actor and director Olivia Wilde discussed the focus on her appearance in the early part of her career on “The Interview.”`\
-https://www.nytimes.com/video/podcasts/100000011276304/olivia-wilde-on-what-it-was-like-to-be-ranked-for-hotness.html
-
