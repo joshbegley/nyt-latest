@@ -1,3 +1,7 @@
+**Ukraine’s Starshield Access Is Being Restricted Again, Zelensky Says**\
+`President Volodymyr Zelensky said the system, which Ukraine uses to guide drones, was being throttled over Russian-occupied territory. SpaceX, its developer, has denied the claim.`\
+https://www.nytimes.com/2026/11/14/world/europe/ukraine-starshield-zelensky.html
+
 **Talarico Wants to Transcend the Pettiness of Modern Politics. Can He?**\
 `It’s an open question how much unity, healing and love is possible in Trump’s Washington.`\
 https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.html
