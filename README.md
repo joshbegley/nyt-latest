@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/11/14/world/americas/trump-venezuela-oil.html
 `Right before turning 60, I participated in events testing balance, agility and more. My score promised to tell me how well I’m aging.`\
 https://www.nytimes.com/2026/11/14/well/move/longevity-super-age-games.html
 
-**Ex-Convict? Come Live With Memi and Scott.**\
+**Hosting Ex-Convicts at Their Oakland Home Has Largely Gone Off Without a Hitch**\
 `A couple in Oakland, Calif., has welcomed into their home 24 men recently released from prison sentences for violent crimes, part of a program to ease reintegration into society.`\
 https://www.nytimes.com/2026/11/14/us/ex-convicts-halfway-house-oakland.html
 
