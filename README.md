@@ -1,3 +1,7 @@
+**Repair That Triggered Air Traffic Meltdown Was Expected to be ‘Routine’**\
+`Officials said that the upgrade to antiquated communications equipment at a remote facility overloaded other parts of the national air traffic system.`\
+https://www.nytimes.com/2026/11/14/us/repair-that-triggered-air-traffic-meltdown-was-expected-to-be-routine.html
+
 **Perhaps the Rumors of Democracy’s Demise Were Premature**\
 `Did the midterm election save it?`\
 https://www.nytimes.com/2026/11/14/magazine/democracy-midterm-elections.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/us/politics/house-democrats-affordability-cos
 **Wendell Pierce and Other Actors on the Challenge of Playing Othello**\
 `As an acclaimed production returns to the stage, four actors reflect on one of theater’s great challenges for Black performers.`\
 https://www.nytimes.com/2026/11/14/theater/othello-actors-shakespeare-play.html
-
-**Dolly Parton Sings With U2, and 9 More Songs We’re Talking About**\
-`Hear the duet that is the country star’s last recording, along with Ella Langley’s stoic meditation, BigXthaPlug’s new chart entry and more.`\
-https://www.nytimes.com/2026/11/14/arts/music/dolly-parton-u2-ella-langley-new-songs.html
 

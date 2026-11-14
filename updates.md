@@ -1,3 +1,7 @@
+**Perhaps the Rumors of Democracy’s Demise Were Premature**\
+`Did the midterm election save it?`\
+https://www.nytimes.com/2026/11/14/magazine/democracy-midterm-elections.html
+
 **Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
 `A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
 https://www.nytimes.com/2026/11/14/nyregion/key-witness-in-comey-case-attests-to-justice-depts-aggressive-tactics.html
