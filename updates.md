@@ -1,3 +1,7 @@
+**Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
+`China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leaves some of the region’s best-known musical cultures out of the mix.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
+
 **Family Dollar to Pay $63 Million Settlement for Overcharging Customers**\
 `Since 2023, the discount retailer has been overcharging shoppers “millions of dollars” at checkout, according to a complaint filed by federal regulators and 17 states.`\
 https://www.nytimes.com/2026/11/14/business/family-dollar-overcharging-settlement.html
