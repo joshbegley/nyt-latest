@@ -1,3 +1,7 @@
+**NYC Schools Chancellor Calls for Hiring Inquiry After Arrest in Jogger’s Murder**\
+`Kamar Samuels, the city schools chancellor, asked for an independent review days after a paraprofessional was fired following his arrest in the stabbing death of Katie Suarez.`\
+https://www.nytimes.com/2026/11/13/nyregion/suarez-jogger-killed-nyc-schools-investigation.html
+
 **Jewish Heirs Challenge Sale of $180 Million Van Gogh Painting at Sotheby’s**\
 `Heirs say “Blossoming Chestnut Trees” was sold under Nazi-era duress. The auction house says it is “committed to working toward a mutually satisfactory resolution.”`\
 https://www.nytimes.com/2026/11/13/arts/design/van-gogh-sale-sothebys.html
