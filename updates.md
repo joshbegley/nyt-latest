@@ -1,4 +1,8 @@
 **Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
+`The high-camp event is underway in Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
+**Live Updates: Eurovision Song Contest Comes to Asia for the First Time**\
 `The high-camp event is rolling into Bangkok, with performers in feathered capes and sequined corsets. Will it appeal to fans in a vast new market?`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
 
