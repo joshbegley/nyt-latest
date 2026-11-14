@@ -1,3 +1,7 @@
+**Eurovision Song Contest Crowns an Asia Champion**\
+`Carmelle of the Philippines defeated 10 competitors at the first edition of the high-camp event in Asia, held in Bangkok.`\
+https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
+
 **Abolish the Filibuster**\
 `The filibuster makes a productive Senate impossible.`\
 https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html

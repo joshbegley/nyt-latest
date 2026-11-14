@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-politics.html
 `President Trump and U.S. tech executives are expected to gather for a major summit in Shenzhen next week. On the agenda: a stalled trade war, expanding export controls, and suspected spy games.`\
 https://www.nytimes.com/2026/11/14/business/dealbook/questions-china-us-apec-summit.html
 
-**Live Updates: Eurovision Song Contest Crowns an Asia Champion**\
+**Eurovision Song Contest Crowns an Asia Champion**\
 `Carmelle of the Philippines defeated 10 competitors at the first edition of the high-camp event in Asia, held in Bangkok.`\
 https://www.nytimes.com/live/2026/11/14/world/asia-eurovision
 

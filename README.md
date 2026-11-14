@@ -1,3 +1,7 @@
+**Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
+`The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
+https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
+
 **Abolish the Filibuster**\
 `The filibuster makes a productive Senate impossible.`\
 https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
@@ -90,8 +94,8 @@ https://www.nytimes.com/2026/11/14/crosswords/wordle-review-1975.html
 `President Trump’s show of support for Jensen Huang as he was under fire was a remarkable moment in a relationship that barely existed two years ago. Our White House correspondent Maggie Haberman explains how Mr. Trump came to see Mr. Huang as a modern-day Henry Ford.`\
 https://www.nytimes.com/video/us/politics/100000011272223/whats-behind-the-trump-huang-relationship.html
 
-**Live Updates: Duffy Speaks to Reporters as Disruptions Persist After Ground Stop**\
-`Transportation Secretary Sean Duffy is giving an update on the aftermath of a nationwide ground stop that he has blamed on faltering, aging infrastructure.`\
+**Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
+`Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
 
 **Olivia Wilde Hit Bottom. Here’s How She Bounced Back.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/14/books/moby-dick-book-club-quick-eternity.html
 **When a Master Magician Meets a Bumbling Student ...**\
 `A sit-down with the ace magician Asi Wind, whose new book shares a few trade secrets, should have paid off with at least one successful caper. Not quite.`\
 https://www.nytimes.com/2026/11/14/books/review/asi-wind-magician.html
-
-**Why Foraging for Food Is the Latest Trend in Luxury Hotels and Fine-Dining Restaurants**\
-`The latest trend at country hotels and fine-dining restaurants, these excursions are designed to bring out the hunter-gatherer instinct in their guests.`\
-https://www.nytimes.com/2026/11/14/t-magazine/hotels-restaurants-foraging-food.html
 
