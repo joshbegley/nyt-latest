@@ -1,3 +1,7 @@
+**Why Some Flights Were Exempt From the Ground Stop**\
+`Dozens of international flights departed from the United States during Friday’s nationwide ground stop. Some planes also left for Hawaii from the West Coast.`\
+https://www.nytimes.com/2026/11/14/business/faa-ground-stop-exceptions-airlines.html
+
 **Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
 `Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
 https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
