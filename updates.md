@@ -1,3 +1,7 @@
+**8 Takeaways From a Big Democratic Gathering in Denver: Democrats in Array**\
+`More than a half-dozen potential Democratic presidential candidates made early pitches for themselves and their visions at what amounted to a party-wide post-election victory party.`\
+https://www.nytimes.com/2026/11/15/us/politics/democrats-denver-gathering-takeaways.html
+
 **Megaspeed Says Alice Huang Left Company in August 2025**\
 `The Singaporean company’s disclosure added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
 https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
