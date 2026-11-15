@@ -1,4 +1,8 @@
 **Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
+`Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeded.`\
+https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
+
+**Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
 `Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeds.`\
 https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
 
