@@ -1,3 +1,11 @@
+**‘Birdbrain’ Is a Misnomer. Crows Make Decisions Faster Than We Can**\
+`In a recent experiment, crows could process and respond to visual cues at twice the speed as humans and monkeys.`\
+https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decision.html
+
+**In Europe, an Emboldened Iran Contributes to a Sense of Anxiety**\
+`Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
+https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
+
 **NYT Connections Answers for November 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html

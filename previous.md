@@ -96,7 +96,7 @@ https://www.nytimes.com/2026/11/15/books/review/stations-louise-kennedy.html
 
 **‘Birdbrain’ Is a Misnomer. Crows Make Decisions Faster Than We Can**\
 `In a recent experiment, crows could process and respond to visual cues at twice the speed as humans and monkeys.`\
-https://www.nytimes.com/2026/11/15/science/birdbrain-is-a-misnomer-crows-make-decisions-faster-than-we-can.html
+https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decision.html
 
 **‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
 `Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
@@ -156,7 +156,7 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 
 **In Europe, an Emboldened Iran Contributes to a Sense of Anxiety**\
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
-https://www.nytimes.com/2026/11/15/world/europe/in-europe-an-emboldened-iran-contributes-to-a-sense-of-anxiety.html
+https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
 **She Was a Victim of Jeffrey Epstein. She Also Helped Him Find Other Girls.**\
 `During the four years that Marina Lacerda was abused by Epstein, she introduced him to many of her friends.`\
