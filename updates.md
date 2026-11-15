@@ -1,3 +1,7 @@
+**TikTok U**\
+`Many young adults want to be influencers. What’s that doing to college life?`\
+https://www.nytimes.com/2026/11/15/briefing/sorority-influencers.html
+
 **How Adam Driver, Scarlett Johansson and Miles Teller Built a Family in ‘Paper Tiger’**\
 `James Gray’s latest autobiographical film, set in a crime-ridden ’80s New York, centers on what one of its stars jokingly calls “a throuple.”`\
 https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-miles-teller-interview-paper-tiger.html
