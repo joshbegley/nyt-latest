@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-sto
 `Israeli officials were convinced that Tehran was to blame for the airman’s disappearance. Alternative theories got little attention, until now.`\
 https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
 
-**Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
-`Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
+**N.Y.P.D. Fatally Shoots Driver Who Officers Said Was Ramming Cars**\
+`Officers had been trying to detain a man who was driving on the Belt Parkway in Brooklyn after a report that a woman was trying to get out of his van.`\
 https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
 
