@@ -1,3 +1,7 @@
+**Billy Evans Says He’d Do It All Over Again**\
+`Speaking with CBS News, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
+https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
+
 **8 Takeaways From a Big Democratic Gathering in Denver: Democrats in Array**\
 `More than a half-dozen potential Democratic presidential candidates made early pitches for themselves and their visions at what amounted to a party-wide post-election victory party.`\
 https://www.nytimes.com/2026/11/15/us/politics/democrats-denver-gathering-takeaways.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/crosswords/spelling-bee-forum.html
 **Nate Silver’s Unscientific, Totally Subjective Breakdown of the Democrats’ Future Stars**\
 `A roundup of uniters and fighters, progressives and moderates.`\
 https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
-
-**Thoughts Near the End of a Life**\
-`More than anything, I am grateful. For life, especially.`\
-https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
 
