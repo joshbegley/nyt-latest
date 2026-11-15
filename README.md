@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/11/15/arts/ao3-fan-fiction-site.html
 
 **Van Hollen Says He Has a Path to Become Majority Leader**\
 `Senator Chris Van Hollen, a progressive Democrat, said on Sunday that he had a path to unseat Senator Chuck Schumer for majority leader.`\
-https://www.nytimes.com/video/us/politics/100000011286309/van-hollen-schumer-democrats-majority-leader.html
+https://www.nytimes.com/video/us/politics/100000011286309/van-hollen-says-he-has-a-path-to-become-majority-leader.html
 
 **Nvidia Fallout Looms Over Trump-Xi Meeting**\
 `So far, President Trump has indicated that he does not plan to press the Chinese leader about U.S. intelligence findings that a Chinese spy targeted Jensen Huang.`\
