@@ -1,3 +1,11 @@
+**Nate Silver’s Unscientific, Totally Subjective Breakdown of the Democrats’ Future Stars**\
+`A roundup of uniters and fighters, progressives and moderates.`\
+https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
+
+**Thoughts Near the End of a Life**\
+`More than anything, I am grateful. For life, especially.`\
+https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
+
 **Nate Silver Picks 27 Democrats to Watch**\
 `A roundup of uniters and fighters, progressives and moderates.`\
 https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
