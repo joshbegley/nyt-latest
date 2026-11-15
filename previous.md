@@ -1,3 +1,7 @@
+**What to Know About Continued Flight Disruptions**\
+`After a nationwide ground stop Friday, travelers are still encountering snags, and it could take several days for flight schedules to return to normal.`\
+https://www.nytimes.com/2026/11/14/us/flight-delays-cancelations-what-to-know.html
+
 **Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
 `Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeded.`\
 https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.ht
 **Jensen Huang’s Fall Is a Dark Consequence of What’s Happening in Silicon Valley**\
 `Silicon Valley’s authoritarianism has left itself particularly vulnerable to Donald Trump’s corruptive tendencies.`\
 https://www.nytimes.com/2026/11/14/opinion/jensen-huang-donald-trump-silicon-valley.html
-
-**Goodbye, Mr. Chips**\
-`Terrible tech bros leading us into a scary future.`\
-https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
