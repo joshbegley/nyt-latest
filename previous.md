@@ -1,3 +1,7 @@
+**Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
+`Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
+https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
+
 **‘At 14th Street, We Peered Through the Windows and Across the Platform’**\
 `A Halloween moment in the subway, no desserts at the movies and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
 **South Sudan’s National Election, Its First, Will Be Delayed**\
 `Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
 https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
-
-**Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
-`The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
-https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
