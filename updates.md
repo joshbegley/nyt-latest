@@ -1,3 +1,7 @@
+**Van Hollen Says He Has a Path to Become Majority Leader**\
+`Senator Chris Van Hollen, a progressive Democrat, said on Sunday that he had a path to unseat Senator Chuck Schumer for majority leader.`\
+https://www.nytimes.com/video/us/politics/100000011286309/van-hollen-says-he-has-a-path-to-become-majority-leader.html
+
 **NYT Crossword Answers for Nov. 16, 2026**\
 `Josef Sipkins makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/11/15/crosswords/daily-puzzle-2026-11-16.html
