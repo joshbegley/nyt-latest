@@ -1,3 +1,7 @@
+**8 Takeaways From a Big Democratic Gathering in Denver: Democrats in Array**\
+`More than a half-dozen potential Democratic presidential candidates made early pitches for themselves and their visions at what amounted to a party-wide post-election victory party.`\
+https://www.nytimes.com/2026/11/15/us/politics/democrats-denver-gathering-takeaways.html
+
 **Megaspeed Says Alice Huang Left Company in August 2025**\
 `The Singaporean company’s disclosure added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
 https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-presid
 **Thoughts Near the End of a Life**\
 `More than anything, I am grateful. For life, especially.`\
 https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
-
-**Two Planes Collide on a Taxiway at Miami International Airport**\
-`The wingtip of a Copa Airlines Boeing 737 struck the nose of a UPS Boeing 767, a day after a nationwide ground stop disrupted air travel.`\
-https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.html
 
