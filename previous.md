@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/11/15/business/medical-school-student-loan-caps.htm
 https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candidates.html
 
 **Embattled Federal Employees Look to a Democratic Congress for a Lifeline**\
-`Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts are unlikely to happen immediately.`\
+`Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts is unlikely to happen immediately.`\
 https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-congress-lifeline.html
 
 **The Reward for Black Women’s Work in Georgia: Leaders Who Look Like Them**\

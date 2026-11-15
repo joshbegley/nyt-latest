@@ -1,3 +1,7 @@
+**Embattled Federal Employees Look to a Democratic Congress for a Lifeline**\
+`Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts is unlikely to happen immediately.`\
+https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-congress-lifeline.html
+
 **Sean Duffy Offers New Details on How One Fix Spiraled Into Nationwide Ground Stop**\
 `When asked, the transportation secretary could not guarantee on Sunday that a similar air traffic meltdown would not occur again.`\
 https://www.nytimes.com/2026/11/15/us/sean-duffy-ground-stop-trump-faa.html
