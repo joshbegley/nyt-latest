@@ -1,3 +1,7 @@
+**Chris Van Hollen Says His Majority Leader Challenge to Chuck Schumer Is Gaining Support**\
+`Senator Chris Van Hollen of Maryland said on Sunday that he has a “wide-open” path to unseat Chuck Schumer, the long-serving Senate Democratic leader.`\
+https://www.nytimes.com/2026/11/15/us/politics/van-hollen-schumer-democrats-majority-leader.html
+
 **Embattled Federal Employees Look to a Democratic Congress for a Lifeline**\
 `Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts is unlikely to happen immediately.`\
 https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-congress-lifeline.html
