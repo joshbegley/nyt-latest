@@ -1,3 +1,7 @@
+**N.Y.P.D. Fatally Shoots Driver Who Officers Said Was Ramming Cars**\
+`Officers had been trying to detain a man who was driving on the Belt Parkway in Brooklyn after a report that a woman was trying to get out of his van.`\
+https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
+
 **At Sotheby’s, Risk-Taking Left a $180 Million van Gogh in the Lurch**\
 `Claims on the painting by heirs of a Jewish owner were well known in the art world. The auction house will meet lawyers for the heirs on Monday.`\
 https://www.nytimes.com/2026/11/15/arts/design/sothebys-van-gogh-auction-art-nazi.html
