@@ -26,13 +26,13 @@ https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
 
-**The Risk Democrats Need to Take**\
-`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
-https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
-
 **Defeating MAGA Is Only Half Done**\
 `The G.O.P. has not learned its lesson.`\
 https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
+
+**The Risk Democrats Need to Take**\
+`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
 
 **The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
 `13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
-**In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
-`Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
-https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
-
 **How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
 `Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
 https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
+
+**In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
+`Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
+https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
 
 **From the Front Page: Thousands Rally Against the Vietnam War in Washington on Nov. 15, 1969**\
 `About 250,000 people demonstrated in the nation’s capital, calling for the rapid withdrawal of U.S. troops.`\
