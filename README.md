@@ -1,3 +1,7 @@
+**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why?**\
+`Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
+https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
+
 **Family Dollar to Pay $63 Million Settlement for Overcharging Customers**\
 `Since 2023, the discount retailer has been overcharging shoppers “millions of dollars” at checkout, according to a complaint filed by federal regulators and 17 states.`\
 https://www.nytimes.com/2026/11/14/business/family-dollar-overcharging-settlement.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
 **‘There’s No Juice Left to Squeeze From MAGA’**\
 `More than a week after the blue wave, what comes next for both parties?`\
 https://www.nytimes.com/video/opinion/100000011276423/theres-no-juice-left-to-squeeze-from-maga.html
-
-**Forever in Bluejeans**\
-`A reflection on denim.`\
-https://www.nytimes.com/2026/11/14/briefing/forever-in-bluejeans.html
 
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
