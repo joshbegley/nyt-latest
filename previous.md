@@ -108,7 +108,7 @@ https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decisi
 
 **‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
 `Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
-https://www.nytimes.com/2026/11/15/us/haley-dekreek-influencer-college.html
+https://www.nytimes.com/2026/11/15/us/haley-dekreek-sorority-influencer-college.html
 
 **What It Took for America to Wipe Out Measles**\
 `The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
