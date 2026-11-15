@@ -126,7 +126,7 @@ https://www.nytimes.com/2026/11/14/nyregion/flatbush-building-collapse-neighbors
 `Linda Mason started in an entry-level job at CBS Radio in 1966 and rose through the news division’s ranks to senior vice president. She was 84.`\
 https://www.nytimes.com/2026/11/14/business/media/linda-mason-dead-cbs-news.html
 
-**How Some Flights Were Exempt From the Ground Stop**\
+**Why Some Flights Were Exempt From the Ground Stop**\
 `Dozens of international flights departed from the United States during Friday’s nationwide ground stop. Some planes also left for Hawaii from the West Coast.`\
 https://www.nytimes.com/2026/11/14/business/faa-ground-stop-exceptions-airlines.html
 
