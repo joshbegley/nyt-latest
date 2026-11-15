@@ -1,3 +1,7 @@
+**After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
+`Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
+https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
+
 **Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
 `Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
 https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/14/us/faa-groundstop-flights-restarting.html
 **Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
 `In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
 https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
-
-**South Sudan’s National Election, Its First, Will Be Delayed**\
-`Analysts had warned that the vote, originally set for December, faced a legitimacy crisis. South Sudan has not held a national election since gaining independence in 2011.`\
-https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\

@@ -1,3 +1,7 @@
+**After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
+`Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
+https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
+
 **Why Some Flights Were Exempt From the Ground Stop**\
 `Dozens of international flights departed from the United States during Friday’s nationwide ground stop. Some planes also left for Hawaii from the West Coast.`\
 https://www.nytimes.com/2026/11/14/business/faa-ground-stop-exceptions-airlines.html
