@@ -1,3 +1,7 @@
+**A New Festival Embraces the Possibilities of Disability-Centered Opera**\
+`The three works at the Makemake festival at National Sawdust make the case that disability-led opera is artistically ambitious, despite the logistical challenges.`\
+https://www.nytimes.com/2026/11/15/arts/music/disability-inclusive-opera-national-sawdust-makemake-festival.html
+
 **Your Fish Wish Is Granted**\
 `My recipe for fish simmered in spicy garlic broth is an adaptable and speedy way to make a flavorful weeknight meal.`\
 https://www.nytimes.com/2026/11/15/dining/your-fish-wish-is-granted.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 **In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
 `Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
 https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
-
-**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
-`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
-https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
 
