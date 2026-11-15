@@ -1,3 +1,7 @@
+**Nvidia Fallout Looms Over Trump-Xi Meeting**\
+`So far, President Trump has indicated that he does not plan to press the Chinese leader about U.S. intelligence findings that a Chinese spy targeted Jensen Huang.`\
+https://www.nytimes.com/2026/11/15/us/politics/nvidia-trump-huang-china-xi.html
+
 **Zariah, 13, and Her Cat Are Reunited After Building Collapse**\
 `When the Coleman family had to flee their apartment after the building next door collapsed, their cat disappeared. But amid the tragedy of the disaster, this story had a happy ending.`\
 https://www.nytimes.com/2026/11/15/nyregion/building-collapse-cat-rescue.html
