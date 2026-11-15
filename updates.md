@@ -1,3 +1,11 @@
+**Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
+`Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
+https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
+
+**Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
+`Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
+https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
+
 **SpaceX Makes History With Successful Rocket Catch in Texas**\
 `The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
 https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
