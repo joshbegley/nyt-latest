@@ -1,3 +1,11 @@
+**Zariah, 13, and Her Cat Are Reunited After Building Collapse**\
+`When the Coleman family had to flee their apartment after the building next door collapsed, their cat disappeared. But amid the tragedy of the disaster, this story had a happy ending.`\
+https://www.nytimes.com/2026/11/15/nyregion/building-collapse-cat-rescue.html
+
+**Jordan Sentences 3 to Death Over Greek Orthodox Church Attack**\
+`The Jordanian military said that the men, who were arrested after a shooting at a Greek Orthodox church last month, had been convicted of terrorism charges.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/jordan-church-attack-death-sentence.html
+
 **At Sotheby’s, Risk-Taking Left a $180 Million van Gogh in the Lurch**\
 `Claims on the painting by heirs of a Jewish owner were well known in the art world. The auction house will meet lawyers for the heirs on Monday.`\
 https://www.nytimes.com/2026/11/15/arts/design/sothebys-van-gogh-auction-art-nazi.html
@@ -122,13 +130,13 @@ https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-can
 `Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
 https://www.nytimes.com/2026/11/15/pageoneplus/corrections-nov-15-2026.html
 
-**Jensen Huang’s Downfall Brings Disbelief in Taiwan**\
-`The Nvidia chief executive’s resignation shocked people in his birthplace, where he is called “the people’s dad.”`\
-https://www.nytimes.com/2026/11/15/business/jensen-huang-taiwan.html
-
 **A Human Reads the Anthropic I.P.O. Filing**\
 `The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
 https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
+
+**Jensen Huang’s Downfall Brings Disbelief in Taiwan**\
+`The Nvidia chief executive’s resignation shocked people in his birthplace, where he is called “the people’s dad.”`\
+https://www.nytimes.com/2026/11/15/business/jensen-huang-taiwan.html
 
 **At the Alta Center, Chicano Art and Activism Walk Hand in Hand**\
 `The Alta, a new free public art space near downtown Los Angeles, holds a collection of Latino art infused with the spirit of the Chicano civil rights movement.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
 **Cecily Strong and Corey Stoll’s Dinner Date, and More Theater to Stream**\
 `A stage adaptation of the Gisèle Pelicot trial, a Tom Stoppard play from London and a beloved revival of “Falsettos” are also available for viewing.`\
 https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-stoppard-school-girls.html
-
-**Israel Kidnapped Iranian Generals in Hunt for Ron Arad**\
-`Israeli officials were convinced that Tehran was to blame for the airman’s disappearance. Alternative theories got little attention, until now.`\
-https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
-
-**N.Y.P.D. Fatally Shoots Driver Who Officers Said Was Ramming Cars**\
-`Officers had been trying to detain a man who was driving on the Belt Parkway in Brooklyn after a report that a woman was trying to get out of his van.`\
-https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
 
