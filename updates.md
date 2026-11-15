@@ -1,3 +1,11 @@
+**A Human Reads the Anthropic I.P.O. Filing**\
+`The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
+https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
+
+**What It Took for America to Wipe Out Measles**\
+`The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
+https://www.nytimes.com/2026/11/15/well/us-measles-elimination.html
+
 **‘Birdbrain’ Is a Misnomer. Crows Make Decisions Faster Than We Can**\
 `In a recent experiment, crows could process and respond to visual cues at twice the speed as humans and monkeys.`\
 https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decision.html

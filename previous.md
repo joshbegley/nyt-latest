@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/11/15/business/jensen-huang-taiwan.html
 
 **A Human Reads the Anthropic I.P.O. Filing**\
 `The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
-https://www.nytimes.com/2026/11/15/business/a-human-reads-the-anthropic-ipo-filing.html
+https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
 
 **At the Alta Center, Chicano Art and Activism Walk Hand in Hand**\
 `The Alta, a new free public art space near downtown Los Angeles, holds a collection of Latino art infused with the spirit of the Chicano civil rights movement.`\
@@ -104,7 +104,7 @@ https://www.nytimes.com/2026/11/15/us/haley-dekreek-influencer-college.html
 
 **What It Took for America to Wipe Out Measles**\
 `The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
-https://www.nytimes.com/2026/11/15/well/what-it-took-for-america-to-wipe-out-measles.html
+https://www.nytimes.com/2026/11/15/well/us-measles-elimination.html
 
 **In a Sloppified A.I. World, Only Humans Can Build ‘Ecosystems’**\
 `The people ushering in the artificial intelligence revolution are also doubling down on in-person relationships in their own industry.`\
