@@ -1,3 +1,7 @@
+**Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
+`A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
+https://www.nytimes.com/2026/11/14/us/politics/comey-witness-justice-dept-aggressive-tactics.html
+
 **What to Know About Continued Flight Disruptions**\
 `After a nationwide ground stop Friday, travelers are still encountering snags, and it could take several days for flight schedules to return to normal.`\
 https://www.nytimes.com/2026/11/14/us/flight-delays-cancelations-what-to-know.html
