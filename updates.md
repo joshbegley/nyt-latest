@@ -1,3 +1,39 @@
+**NYT Connections Answers for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
+https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
+
+**The Risk Democrats Need to Take**\
+`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
+
+**Defeating MAGA Is Only Half Done**\
+`The G.O.P. has not learned its lesson.`\
+https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
+
+**The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
+`13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
+https://www.nytimes.com/2026/11/15/podcasts/the-daily/the-ultraviolent-wildly-successful-uniquely-american-phenomenon-of-grand-theft-auto.html
+
+**The Nvidia Spy Case Is About Much More Than Sex**\
+`Alice Huang isn’t the first “nontraditional” Chinese spy. But she may be the worst for America’s national security.`\
+https://www.nytimes.com/2026/11/15/opinion/nvidia-spy-jensen-huang-national-security.html
+
+**The South Went Blue and I Lived to See It**\
+`Voters proved that most Americans want government by the people, for the people.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-win-mississippi-south.html
+
+**The Flaw at the Heart of Anthropic’s I.P.O.**\
+`Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
+https://www.nytimes.com/2026/11/15/opinion/anthropic-ipo-ai-investors.html
+
+**NYT Strands Hints for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
+https://www.nytimes.com/2026/11/15/crosswords/strands-sidekick-988.html
+
+**Today’s Wordle Hints for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
+https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
+
 **The Flaw at the Heart of Anthropic’s I.P.O.**\
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
