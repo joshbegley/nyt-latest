@@ -1,3 +1,7 @@
+**Megaspeed Says Alice Huang Left Company in August 2025**\
+`The Singaporean company’s disclosure added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
+
 **Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
 `Operations are returning to normal after air traffic was shut down for more than 4 hours on Friday following a maintenance upgrade that crippled communications.`\
 https://www.nytimes.com/2026/11/15/us/faa-groundstop-flights-status-delays-canceled.html
