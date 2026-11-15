@@ -1,3 +1,7 @@
+**Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
+`Operations are returning to normal after air traffic was shut down for more than 4 hours on Friday following a maintenance upgrade that crippled communications.`\
+https://www.nytimes.com/2026/11/15/us/faa-groundstop-flights-status-delays-canceled.html
+
 **Chris Van Hollen Says His Majority Leader Challenge to Chuck Schumer Is Gaining Support**\
 `Senator Chris Van Hollen of Maryland said on Sunday that he has a “wide-open” path to unseat Chuck Schumer, the long-serving Senate Democratic leader.`\
 https://www.nytimes.com/2026/11/15/us/politics/van-hollen-schumer-democrats-majority-leader.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.htm
 **Is Italy the Model for Europe’s Future?**\
 `Over more than a quarter-century, I’ve watched Europe’s politics become more like Italy’s, with all the resulting instability, as the far right came in from the cold.`\
 https://www.nytimes.com/2026/11/15/world/europe/italy-italianization-europe-horowitz.html
-
-**Quote of the Day: They Came From Afar to Build New Lives. In an Instant, All Was Gone.**\
-`Quotation of the Day for Sunday, November 15, 2026.`\
-https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-afar-to-build-new-lives-in-an-instant-all-was-gone.html
 
