@@ -88,7 +88,7 @@ https://www.nytimes.com/2026/11/15/business/ralph-lauren-patrice-louvet.html
 
 **How Adam Driver, Scarlett Johansson and Miles Teller Built a Family in ‘Paper Tiger’**\
 `James Gray’s latest autobiographical film, set in a crime-ridden ’80s New York, centers on what one of its stars jokingly calls “a throuple.”`\
-https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-and-miles-teller-interview-paper-tiger.html
+https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-miles-teller-interview-paper-tiger.html
 
 **A Campus Sexual Assault Lawsuit Tests an Unusual Legal Strategy**\
 `Frustrated by Texas Christian University’s handling of her sexual assault case, a former student from Virginia is suing under her home state’s consumer protection laws.`\

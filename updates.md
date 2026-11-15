@@ -1,3 +1,7 @@
+**How Adam Driver, Scarlett Johansson and Miles Teller Built a Family in ‘Paper Tiger’**\
+`James Gray’s latest autobiographical film, set in a crime-ridden ’80s New York, centers on what one of its stars jokingly calls “a throuple.”`\
+https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-miles-teller-interview-paper-tiger.html
+
 **Iran Attacks Bahrain for the Second Time in Days**\
 `The resumption of attacks after a two-month lull comes as peace talks between the U.S. and Iran appear to have stalled.`\
 https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
