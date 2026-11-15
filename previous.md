@@ -76,7 +76,7 @@ https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airl
 
 **Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
 `The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
-https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-cantor-fitzgerald.html
+https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-cantor-fitzgerald.html
 
 **Corrections: Nov. 15, 2026**\
 `Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
@@ -190,11 +190,11 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
-**In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
-`Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
-https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
-
 **How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
 `Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
 https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
+
+**In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
+`Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
+https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
 

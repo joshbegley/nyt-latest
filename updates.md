@@ -1,3 +1,7 @@
+**Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
+`The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
+https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-cantor-fitzgerald.html
+
 **Your Fish Wish Is Granted**\
 `My recipe for fish simmered in spicy garlic broth is an adaptable and speedy way to make a flavorful weeknight meal.`\
 https://www.nytimes.com/2026/11/15/dining/your-fish-wish-is-granted.html
