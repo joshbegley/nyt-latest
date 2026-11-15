@@ -1,3 +1,7 @@
+**‘S.N.L.’ Brings Back Bowen Yang as Jensen Huang**\
+`Elon Musk, Mark Zuckerberg and Dario Amodei were among the other tech billionaires satirized at the start of an episode hosted by John Mulaney.`\
+https://www.nytimes.com/2026/11/15/arts/television/saturday-night-live-john-mulaney-phoebe-bridgers.html
+
 **‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
 `Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
 https://www.nytimes.com/2026/11/15/us/haley-dekreek-sorority-influencer-college.html

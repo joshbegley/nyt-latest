@@ -1,3 +1,7 @@
+**‘S.N.L.’ Brings Back Bowen Yang as Jensen Huang**\
+`Elon Musk, Mark Zuckerberg and Dario Amodei were among the other tech billionaires satirized at the start of an episode hosted by John Mulaney.`\
+https://www.nytimes.com/2026/11/15/arts/television/saturday-night-live-john-mulaney-phoebe-bridgers.html
+
 **TikTok U**\
 `Many young adults want to be influencers. What’s that doing to college life?`\
 https://www.nytimes.com/2026/11/15/briefing/sorority-influencers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.ht
 **Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
 `Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
 https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
-
-**Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
-`Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
-https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
 
