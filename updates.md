@@ -1,3 +1,7 @@
+**Saudi-Backed Forces in Yemen Retreat From Red Sea as Houthis Advance**\
+`The move is a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the balance of power in the country’s civil war was tilting toward the Iran-backed Houthi militia.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html
+
 **A Craggy Meatball Is a Great Meatball**\
 `These meatballs are messy and irregularly shaped, with more bits for browning and crevasses for soaking up tomato sauce.`\
 https://www.nytimes.com/2026/11/15/dining/a-craggy-meatball-is-a-great-meatball.html

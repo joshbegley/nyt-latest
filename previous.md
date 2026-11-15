@@ -1,3 +1,7 @@
+**Saudi-Backed Forces in Yemen Retreat From Red Sea as Houthis Advance**\
+`The move is a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the balance of power in the country’s civil war was tilting toward the Iran-backed Houthi militia.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html
+
 **A Craggy Meatball Is a Great Meatball**\
 `These meatballs are messy and irregularly shaped, with more bits for browning and crevasses for soaking up tomato sauce.`\
 https://www.nytimes.com/2026/11/15/dining/a-craggy-meatball-is-a-great-meatball.html
@@ -182,19 +186,15 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
-**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
-`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
-https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
-
 **In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
 `Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
 https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
 
+**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
+`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
+https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
+
 **From the Front Page: Thousands Rally Against the Vietnam War in Washington on Nov. 15, 1969**\
 `About 250,000 people demonstrated in the nation’s capital, calling for the rapid withdrawal of U.S. troops.`\
 https://www.nytimes.com/2026/11/15/learning/from-the-front-page-thousands-rally-against-the-vietnam-war-in-washington-on-nov-15-1969.html
-
-**A Mexican Artist Sang Some of His Hits. Authorities Stopped the Show, Then Arrested Him.**\
-`A concert by the singer Gabito Ballesteros was suspended after he sang songs that supposedly glorify cartel culture. The action has renewed a debate over culture and free speech.`\
-https://www.nytimes.com/2026/11/14/world/americas/mexico-gabito-ballesteros-arrested-narocorridos.html
 
