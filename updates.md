@@ -1,3 +1,7 @@
+**Israel Kidnapped Iranian Generals in Hunt for Ron Arad**\
+`Israeli officials were convinced that Tehran was to blame for the airman’s disappearance. Alternative theories got little attention, until now.`\
+https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
+
 **Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
 `The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
 https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-cantor-fitzgerald.html

@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
 `A stage adaptation of the Gisèle Pelicot trial, a Tom Stoppard play from London and a beloved revival of “Falsettos” are also available for viewing.`\
 https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-stoppard-school-girls.html
 
-**After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
-`Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
+**Israel Kidnapped Iranian Generals in Hunt for Ron Arad**\
+`Israeli officials were convinced that Tehran was to blame for the airman’s disappearance. Alternative theories got little attention, until now.`\
 https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
 
 **Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
