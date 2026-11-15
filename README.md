@@ -1,3 +1,7 @@
+**Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
+`Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
+https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
+
 **Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
 `Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
 https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
 **‘There’s No Juice Left to Squeeze From MAGA’**\
 `More than a week after the blue wave, what comes next for both parties?`\
 https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republicans-whats-next.html
-
-**The Buffalo Bills’ Quarterback Is a Moon Truther. That’s Just the Start of It.**\
-`In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
-https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
