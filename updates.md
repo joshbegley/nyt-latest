@@ -1,3 +1,7 @@
+**Saudi-Backed Forces Retreat in Yemen, Leaving Key Strait in Houthi Control**\
+`It’s a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the momentum in country’s civil war was tilting toward the Iran-backed Houthis.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html
+
 **Megaspeed Says Alice Huang Left Company in August 2025**\
 `The Singaporean company’s statement added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
 https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html

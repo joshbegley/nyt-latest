@@ -1,3 +1,7 @@
+**F.D.A. Rejects Closely Watched Lung Cancer Drug From China**\
+`The treatment, called ivonescimab, has become a symbol of China’s rise in drug development.`\
+https://www.nytimes.com/2026/11/15/business/fda-lung-cancer-drug-china.html
+
 **Billy Evans Says He’d Do It All Over Again**\
 `Speaking with CBS News, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
 https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
 **NYT Spelling Bee Answers for November 15, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/15/crosswords/spelling-bee-forum.html
-
-**Nate Silver’s Unscientific, Totally Subjective Breakdown of the Democrats’ Future Stars**\
-`A roundup of uniters and fighters, progressives and moderates.`\
-https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
 
