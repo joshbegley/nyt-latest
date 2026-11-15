@@ -1,3 +1,7 @@
+**Iran Attacks Bahrain for the Second Time in Days**\
+`The resumption of attacks after a two-month lull comes as peace talks between the U.S. and Iran appear to have stalled.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
+
 **NYT Connections Answers for November 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
@@ -44,7 +48,7 @@ https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airl
 
 **Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
 `The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
-https://www.nytimes.com/2026/11/15/us/politics/lutnick-pushed-to-weaken-chip-rules-that-overlap-with-his-family-business.html
+https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-cantor-fitzgerald.html
 
 **Corrections: Nov. 15, 2026**\
 `Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government
 **SpaceX Makes History With Successful Rocket Catch in Texas**\
 `The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
 https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
-
-**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why**\
-`Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
-https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
 

@@ -1,3 +1,11 @@
+**Iran Attacks Bahrain for the Second Time in Days**\
+`The resumption of attacks after a two-month lull comes as peace talks between the U.S. and Iran appear to have stalled.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
+
+**Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
+`The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
+https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-cantor-fitzgerald.html
+
 **A Human Reads the Anthropic I.P.O. Filing**\
 `The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
 https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
