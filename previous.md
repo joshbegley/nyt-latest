@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/11/15/arts/design/alta-center-chicano-art-los-angel
 `This year, the first class of medical students will begin their journey to becoming physicians under new rules limiting how much they can borrow for school.`\
 https://www.nytimes.com/2026/11/15/business/medical-school-student-loan-caps.html
 
-**After Midterms Triumph, Democrats Look Quickly and Eagerly Ahead to 2028**\
-`Politicians, donors and campaign strategists are already imagining a large and contentious field of presidential contenders.`\
-https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candidates.html
-
 **Embattled Federal Employees Look to a Democratic Congress for a Lifeline**\
 `Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts is unlikely to happen immediately.`\
 https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-congress-lifeline.html
+
+**After Midterms Triumph, Democrats Look Quickly and Eagerly Ahead to 2028**\
+`Politicians, donors and campaign strategists are already imagining a large and contentious field of presidential contenders.`\
+https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candidates.html
 
 **The Reward for Black Women’s Work in Georgia: Leaders Who Look Like Them**\
 `Diligent ground-level efforts by Black women helped make Democrats competitive again in Georgia. Now they’ll hold seven of the top eight elected leadership roles in the state.`\
