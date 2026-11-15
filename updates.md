@@ -1,3 +1,7 @@
+**Megaspeed Says Alice Huang Left Company in August 2025**\
+`The Singaporean company’s statement added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
+
 **Billy Evans Says He’d Do It All Over Again**\
 `Speaking with CBS News, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
 https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
