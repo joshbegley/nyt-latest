@@ -1,3 +1,7 @@
+**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why?**\
+`Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
+https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
+
 **Highlights From the Starship Landing**\
 `The Starship spacecraft safely landed back at the Starbase launch facility, a major step in SpaceX’s quest to build fully reusable rockets.`\
 https://www.nytimes.com/live/2026/11/14/science/spacex-starship-launch
