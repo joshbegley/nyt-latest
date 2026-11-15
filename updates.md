@@ -1,3 +1,7 @@
+**Your Fish Wish Is Granted**\
+`My recipe for fish simmered in spicy garlic broth is an adaptable and speedy way to make a flavorful weeknight meal.`\
+https://www.nytimes.com/2026/11/15/dining/your-fish-wish-is-granted.html
+
 **Saudi-Backed Forces in Yemen Retreat From Red Sea as Houthis Advance**\
 `The move is a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the balance of power in the country’s civil war was tilting toward the Iran-backed Houthi militia.`\
 https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html

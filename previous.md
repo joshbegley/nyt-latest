@@ -1,3 +1,7 @@
+**Your Fish Wish Is Granted**\
+`My recipe for fish simmered in spicy garlic broth is an adaptable and speedy way to make a flavorful weeknight meal.`\
+https://www.nytimes.com/2026/11/15/dining/your-fish-wish-is-granted.html
+
 **Saudi-Backed Forces in Yemen Retreat From Red Sea as Houthis Advance**\
 `The move is a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the balance of power in the country’s civil war was tilting toward the Iran-backed Houthi militia.`\
 https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national
 **How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
 `Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
 https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
-
-**From the Front Page: Thousands Rally Against the Vietnam War in Washington on Nov. 15, 1969**\
-`About 250,000 people demonstrated in the nation’s capital, calling for the rapid withdrawal of U.S. troops.`\
-https://www.nytimes.com/2026/11/15/learning/from-the-front-page-thousands-rally-against-the-vietnam-war-in-washington-on-nov-15-1969.html
 
