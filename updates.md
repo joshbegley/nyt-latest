@@ -1,3 +1,7 @@
+**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why**\
+`Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
+https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
+
 **Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
 `Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
 https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
