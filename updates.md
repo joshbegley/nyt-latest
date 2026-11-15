@@ -1,3 +1,7 @@
+**Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
+`China, India, Pakistan, Indonesia and Japan didn’t join the singing contest in Bangkok. That left some of the region’s best-known musical cultures out of the mix.`\
+https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
+
 **A Mexican Artist Sang Some of His Hits. Authorities Stopped the Show, Then Arrested Him.**\
 `A concert by the singer Gabito Ballesteros was suspended after he sang songs that supposedly glorify cartel culture. The action has renewed a debate over culture and free speech.`\
 https://www.nytimes.com/2026/11/14/world/americas/mexico-gabito-ballesteros-arrested-narocorridos.html
