@@ -1,3 +1,11 @@
+**Sean Duffy Offers New Details on How One Fix Spiraled Into Nationwide Ground Stop**\
+`When asked, the transportation secretary could not guarantee on Sunday that a similar air traffic meltdown would not occur again.`\
+https://www.nytimes.com/2026/11/15/us/sean-duffy-ground-stop-trump-faa.html
+
+**A New Festival Embraces the Possibilities of Disability-Centered Opera**\
+`The three works at the Makemake festival at National Sawdust make the case that disability-led opera is artistically ambitious, despite the logistical challenges.`\
+https://www.nytimes.com/2026/11/15/arts/music/disability-inclusive-opera-national-sawdust-makemake-festival.html
+
 **Your Fish Wish Is Granted**\
 `My recipe for fish simmered in spicy garlic broth is an adaptable and speedy way to make a flavorful weeknight meal.`\
 https://www.nytimes.com/2026/11/15/dining/your-fish-wish-is-granted.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 **In Europe, an Emboldened Iran Contributes to a Sense of Anxiety**\
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
-
-**In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
-`Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
-https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
-
-**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
-`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
-https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
 

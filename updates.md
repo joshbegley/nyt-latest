@@ -1,3 +1,11 @@
+**Sean Duffy Offers New Details on How One Fix Spiraled Into Nationwide Ground Stop**\
+`When asked, the transportation secretary could not guarantee on Sunday that a similar air traffic meltdown would not occur again.`\
+https://www.nytimes.com/2026/11/15/us/sean-duffy-ground-stop-trump-faa.html
+
+**A New Festival Embraces the Possibilities of Disability-Centered Opera**\
+`The three works at the Makemake festival at National Sawdust make the case that disability-led opera is artistically ambitious, despite the logistical challenges.`\
+https://www.nytimes.com/2026/11/15/arts/music/disability-inclusive-opera-national-sawdust-makemake-festival.html
+
 **Israel Kidnapped Iranian Generals in Hunt for Ron Arad**\
 `Israeli officials were convinced that Tehran was to blame for the airman’s disappearance. Alternative theories got little attention, until now.`\
 https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
