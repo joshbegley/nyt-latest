@@ -1,3 +1,23 @@
+**‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
+`Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
+https://www.nytimes.com/2026/11/15/us/haley-dekreek-influencer-college.html
+
+**What It Took for America to Wipe Out Measles**\
+`The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
+https://www.nytimes.com/2026/11/15/well/what-it-took-for-america-to-wipe-out-measles.html
+
+**In a Sloppified A.I. World, Only Humans Can Build ‘Ecosystems’**\
+`The people ushering in the artificial intelligence revolution are also doubling down on in-person relationships in their own industry.`\
+https://www.nytimes.com/2026/11/15/business/tech-jobs-ai-ecosystem.html
+
+**Literary Agents Have Something New to Sell: Themselves**\
+`On Substack and TikTok, and with podcasts and books, agents are demystifying publishing while building their personal brands.`\
+https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
+
+**Cecily Strong and Corey Stoll’s Dinner Date, and More Theater to Stream**\
+`A stage adaptation of the Gisèle Pelicot trial, a Tom Stoppard play from London and a beloved revival of “Falsettos” are also available for viewing.`\
+https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-stoppard-school-girls.html
+
 **After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
 `Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
 https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
@@ -153,26 +173,6 @@ https://www.nytimes.com/2026/11/14/us/travel-nightmare-continues-for-stranded-pa
 **Tech Leaders Rally Behind Jensen Huang**\
 `In social media posts and letters to Nvidia’s board, Mr. Huang’s billionaire peers described him as a singular leader who could not be replaced at Nvidia.`\
 https://www.nytimes.com/2026/11/14/technology/silicon-valley-nvidia-jensen-huang.html
-
-**Repair That Triggered Air Traffic Meltdown Was Expected to be ‘Routine’**\
-`Officials said that the upgrade to antiquated communications equipment at a remote facility overloaded other parts of the national air traffic system.`\
-https://www.nytimes.com/2026/11/14/us/repair-that-triggered-air-traffic-meltdown-was-expected-to-be-routine.html
-
-**Perhaps the Rumors of Democracy’s Demise Were Premature**\
-`Did the midterm election save it?`\
-https://www.nytimes.com/2026/11/14/magazine/democracy-midterm-elections.html
-
-**Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
-`A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
-https://www.nytimes.com/2026/11/14/us/politics/comey-witness-justice-dept-aggressive-tactics.html
-
-**Here’s Why It Could Take Days for Flights to Return to Normal**\
-`With hundreds of planes out of position and crews out of hours, restarting the nation’s flight system is no easy task.`\
-https://www.nytimes.com/2026/11/14/us/faa-groundstop-flights-restarting.html
-
-**Brain Implants Give A.L.S. Patients the Voice to Speak and Sing**\
-`In one demonstration, a former singer sang a musical scale. Afterward she cried tears of joy.`\
-https://www.nytimes.com/2026/11/14/science/brain-implants-als-voice.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
