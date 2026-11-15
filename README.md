@@ -1,3 +1,7 @@
+**Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
+`Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
+https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
+
 **SpaceX Makes History With Successful Rocket Catch in Texas**\
 `The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
 https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
@@ -166,11 +170,7 @@ https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republica
 `In an era when our collective understanding of the truth is under threat, we all need to say something, or else we’re doomed.`\
 https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-slop-nfl.html
 
-**Richard Ford: In 1944, One Boy’s Birth Meant Little**\
-`The newspaper was taken up with stories of destruction, enemies and a ruined Benedictine abbey.`\
-https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
-
-**Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
+**Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
 https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
 
