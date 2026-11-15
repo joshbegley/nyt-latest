@@ -1,3 +1,7 @@
+**Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
+`Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeds.`\
+https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
+
 **Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
 `Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
 https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html

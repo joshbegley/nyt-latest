@@ -1,3 +1,7 @@
+**Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
+`Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeds.`\
+https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
+
 **Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
 `Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
 https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/opinion/jensen-huang-donald-trump-silicon-val
 **Goodbye, Mr. Chips**\
 `Terrible tech bros leading us into a scary future.`\
 https://www.nytimes.com/2026/11/14/opinion/huang-trump-lutnick-bessent.html
-
-**‘There’s No Juice Left to Squeeze From MAGA’**\
-`More than a week after the blue wave, what comes next for both parties?`\
-https://www.nytimes.com/2026/11/14/opinion/midterm-elections-democrats-republicans-whats-next.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
