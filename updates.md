@@ -1,3 +1,7 @@
+**At Sotheby’s, Risk-Taking Left a $180 Million van Gogh in the Lurch**\
+`Claims on the painting by heirs of a Jewish owner were well known in the art world. The auction house will meet lawyers for the heirs on Monday.`\
+https://www.nytimes.com/2026/11/15/arts/design/sothebys-van-gogh-auction-art-nazi.html
+
 **Too Many Chips in One Basket?**\
 `The U.S. economy hitched its wagon to Nvidia and Jensen Huang. Now that he has stepped down, the company faces deep uncertainty.`\
 https://www.nytimes.com/2026/11/15/world/nvidia-jensen-huang-ai-chips.html
