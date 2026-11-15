@@ -1,3 +1,7 @@
+**Megaspeed Says Alice Huang Left Company in August 2025**\
+`The Singaporean company’s disclosure added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
+
 **Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
 `Operations are returning to normal after air traffic was shut down for more than 4 hours on Friday following a maintenance upgrade that crippled communications.`\
 https://www.nytimes.com/2026/11/15/us/faa-groundstop-flights-status-delays-canceled.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
 **Two Planes Collide on a Taxiway at Miami International Airport**\
 `The wingtip of a Copa Airlines Boeing 737 struck the nose of a UPS Boeing 767, a day after a nationwide ground stop disrupted air travel.`\
 https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.html
-
-**Is Italy the Model for Europe’s Future?**\
-`Over more than a quarter-century, I’ve watched Europe’s politics become more like Italy’s, with all the resulting instability, as the far right came in from the cold.`\
-https://www.nytimes.com/2026/11/15/world/europe/italy-italianization-europe-horowitz.html
 
