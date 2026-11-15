@@ -1,6 +1,6 @@
 **After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
 `Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
-https://www.nytimes.com/2026/11/15/world/europe/after-decades-of-blood-and-mistrust-doubts-over-whos-to-blame-for-an-israeli-hostage.html
+https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
 
 **Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
 `Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
