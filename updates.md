@@ -1,3 +1,7 @@
+**F.D.A. Rejects Closely Watched Lung Cancer Drug From China**\
+`The treatment, called ivonescimab, has become a symbol of China’s rise in drug development.`\
+https://www.nytimes.com/2026/11/15/business/fda-lung-cancer-drug-china.html
+
 **Saudi-Backed Forces Retreat in Yemen, Leaving Key Strait in Houthi Control**\
 `It’s a setback for the Yemeni government and its ally Saudi Arabia, as analysts said the momentum in country’s civil war was tilting toward the Iran-backed Houthis.`\
 https://www.nytimes.com/2026/11/15/world/middleeast/saudi-houthis-yemen-red-sea.html
