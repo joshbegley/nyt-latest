@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government
 `The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
 https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
 
-**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why?**\
+**After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why**\
 `Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
 https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
 
