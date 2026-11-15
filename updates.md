@@ -1,3 +1,7 @@
+**Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
+`Operations are returning to normal after air traffic was shut down for more than 4 hours on Friday following a maintenance upgrade that crippled communications.`\
+https://www.nytimes.com/2026/11/15/us/faa-groundstop-flights-status-delays-canceled.html
+
 **Chris Van Hollen Says His Majority Leader Challenge to Chuck Schumer Is Gaining Support**\
 `Senator Chris Van Hollen of Maryland said on Sunday that he has a “wide-open” path to unseat Chuck Schumer, the long-serving Senate Democratic leader.`\
 https://www.nytimes.com/2026/11/15/us/politics/van-hollen-schumer-democrats-majority-leader.html
