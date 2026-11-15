@@ -1,3 +1,7 @@
+**Nvidia Fallout Looms Over Trump-Xi Meeting**\
+`So far, President Trump has indicated that he does not plan to press the Chinese leader about U.S. intelligence findings that a Chinese spy targeted Jensen Huang.`\
+https://www.nytimes.com/2026/11/15/us/politics/nvidia-trump-huang-china-xi.html
+
 **Zariah, 13, and Her Cat Are Reunited After Building Collapse**\
 `When the Coleman family had to flee their apartment after the building next door collapsed, their cat disappeared. But amid the tragedy of the disaster, this story had a happy ending.`\
 https://www.nytimes.com/2026/11/15/nyregion/building-collapse-cat-rescue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/business/tech-jobs-ai-ecosystem.html
 **Literary Agents Have Something New to Sell: Themselves**\
 `On Substack and TikTok, and with podcasts and books, agents are demystifying publishing while building their personal brands.`\
 https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
-
-**Cecily Strong and Corey Stoll’s Dinner Date, and More Theater to Stream**\
-`A stage adaptation of the Gisèle Pelicot trial, a Tom Stoppard play from London and a beloved revival of “Falsettos” are also available for viewing.`\
-https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-stoppard-school-girls.html
 
