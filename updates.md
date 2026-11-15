@@ -1,3 +1,23 @@
+**‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
+`Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
+https://www.nytimes.com/2026/11/15/us/haley-dekreek-influencer-college.html
+
+**What It Took for America to Wipe Out Measles**\
+`The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
+https://www.nytimes.com/2026/11/15/well/what-it-took-for-america-to-wipe-out-measles.html
+
+**In a Sloppified A.I. World, Only Humans Can Build ‘Ecosystems’**\
+`The people ushering in the artificial intelligence revolution are also doubling down on in-person relationships in their own industry.`\
+https://www.nytimes.com/2026/11/15/business/tech-jobs-ai-ecosystem.html
+
+**Literary Agents Have Something New to Sell: Themselves**\
+`On Substack and TikTok, and with podcasts and books, agents are demystifying publishing while building their personal brands.`\
+https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
+
+**Cecily Strong and Corey Stoll’s Dinner Date, and More Theater to Stream**\
+`A stage adaptation of the Gisèle Pelicot trial, a Tom Stoppard play from London and a beloved revival of “Falsettos” are also available for viewing.`\
+https://www.nytimes.com/2026/11/15/theater/theater-streaming-falsettos-stoll-stoppard-school-girls.html
+
 **After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage**\
 `Israeli spies kidnapped and killed Iranians. They were convinced that Tehran was to blame for a fallen airman. Alternative theories got little attention, until now.`\
 https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html
