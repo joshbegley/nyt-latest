@@ -1,3 +1,19 @@
+**NYT Connections Answers for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
+https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
+
+**The Risk Democrats Need to Take**\
+`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
+
+**Defeating MAGA Is Only Half Done**\
+`The G.O.P. has not learned its lesson.`\
+https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
+
+**The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
+`13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
+https://www.nytimes.com/2026/11/15/podcasts/the-daily/the-ultraviolent-wildly-successful-uniquely-american-phenomenon-of-grand-theft-auto.html
+
 **The Nvidia Spy Case Is About Much More Than Sex**\
 `Alice Huang isn’t the first “nontraditional” Chinese spy. But she may be the worst for America’s national security.`\
 https://www.nytimes.com/2026/11/15/opinion/nvidia-spy-jensen-huang-national-security.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
 **After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why**\
 `Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
 https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
-
-**Family Dollar to Pay $63 Million Settlement for Overcharging Customers**\
-`Since 2023, the discount retailer has been overcharging shoppers “millions of dollars” at checkout, according to a complaint filed by federal regulators and 17 states.`\
-https://www.nytimes.com/2026/11/14/business/family-dollar-overcharging-settlement.html
-
-**Eurovision Crowns Its First Winner in Asia**\
-`The Eurovision Song Contest crowned its first Asia champion in Bangkok on Saturday, in an event that tested whether a high-camp singing competition with an ardent fan base could appeal to audiences in a new market.`\
-https://www.nytimes.com/video/world/asia/100000011285003/eurovision-crowns-its-first-winner-in-asia.html
-
-**Side Tracks**\
-`Sala Wanetick and Emily Biegas’s latest collaboration will get you spinning ‘round.`\
-https://www.nytimes.com/2026/11/14/crosswords/daily-puzzle-2026-11-15.html
-
-**SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
-`SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
-https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
 
