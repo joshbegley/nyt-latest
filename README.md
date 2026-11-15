@@ -1,3 +1,7 @@
+**TikTok U**\
+`Many young adults want to be influencers. What’s that doing to college life?`\
+https://www.nytimes.com/2026/11/15/briefing/sorority-influencers.html
+
 **Iran Attacks Bahrain for the Second Time in Days**\
 `The resumption of attacks after a two-month lull comes as peace talks between the U.S. and Iran appear to have stalled.`\
 https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
 **Unlike Other Countries, America’s Government Funds Its Air Infrastructure**\
 `Despite handling the most flights in the world, the United States’ air traffic systems rely on 1980s-era computer equipment.`\
 https://www.nytimes.com/2026/11/14/us/unlike-other-countries-americas-government-funds-its-air-infrastructure.html
-
-**SpaceX Makes History With Successful Rocket Catch in Texas**\
-`The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
-https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
 
