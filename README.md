@@ -1,3 +1,11 @@
+**Nate Silver Picks 27 Democrats to Watch**\
+`A roundup of uniters and fighters, progressives and moderates.`\
+https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
+
+**Late in Life, Here’s What I Know**\
+`More than anything, I am grateful. For life, especially.`\
+https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
+
 **Two Planes Collide on a Taxiway at Miami International Airport**\
 `The wingtip of a Copa Airlines Boeing 737 struck the nose of a UPS Boeing 767, a day after a nationwide ground stop disrupted air travel.`\
 https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
 **An Elotes-Flavored Corn Pudding for Future You**\
 `You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
 https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html
-
-**Meet the Fans Who Traveled to Bangkok for Eurovision Asia**\
-`Some were Asia-based Europeans chasing nostalgia. Others were Americans eager to experience their first edition of the song contest.`\
-https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
-
-**Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
-`China, India, Pakistan, Indonesia and Japan didn’t join the singing contest in Bangkok. That left some of the region’s best-known musical cultures out of the mix.`\
-https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
