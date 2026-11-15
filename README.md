@@ -1,3 +1,11 @@
+**Fan Fiction Site AO3 Returns, and So Do Its Readers, in Droves**\
+`The archive, which is home to tales inspired by the likes of “Harry Potter” and “Heated Rivalry,” was taken down more than two weeks ago, leaving its fans bereft.`\
+https://www.nytimes.com/2026/11/15/arts/ao3-fan-fiction-site.html
+
+**Van Hollen Says He Has a Path to Become Majority Leader**\
+`Senator Chris Van Hollen, a progressive Democrat, said on Sunday that he had a path to unseat Senator Chuck Schumer for majority leader.`\
+https://www.nytimes.com/video/us/politics/100000011286309/van-hollen-schumer-democrats-majority-leader.html
+
 **Nvidia Fallout Looms Over Trump-Xi Meeting**\
 `So far, President Trump has indicated that he does not plan to press the Chinese leader about U.S. intelligence findings that a Chinese spy targeted Jensen Huang.`\
 https://www.nytimes.com/2026/11/15/us/politics/nvidia-trump-huang-china-xi.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/15/us/haley-dekreek-sorority-influencer-college.
 **What It Took for America to Wipe Out Measles**\
 `The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
 https://www.nytimes.com/2026/11/15/well/us-measles-elimination.html
-
-**In a Sloppified A.I. World, Only Humans Can Build ‘Ecosystems’**\
-`The people ushering in the artificial intelligence revolution are also doubling down on in-person relationships in their own industry.`\
-https://www.nytimes.com/2026/11/15/business/tech-jobs-ai-ecosystem.html
-
-**Literary Agents Have Something New to Sell: Themselves**\
-`On Substack and TikTok, and with podcasts and books, agents are demystifying publishing while building their personal brands.`\
-https://www.nytimes.com/2026/11/15/books/literary-agents-books-substack.html
 
