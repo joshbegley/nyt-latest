@@ -1,3 +1,23 @@
+**A Craggy Meatball Is a Great Meatball**\
+`These meatballs are messy and irregularly shaped, with more bits for browning and crevasses for soaking up tomato sauce.`\
+https://www.nytimes.com/2026/11/15/dining/a-craggy-meatball-is-a-great-meatball.html
+
+**Why Public College Is Becoming Unaffordable**\
+`Readers discuss housing as a factor in the rising costs of college. Also: Latino voters’ shift; Justice Elena Kagan’s view of the Supreme Court.`\
+https://www.nytimes.com/2026/11/15/opinion/public-college-costs-housing.html
+
+**Television Is Terrible at Getting Middle-Aged Women Right**\
+`What “The Diplomat” gets right, and “Youth” gets wrong.`\
+https://www.nytimes.com/2026/11/15/opinion/women-middle-age-television-youth-diplomat.html
+
+**Microsoft Outlook Outage and FAA Groundstop Show Dependence on Fragile Technology**\
+`Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
+https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
+
+**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
+`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
+https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
+
 **‘S.N.L.’ Brings Back Bowen Yang as Jensen Huang**\
 `Elon Musk, Mark Zuckerberg and Dario Amodei were among the other tech billionaires satirized at the start of an episode hosted by John Mulaney.`\
 https://www.nytimes.com/2026/11/15/arts/television/saturday-night-live-john-mulaney-phoebe-bridgers.html

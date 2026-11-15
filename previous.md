@@ -1,3 +1,15 @@
+**A Craggy Meatball Is a Great Meatball**\
+`These meatballs are messy and irregularly shaped, with more bits for browning and crevasses for soaking up tomato sauce.`\
+https://www.nytimes.com/2026/11/15/dining/a-craggy-meatball-is-a-great-meatball.html
+
+**Why Public College Is Becoming Unaffordable**\
+`Readers discuss housing as a factor in the rising costs of college. Also: Latino voters’ shift; Justice Elena Kagan’s view of the Supreme Court.`\
+https://www.nytimes.com/2026/11/15/opinion/public-college-costs-housing.html
+
+**Television Is Terrible at Getting Middle-Aged Women Right**\
+`What “The Diplomat” gets right, and “Youth” gets wrong.`\
+https://www.nytimes.com/2026/11/15/opinion/women-middle-age-television-youth-diplomat.html
+
 **‘S.N.L.’ Brings Back Bowen Yang as Jensen Huang**\
 `Elon Musk, Mark Zuckerberg and Dario Amodei were among the other tech billionaires satirized at the start of an episode hosted by John Mulaney.`\
 https://www.nytimes.com/2026/11/15/arts/television/saturday-night-live-john-mulaney-phoebe-bridgers.html
@@ -50,7 +62,7 @@ https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
 
-**When Tech ‘Upgrades’ Go Awry**\
+**Microsoft Outlook Outage and FAA Groundstop Show Dependence on Fragile Technology**\
 `Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
 https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
 
@@ -170,13 +182,13 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
-**She Was a Victim of Jeffrey Epstein. She Also Helped Him Find Other Girls.**\
-`During the four years that Marina Lacerda was abused by Epstein, she introduced him to many of her friends.`\
-https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
-
 **In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
 `Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
 https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
+
+**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
+`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
+https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
 
 **From the Front Page: Thousands Rally Against the Vietnam War in Washington on Nov. 15, 1969**\
 `About 250,000 people demonstrated in the nation’s capital, calling for the rapid withdrawal of U.S. troops.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/15/learning/from-the-front-page-thousands-rally-
 **A Mexican Artist Sang Some of His Hits. Authorities Stopped the Show, Then Arrested Him.**\
 `A concert by the singer Gabito Ballesteros was suspended after he sang songs that supposedly glorify cartel culture. The action has renewed a debate over culture and free speech.`\
 https://www.nytimes.com/2026/11/14/world/americas/mexico-gabito-ballesteros-arrested-narocorridos.html
-
-**What to Know About Continued Flight Disruptions**\
-`After a nationwide ground stop Friday, travelers are still encountering snags, and it could take several days for flight schedules to return to normal.`\
-https://www.nytimes.com/2026/11/14/us/flight-delays-cancelations-what-to-know.html
-
-**Judge Blocks Immediate Closure of East Potomac Park for Trump Golf Project**\
-`Judge Ana C. Reyes, who has been overseeing combative litigation, said the Trump administration would not be responsible for operating the course while the case proceeded.`\
-https://www.nytimes.com/2026/11/14/us/politics/trump-east-potomac-golf-course.html
-
-**Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
-`Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
-https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
 
