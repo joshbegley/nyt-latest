@@ -130,13 +130,13 @@ https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-can
 `Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
 https://www.nytimes.com/2026/11/15/pageoneplus/corrections-nov-15-2026.html
 
-**A Human Reads the Anthropic I.P.O. Filing**\
-`The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
-https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
-
 **Jensen Huang’s Downfall Brings Disbelief in Taiwan**\
 `The Nvidia chief executive’s resignation shocked people in his birthplace, where he is called “the people’s dad.”`\
 https://www.nytimes.com/2026/11/15/business/jensen-huang-taiwan.html
+
+**A Human Reads the Anthropic I.P.O. Filing**\
+`The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
+https://www.nytimes.com/2026/11/15/business/anthropic-ipo-filing-prospectus.html
 
 **At the Alta Center, Chicano Art and Activism Walk Hand in Hand**\
 `The Alta, a new free public art space near downtown Los Angeles, holds a collection of Latino art infused with the spirit of the Chicano civil rights movement.`\

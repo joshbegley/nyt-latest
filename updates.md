@@ -1,3 +1,11 @@
+**Zariah, 13, and Her Cat Are Reunited After Building Collapse**\
+`When the Coleman family had to flee their apartment after the building next door collapsed, their cat disappeared. But amid the tragedy of the disaster, this story had a happy ending.`\
+https://www.nytimes.com/2026/11/15/nyregion/building-collapse-cat-rescue.html
+
+**Jordan Sentences 3 to Death Over Greek Orthodox Church Attack**\
+`The Jordanian military said that the men, who were arrested after a shooting at a Greek Orthodox church last month, had been convicted of terrorism charges.`\
+https://www.nytimes.com/2026/11/15/world/middleeast/jordan-church-attack-death-sentence.html
+
 **N.Y.P.D. Fatally Shoots Driver Who Officers Said Was Ramming Cars**\
 `Officers had been trying to detain a man who was driving on the Belt Parkway in Brooklyn after a report that a woman was trying to get out of his van.`\
 https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
