@@ -1,3 +1,7 @@
+**Richard Sterban, the Bass Singer for the Oak Ridge Boys, Dies at 83**\
+`Mr. Sterban, who was a backup vocalist for Elvis Presley, was a singer of extraordinary range and power who could hit notes so low they could only be felt.`\
+https://www.nytimes.com/2026/11/14/obituaries/richard-sterban-dead.html
+
 **After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why**\
 `Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
 https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
