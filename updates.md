@@ -1,3 +1,7 @@
+**Too Many Chips in One Basket?**\
+`The U.S. economy hitched its wagon to Nvidia and Jensen Huang. Now that he has stepped down, the company faces deep uncertainty.`\
+https://www.nytimes.com/2026/11/15/world/nvidia-jensen-huang-ai-chips.html
+
 **Billy Evans Says He’d Do It All Over Again**\
 `Speaking with CBS Sunday Morning, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
 https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html

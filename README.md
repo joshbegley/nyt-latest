@@ -1,3 +1,7 @@
+**At Sotheby’s, Risk-Taking Left a $180 Million van Gogh in the Lurch**\
+`Claims on the painting by heirs of a Jewish owner were well known in the art world. The auction house will meet lawyers for the heirs on Monday.`\
+https://www.nytimes.com/2026/11/15/arts/design/sothebys-van-gogh-auction-art-nazi.html
+
 **Too Many Chips in One Basket?**\
 `The U.S. economy hitched its wagon to Nvidia and Jensen Huang. Now that he has stepped down, the company faces deep uncertainty.`\
 https://www.nytimes.com/2026/11/15/world/nvidia-jensen-huang-ai-chips.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asg
 **Police Fatally Shoot Man in Brooklyn After Report of Possible Abduction**\
 `Officers were trying to detain the man, who was driving on the Belt Parkway, when he started ramming other vehicles, the New York Police Department said.`\
 https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-van-driver.html
-
-**‘At 14th Street, We Peered Through the Windows and Across the Platform’**\
-`A Halloween moment in the subway, no desserts at the movies and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
 
