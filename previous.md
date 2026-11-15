@@ -1,3 +1,11 @@
+**‘At 14th Street, We Peered Through the Windows and Across the Platform’**\
+`A Halloween moment in the subway, no desserts at the movies and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for November 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/15/crosswords/spelling-bee-forum.html
+
 **Nate Silver’s Unscientific, Totally Subjective Breakdown of the Democrats’ Future Stars**\
 `A roundup of uniters and fighters, progressives and moderates.`\
 https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/11/14/world/africa/south-sudan-election.html
 **Ground Stop Highlights Chronic Vulnerabilities in Air Traffic System**\
 `The Federal Aviation Administration’s aging air traffic control infrastructure has had several disruptive failures in recent months, as officials have sought to make upgrades.`\
 https://www.nytimes.com/2026/11/14/us/politics/ground-stop-air-traffic-faa.html
-
-**How Can Democrats Govern Under These Conditions?**\
-`The filibuster makes a productive Senate impossible.`\
-https://www.nytimes.com/2026/11/14/opinion/abolish-filibuster-senate.html
-
-**An Elotes-Flavored Corn Pudding for Future You**\
-`You can make this luscious dish ahead of Thanksgiving, but the smell of sweet corn and roasted jalapeños fresh from the oven might be too hard to resist.`\
-https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-future-you.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\

@@ -1,3 +1,11 @@
+**‘At 14th Street, We Peered Through the Windows and Across the Platform’**\
+`A Halloween moment in the subway, no desserts at the movies and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
+
+**NYT Spelling Bee Answers for November 15, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/15/crosswords/spelling-bee-forum.html
+
 **Nate Silver’s Unscientific, Totally Subjective Breakdown of the Democrats’ Future Stars**\
 `A roundup of uniters and fighters, progressives and moderates.`\
 https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
