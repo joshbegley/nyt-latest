@@ -1,3 +1,63 @@
+**When Tech ‘Upgrades’ Go Awry**\
+`Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
+https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
+
+**Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
+`The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
+https://www.nytimes.com/2026/11/15/us/politics/lutnick-pushed-to-weaken-chip-rules-that-overlap-with-his-family-business.html
+
+**Corrections: Nov. 15, 2026**\
+`Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
+https://www.nytimes.com/2026/11/15/pageoneplus/corrections-nov-15-2026.html
+
+**Jensen Huang’s Downfall Brings Disbelief in Taiwan**\
+`The Nvidia chief executive’s resignation shocked people in his birthplace, where he is called “the people’s dad.”`\
+https://www.nytimes.com/2026/11/15/business/jensen-huang-taiwan.html
+
+**A Human Reads the Anthropic I.P.O. Filing**\
+`The prospectus is unparalleled in its willingness to discuss existential risk. But does honesty bring comfort?`\
+https://www.nytimes.com/2026/11/15/business/a-human-reads-the-anthropic-ipo-filing.html
+
+**At the Alta Center, Chicano Art and Activism Walk Hand in Hand**\
+`The Alta, a new free public art space near downtown Los Angeles, holds a collection of Latino art infused with the spirit of the Chicano civil rights movement.`\
+https://www.nytimes.com/2026/11/15/arts/design/alta-center-chicano-art-los-angeles.html
+
+**They Want to Be Doctors. Student Loan Caps Are Complicating Their Dreams.**\
+`This year, the first class of medical students will begin their journey to becoming physicians under new rules limiting how much they can borrow for school.`\
+https://www.nytimes.com/2026/11/15/business/medical-school-student-loan-caps.html
+
+**After Midterms Triumph, Democrats Look Quickly and Eagerly Ahead to 2028**\
+`Politicians, donors and campaign strategists are already imagining a large and contentious field of presidential contenders.`\
+https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candidates.html
+
+**Embattled Federal Employees Look to a Democratic Congress for a Lifeline**\
+`Former and current workers have found a sympathetic ear among Democrats set to take over the House and Senate. But any reversal of President Trump’s cuts are unlikely to happen immediately.`\
+https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-congress-lifeline.html
+
+**The Reward for Black Women’s Work in Georgia: Leaders Who Look Like Them**\
+`Diligent ground-level efforts by Black women helped make Democrats competitive again in Georgia. Now they’ll hold seven of the top eight elected leadership roles in the state.`\
+https://www.nytimes.com/2026/11/15/us/black-women-georgia-leaders.html
+
+**Behind the All-American Ralph Lauren Brand Is a French C.E.O.**\
+`Patrice Louvet on working with Ralph Lauren, the man, winning over Generation Z and striking a balance between magic and logic.`\
+https://www.nytimes.com/2026/11/15/business/ralph-lauren-patrice-louvet.html
+
+**How Adam Driver, Scarlett Johansson and Miles Teller Built a Family in ‘Paper Tiger’**\
+`James Gray’s latest autobiographical film, set in a crime-ridden ’80s New York, centers on what one of its stars jokingly calls “a throuple.”`\
+https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-and-miles-teller-interview-paper-tiger.html
+
+**A Campus Sexual Assault Lawsuit Tests an Unusual Legal Strategy**\
+`Frustrated by Texas Christian University’s handling of her sexual assault case, a former student from Virginia is suing under her home state’s consumer protection laws.`\
+https://www.nytimes.com/2026/11/15/us/sexual-assault-lawsuit-texas-christian-university-consumer-protection.html
+
+**Book Review: ‘Stations,’ by Louise Kennedy**\
+`A young Irishwoman in London tests the limits of commitment in Louise Kennedy’s “Stations.”`\
+https://www.nytimes.com/2026/11/15/books/review/stations-louise-kennedy.html
+
+**‘Birdbrain’ Is a Misnomer. Crows Make Decisions Faster Than We Can**\
+`In a recent experiment, crows could process and respond to visual cues at twice the speed as humans and monkeys.`\
+https://www.nytimes.com/2026/11/15/science/birdbrain-is-a-misnomer-crows-make-decisions-faster-than-we-can.html
+
 **‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
 `Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
 https://www.nytimes.com/2026/11/15/us/haley-dekreek-influencer-college.html
