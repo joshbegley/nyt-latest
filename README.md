@@ -143,7 +143,7 @@ https://www.nytimes.com/2026/11/14/dining/an-elotes-flavored-corn-pudding-for-fu
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
 
 **Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
-`China, India, Pakistan, Indonesia and Japan aren’t joining the singing contest. That leaves some of the region’s best-known musical cultures out of the mix.`\
+`China, India, Pakistan, Indonesia and Japan didn’t join the singing contest in Bangkok. That left some of the region’s best-known musical cultures out of the mix.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
 
 **Vaughn’s Favorite Thanksgiving Pies**\

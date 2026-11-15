@@ -1,3 +1,7 @@
+**A Mexican Artist Sang Some of His Hits. Authorities Stopped the Show, Then Arrested Him.**\
+`A concert by the singer Gabito Ballesteros was suspended after he sang songs that supposedly glorify cartel culture. The action has renewed a debate over culture and free speech.`\
+https://www.nytimes.com/2026/11/14/world/americas/mexico-gabito-ballesteros-arrested-narocorridos.html
+
 **Key Witness in Comey Case Attests to Justice Dept.’s Aggressive Tactics**\
 `A former aide to James Comey at the F.B.I. said the government had engaged in a “harassment campaign” in its efforts to secure witness testimony.`\
 https://www.nytimes.com/2026/11/14/us/politics/comey-witness-justice-dept-aggressive-tactics.html
