@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 16, 2026**\
+`Josef Sipkins makes his New York Times Crossword debut.`\
+https://www.nytimes.com/2026/11/15/crosswords/daily-puzzle-2026-11-16.html
+
 **Fan Fiction Site AO3 Returns, and So Do Its Readers, in Droves**\
 `The archive, which is home to tales inspired by the likes of “Harry Potter” and “Heated Rivalry,” was taken down more than two weeks ago, leaving its fans bereft.`\
 https://www.nytimes.com/2026/11/15/arts/ao3-fan-fiction-site.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decisi
 **‘I Love Being a Girl’: Inside the Life of a Sorority Influencer**\
 `Many young adults want to be influencers. And why not? It’s fun. But it also means that the camera is always on.`\
 https://www.nytimes.com/2026/11/15/us/haley-dekreek-sorority-influencer-college.html
-
-**What It Took for America to Wipe Out Measles**\
-`The U.S. could soon lose its measles elimination status. Winning it was a massive, decades-long undertaking.`\
-https://www.nytimes.com/2026/11/15/well/us-measles-elimination.html
 
