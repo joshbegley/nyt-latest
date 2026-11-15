@@ -1,3 +1,7 @@
+**Chris Van Hollen Says His Majority Leader Challenge to Chuck Schumer Is Gaining Support**\
+`Senator Chris Van Hollen of Maryland said on Sunday that he has a “wide-open” path to unseat Chuck Schumer, the long-serving Senate Democratic leader.`\
+https://www.nytimes.com/2026/11/15/us/politics/van-hollen-schumer-democrats-majority-leader.html
+
 **Sean Duffy Offers New Details on How One Fix Spiraled Into Nationwide Ground Stop**\
 `When asked, the transportation secretary could not guarantee on Sunday that a similar air traffic meltdown would not occur again.`\
 https://www.nytimes.com/2026/11/15/us/sean-duffy-ground-stop-trump-faa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/world/europe/italy-italianization-europe-horo
 **Quote of the Day: They Came From Afar to Build New Lives. In an Instant, All Was Gone.**\
 `Quotation of the Day for Sunday, November 15, 2026.`\
 https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-afar-to-build-new-lives-in-an-instant-all-was-gone.html
-
-**In Europe, an Emboldened Iran Contributes to a Sense of Anxiety**\
-`Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
-https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
