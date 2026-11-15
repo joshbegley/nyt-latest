@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
 
-**When Tech ‘Upgrades’ Go Awry**\
+**Microsoft Outlook Outage and FAA Groundstop Show Dependence on Fragile Technology**\
 `Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
 https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
 
@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/11/15/pageoneplus/quote-of-the-day-they-came-from-a
 `Prosecutors and government officials believe Iran or its proxies are behind a series of security breaches and threats in Britain and Europe, unsettling the region.`\
 https://www.nytimes.com/2026/11/15/world/europe/iran-attacks-threats-europe.html
 
-**She Was a Victim of Jeffrey Epstein. She Also Helped Him Find Other Girls.**\
-`During the four years that Marina Lacerda was abused by Epstein, she introduced him to many of her friends.`\
-https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
-
 **In Banff, a Grizzly Bear Known as ‘the Boss’ Rules the National Park**\
 `Bear 122 has survived a train, cars and rival bears. Some fear the biggest threat to his life now is his own fame.`\
 https://www.nytimes.com/2026/11/15/world/canada/grizzly-bear-boss-banff-national-park-alberta.html
+
+**How Jeffrey Epstein Grew His Sex-Trafficking Ring**\
+`Marina Lacerda was one of Epstein’s victims. She also helped him find other girls.`\
+https://www.nytimes.com/2026/11/15/magazine/epstein-victims-recruiting-trafficking.html
 
 **From the Front Page: Thousands Rally Against the Vietnam War in Washington on Nov. 15, 1969**\
 `About 250,000 people demonstrated in the nation’s capital, calling for the rapid withdrawal of U.S. troops.`\
