@@ -1,3 +1,7 @@
+**SpaceX Makes History With Successful Rocket Catch in Texas**\
+`The Starship spacecraft returned from orbit to the same spot where it lifted off, marking a key milestone in SpaceX’s vision of building fully reusable rockets.`\
+https://www.nytimes.com/2026/11/14/science/spacex-starship-first-catch.html
+
 **After Her Baby Was Buried Alive, a South Carolina Mother Wonders Why?**\
 `Koah Sharp, nearly 1, was rescued alive this week in a rural patch of central South Carolina. In her first interview, Koah’s mother explains what happened.`\
 https://www.nytimes.com/2026/11/14/us/south-carolina-boy-buried-alive.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/opinion/josh-allen-moon-landing-fake-news-ai-
 **Richard Ford: In 1944, One Boy’s Birth Meant Little**\
 `The newspaper was taken up with stories of destruction, enemies and a ruined Benedictine abbey.`\
 https://www.nytimes.com/2026/11/14/opinion/richard-ford-nyt-175.html
-
-**‘There’s No Juice Left to Squeeze From MAGA’**\
-`More than a week after the blue wave, what comes next for both parties?`\
-https://www.nytimes.com/video/opinion/100000011276423/theres-no-juice-left-to-squeeze-from-maga.html
 
 **Live Updates: Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
