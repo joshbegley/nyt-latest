@@ -1,3 +1,7 @@
+**A Mexican Artist Sang Some of His Hits. Authorities Stopped the Show, Then Arrested Him.**\
+`A concert by the singer Gabito Ballesteros was suspended after he sang songs that supposedly glorify cartel culture. The action has renewed a debate over culture and free speech.`\
+https://www.nytimes.com/2026/11/14/world/americas/mexico-gabito-ballesteros-arrested-narocorridos.html
+
 **What to Know About Continued Flight Disruptions**\
 `After a nationwide ground stop Friday, travelers are still encountering snags, and it could take several days for flight schedules to return to normal.`\
 https://www.nytimes.com/2026/11/14/us/flight-delays-cancelations-what-to-know.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/14/world/europe/ukraine-starshield-zelensky.html
 **Talarico Wants to Transcend the Pettiness of Modern Politics. Can He?**\
 `It’s an open question how much unity, healing and love is possible in Trump’s Washington.`\
 https://www.nytimes.com/2026/11/14/opinion/talarico-midterms-trump-washington.html
-
-**Jensen Huang’s Fall Is a Dark Consequence of What’s Happening in Silicon Valley**\
-`Silicon Valley’s authoritarianism has left itself particularly vulnerable to Donald Trump’s corruptive tendencies.`\
-https://www.nytimes.com/2026/11/14/opinion/jensen-huang-donald-trump-silicon-valley.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
