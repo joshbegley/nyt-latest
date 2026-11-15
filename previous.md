@@ -1,3 +1,7 @@
+**Two Planes Collide on a Taxiway at Miami International Airport**\
+`The wingtip of a Copa Airlines Boeing 737 struck the nose of a UPS Boeing 767, a day after a nationwide ground stop disrupted air travel.`\
+https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.html
+
 **Is Italy the Model for Europe’s Future?**\
 `Over more than a quarter-century, I’ve watched Europe’s politics become more like Italy’s, with all the resulting instability, as the far right came in from the cold.`\
 https://www.nytimes.com/2026/11/15/world/europe/italy-italianization-europe-horowitz.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-fans.html
 **Asia’s Eurovision Contest Is Missing China, India, Pakistan, Indonesia and Japan**\
 `China, India, Pakistan, Indonesia and Japan didn’t join the singing contest in Bangkok. That left some of the region’s best-known musical cultures out of the mix.`\
 https://www.nytimes.com/2026/11/14/world/asia/eurovision-asia-china-japan.html
-
-**Vaughn’s Favorite Thanksgiving Pies**\
-`Make your dessert table the place to be this holiday season with some of our favorite classic and unexpected pie recipes.`\
-https://www.nytimes.com/2026/11/14/dining/vaughns-favorite-thanksgiving-pies.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
