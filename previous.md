@@ -1,3 +1,7 @@
+**The Flaw at the Heart of Anthropic’s I.P.O.**\
+`Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
+https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
+
 **When Tech ‘Upgrades’ Go Awry**\
 `Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
 https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/14/us/l3harris-ground-stop.html
 **Duffy Says System Upgrade Led to U.S. Ground Stop**\
 `Travelers across the United States faced delays and uncertainty on Saturday after a ground stop halted air travel. Federal officials blamed the disruption on a communication failure caused by a system upgrade.`\
 https://www.nytimes.com/video/us/100000011284963/faa-nationwide-ground-stop-flights.html
-
-**The Surf’s Way, Way Up as Huge Waves Pound the California Coast**\
-`Officials warned onlookers to stay off the beaches as waves of more than 50 feet in spots posed hazards. The intense conditions were too dangerous for even seasoned surfers at some beaches.`\
-https://www.nytimes.com/2026/11/14/weather/california-coast-waves-high-surf.html
 
 **Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
 `Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\

@@ -1,3 +1,7 @@
+**The Flaw at the Heart of Anthropic’s I.P.O.**\
+`Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
+https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
+
 **When Tech ‘Upgrades’ Go Awry**\
 `Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
 https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html

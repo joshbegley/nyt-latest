@@ -1,3 +1,23 @@
+**The Nvidia Spy Case Is About Much More Than Sex**\
+`Alice Huang isn’t the first “nontraditional” Chinese spy. But she may be the worst for America’s national security.`\
+https://www.nytimes.com/2026/11/15/opinion/nvidia-spy-jensen-huang-national-security.html
+
+**The South Went Blue and I Lived to See It**\
+`Voters proved that most Americans want government by the people, for the people.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-win-mississippi-south.html
+
+**The Flaw at the Heart of Anthropic’s I.P.O.**\
+`Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
+https://www.nytimes.com/2026/11/15/opinion/anthropic-ipo-ai-investors.html
+
+**NYT Strands Hints for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
+https://www.nytimes.com/2026/11/15/crosswords/strands-sidekick-988.html
+
+**Today’s Wordle Hints for November 16, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
+https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
+
 **The Flaw at the Heart of Anthropic’s I.P.O.**\
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/14/crosswords/daily-puzzle-2026-11-15.html
 **SpaceX’s Reusable Rocket Makes Historic Return to Earth**\
 `SpaceX’s Starship made history as the first rocket to orbit Earth and land on the same launchpad it took off from. The successful mission is a major step in the company’s quest to build reusable rockets.`\
 https://www.nytimes.com/video/science/space/100000011285269/spacex-starship-launch.html
-
-**Specialized High School Test Crashes, Rattling Students Across New York**\
-`The Specialized High School Admissions Test is the sole admissions criterion for the city’s eight specialized high schools. Technical difficulties sent students home with promises of an opportunity to retake it.`\
-https://www.nytimes.com/2026/11/14/nyregion/specialized-high-schools-test-crashes-nyc.html
-
-**Trump Kept Out of Sight as F.A.A. Issued Flight Ground Stop**\
-`The F.A.A. called a rare halt on flights nationwide, but the president stayed away from cameras and issued social media posts on the entertainment industry and California’s Democratic governor.`\
-https://www.nytimes.com/2026/11/14/us/politics/trump-flights-air-traffic-social-media.html
-
-**Defense Contractor L3Harris Was Behind Upgrade That Led to Ground Stop**\
-`The little-known defense giant does a lot of work for the Federal Aviation Administration and owns the equipment for the agency’s telecommunications network.`\
-https://www.nytimes.com/2026/11/14/us/l3harris-ground-stop.html
-
-**Duffy Says System Upgrade Led to U.S. Ground Stop**\
-`Travelers across the United States faced delays and uncertainty on Saturday after a ground stop halted air travel. Federal officials blamed the disruption on a communication failure caused by a system upgrade.`\
-https://www.nytimes.com/video/us/100000011284963/faa-nationwide-ground-stop-flights.html
-
-**Upgrade Work Blamed for Nationwide Flight Shutdown, Duffy Says**\
-`Transportation Secretary Sean Duffy said work to transition from copper to fiber optic cable in a remote facility caused a router to overload the system. It was unknown if the flaw was with the equipment or installation, he said.`\
-https://www.nytimes.com/live/2026/11/14/us/faa-nationwide-ground-stop-flights
 
