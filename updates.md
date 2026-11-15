@@ -1,3 +1,11 @@
+**Nate Silver Picks 27 Democrats to Watch**\
+`A roundup of uniters and fighters, progressives and moderates.`\
+https://www.nytimes.com/2026/11/15/opinion/nate-silver-democrats-midterms-president.html
+
+**Late in Life, Here’s What I Know**\
+`More than anything, I am grateful. For life, especially.`\
+https://www.nytimes.com/2026/11/15/opinion/death-end-of-life.html
+
 **Two Planes Collide on a Taxiway at Miami International Airport**\
 `The wingtip of a Copa Airlines Boeing 737 struck the nose of a UPS Boeing 767, a day after a nationwide ground stop disrupted air travel.`\
 https://www.nytimes.com/2026/11/15/us/miami-airport-plane-collision-copa-ups.html
