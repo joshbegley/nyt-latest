@@ -1,3 +1,7 @@
+**Too Many Chips in One Basket?**\
+`The U.S. economy hitched its wagon to Nvidia and Jensen Huang. Now that he has stepped down, the company faces deep uncertainty.`\
+https://www.nytimes.com/2026/11/15/world/nvidia-jensen-huang-ai-chips.html
+
 **F.D.A. Rejects Closely Watched Lung Cancer Drug From China**\
 `The treatment, called ivonescimab, has become a symbol of China’s rise in drug development.`\
 https://www.nytimes.com/2026/11/15/business/fda-lung-cancer-drug-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/nyregion/new-york-police-shooting-brooklyn-va
 **‘At 14th Street, We Peered Through the Windows and Across the Platform’**\
 `A Halloween moment in the subway, no desserts at the movies and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://www.nytimes.com/2026/11/15/nyregion/metropolitan-diary.html
-
-**NYT Spelling Bee Answers for November 15, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/15/crosswords/spelling-bee-forum.html
 

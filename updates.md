@@ -1,3 +1,7 @@
+**Billy Evans Says He’d Do It All Over Again**\
+`Speaking with CBS Sunday Morning, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
+https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
+
 **F.D.A. Rejects Closely Watched Lung Cancer Drug From China**\
 `The treatment, called ivonescimab, has become a symbol of China’s rise in drug development.`\
 https://www.nytimes.com/2026/11/15/business/fda-lung-cancer-drug-china.html
