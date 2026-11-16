@@ -1,3 +1,7 @@
+**NYT Spelling Bee Answers for November 16, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/16/crosswords/spelling-bee-forum.html
+
 **The New Congress Must Rein in Trump’s Dangerous China Policy**\
 `Trump’s accommodating approach toward China has emboldened Beijing, but the new Congress has a rare chance to change course.`\
 https://www.nytimes.com/2026/11/16/opinion/china-us-trump-asia-military.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
 **The Flaw at the Heart of Anthropic’s I.P.O.**\
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
-
-**Microsoft Outlook Outage and FAA Groundstop Show Dependence on Fragile Technology**\
-`Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
-https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
 
