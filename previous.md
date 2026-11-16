@@ -1,3 +1,7 @@
+**Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
+`A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
+https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html
+
 **Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
 `The rules, a topic of fierce debate in the administration, could cut back on Nvidia’s sales to foreign data centers serving Chinese companies.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
@@ -110,13 +114,13 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
-`Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
-https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
-
 **Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
 `As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
 https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
+
+**Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
+`Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
+https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/business/insurance-ai-debt.html
 **Trump’s Plan for A.I. Supremacy Fuels Resistance in the Philippines**\
 `A planned American-led artificial intelligence hub in the Philippines has sparked fierce opposition over concerns about displacement, resources and threats to national sovereignty.`\
 https://www.nytimes.com/2026/11/16/business/trump-paxsilica-philippines-ai.html
-
-**Book Review: ‘The Sensualist,’ by Gary Shteyngart**\
-`Gary Shteyngart swills martinis, calls on famous capybaras and buys a life-changing bespoke suit in a new essay collection.`\
-https://www.nytimes.com/2026/11/16/books/review/gary-shteyngart-sensualist-pure-pleasure.html
 

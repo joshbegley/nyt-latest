@@ -1,3 +1,7 @@
+**Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
+`A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
+https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html
+
 **Raye, Rosalía and Ella Langley Top a Women-Led 2027 Grammys Field**\
 `Langley is the first straight-up country artist to contend for the top album prize in eight years, and Raye’s 11 nods lead all nominees.`\
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-ella-langley-raye-rosalia.html
