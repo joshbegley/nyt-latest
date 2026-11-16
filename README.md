@@ -1,3 +1,7 @@
+**Judge Sets New March Trial Date for Lindsay Clancy**\
+`Judge William Sullivan set a new trial date of March 29 for Lindsay Clancy, whose first trial for the deaths of her three children ended in a deadlocked jury.`\
+https://www.nytimes.com/video/us/100000011287264/clancy-trial-date.html
+
 **Cornell University’s President Vows Fraternity Review in Wake of No Confidence Vote**\
 `President Michael I. Kotlikoff announced further steps in response to a former student’s lawsuit alleging a gang rape at a frat house.`\
 https://www.nytimes.com/2026/11/16/nyregion/cornell-president-kotlikoff-rape-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/crosswords/strands-sidekick-989.html
 **Today’s Wordle Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
 https://www.nytimes.com/2026/11/16/crosswords/wordle-review-1977.html
-
-**Trump’s Asia Trip Will Bring Him to the Table With Xi and Putin: What to Know**\
-`President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
-https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
 
