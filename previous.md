@@ -1,3 +1,7 @@
+**The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
+`Puccini’s breakneck tragedy has always been popular in New York: so much that you could hear two versions in 24 hours last weekend.`\
+https://www.nytimes.com/2026/11/16/arts/music/tosca-met-opera-new-york-philharmonic.html
+
 **Want a Table at the Buzziest New Restaurant? Try Getting Past the Bouncer.**\
 `No, you can’t talk to the host.`\
 https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
 **Bringing an Abandoned Cottage in Burgundy Back to Life**\
 `A couple realized their dream of buying an old stone house amid French vineyards. The only issue: It required patience, creativity and work. A lot of it.`\
 https://www.nytimes.com/2026/11/16/realestate/cottage-renovation-burgundy-france.html
-
-**Winter Nightmare Looms Early in Ukraine as Russia Strikes Relentlessly**\
-`Even as it talks peace, Russia has opened a bombing campaign intended to strip Kyiv and other cities of heat, running water and sanitation this winter.`\
-https://www.nytimes.com/2026/11/16/world/europe/russia-ukraine-winter-campaign.html
 

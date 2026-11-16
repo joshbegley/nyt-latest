@@ -1,3 +1,7 @@
+**The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
+`Puccini’s breakneck tragedy has always been popular in New York: so much that you could hear two versions in 24 hours last weekend.`\
+https://www.nytimes.com/2026/11/16/arts/music/tosca-met-opera-new-york-philharmonic.html
+
 **Want a Table at the Buzziest New Restaurant? Try Getting Past the Bouncer.**\
 `No, you can’t talk to the host.`\
 https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
