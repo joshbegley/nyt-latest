@@ -1,3 +1,11 @@
+**A Superfan Has Grown Up with Sarah J. Maas**\
+`Like many a passionate reader, Sofia Patino Duque can track milestones in her life by milestone encounters with her favorite author.`\
+https://www.nytimes.com/2026/11/16/books/review/sarah-j-maas-fandom.html
+
+**U.N. Starts Uncertain Effort to Regulate Lethal Autonomous Weapons**\
+`Delegates met in Geneva to discuss guardrails for such systems even as their development grows. Russia and the United States have resisted the efforts.`\
+https://www.nytimes.com/2026/11/16/world/europe/un-killer-robots-autonomous-weapons.html
+
 **At the 2026 Governors Awards, Glenn Close and Ridley Scott Get Honorary Oscars**\
 `The co-director of “You Can See Everything” was the man of the hour at the honorary Oscars. The actual recipients included Glenn Close and Ridley Scott.`\
 https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ridley-scott.html

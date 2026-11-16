@@ -1,3 +1,11 @@
+**A Superfan Has Grown Up with Sarah J. Maas**\
+`Like many a passionate reader, Sofia Patino Duque can track milestones in her life by milestone encounters with her favorite author.`\
+https://www.nytimes.com/2026/11/16/books/review/sarah-j-maas-fandom.html
+
+**U.N. Starts Uncertain Effort to Regulate Lethal Autonomous Weapons**\
+`Delegates met in Geneva to discuss guardrails for such systems even as their development grows. Russia and the United States have resisted the efforts.`\
+https://www.nytimes.com/2026/11/16/world/europe/un-killer-robots-autonomous-weapons.html
+
 **At the 2026 Governors Awards, Glenn Close and Ridley Scott Get Honorary Oscars**\
 `The co-director of “You Can See Everything” was the man of the hour at the honorary Oscars. The actual recipients included Glenn Close and Ridley Scott.`\
 https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ridley-scott.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/style/men-turtlenecks-fashion.html
 **In Brooklyn, a Five-Year Plan Can Do Wonders**\
 `A three-bedroom apartment in Prospect Lefferts Gardens frees a woman from the obligations of homeownership and connects her with a new group of friends.`\
 https://www.nytimes.com/2026/11/16/realestate/renting-prospect-lefferts-gardens.html
-
-**A Bull Market, Fueled by Pikachu, Charizard and Nostalgia**\
-`On the 30th anniversary of the franchise, Pokémon cards are skyrocketing in value — to the point that collecting them isn’t just big business, it’s a viable livelihood.`\
-https://www.nytimes.com/2026/11/16/us/pokemon-cards-value-investors.html
-
-**Billions in Insurance Money Is Being Bet on AI Debt, and Analyst Are Nervous**\
-`Insurance companies are investing billions of their customers’ money into A.I. deals as analysts warn of mounting risks.`\
-https://www.nytimes.com/2026/11/16/business/insurance-ai-debt.html
 
