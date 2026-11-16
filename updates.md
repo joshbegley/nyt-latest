@@ -1,3 +1,7 @@
+**A Year On, Mark Carney of Canada Returns to Asia a Political Star**\
+`Canada’s leader is courting Europe, but the bigger payoff might be in China, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
+https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
+
 **How a Pennsylvania Teacher Builds Skills With Our Student Opinion Feature**\
 `By responding to online forums, students practice narrative and argumentative writing; participate in civic discourse; and find an international audience for their work.`\
 https://www.nytimes.com/2026/11/16/learning/how-a-pennsylvania-teacher-builds-skills-with-our-student-opinion-feature.html
