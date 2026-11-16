@@ -1,3 +1,7 @@
+**2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
+`Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
+
 **Five European Countries Plan to Deport Migrants to Rwanda**\
 `Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
 https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
@@ -138,8 +142,8 @@ https://www.nytimes.com/2026/11/16/learning/would-you-want-to-go-to-a-hip-hop-sc
 `Phillips was always an underdog in the auction world, but it had ambition to compete with Christie’s and Sotheby’s. Then the economics changed.`\
 https://www.nytimes.com/2026/11/16/arts/design/phillips-sothebys-christies-art-auction-competition.html
 
-**Judge Could Set New Trial Date for Lindsay Clancy**\
-`The judge who oversaw Ms. Clancy’s first trial that ended in a deadlocked jury is holding a hearing on Monday to determine how to proceed.`\
+**Judge Sets Spring Retrial for Lindsay Clancy**\
+`At a hearing on Monday, prosecutors did not say whether they would plan to retry Ms. Clancy on first-degree murder charges, lesser charges or at all.`\
 https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
 
 **Bringing an Abandoned Cottage in Burgundy Back to Life**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/climate/permitting-bill-data-centers-electric
 **Democrats Will Wield Enormous Power in Statehouses. What Will They Do?**\
 `While attention has focused on the incoming Democratic Congress, the real change could happen in state capitals where Democrats will control a dozen new statehouse chambers.`\
 https://www.nytimes.com/2026/11/16/us/politics/democrats-state-government-control-priorities.html
-
-**How Sam Bankman-Fried Lost Out on a $35 Billion Jackpot From Anthropic**\
-`The founder of the collapsed FTX crypto exchange, who is serving prison time for fraud, would have made a windfall from a $500 million investment in Anthropic.`\
-https://www.nytimes.com/2026/11/16/technology/sam-bankman-fried-anthropic.html
 

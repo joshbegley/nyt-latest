@@ -1,3 +1,11 @@
+**Five European Countries Plan to Deport Migrants to Rwanda**\
+`Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
+https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
+
+**How to Make a Fall Wreath From Foraged Leaves and Twigs**\
+`The handmade decoration can brighten up a door or be used as a centerpiece on a holiday table.`\
+https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
+
 **Person Detained in Illinois Bomb Case, Authorities Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html

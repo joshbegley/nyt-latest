@@ -1,3 +1,11 @@
+**Five European Countries Plan to Deport Migrants to Rwanda**\
+`Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
+https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
+
+**How to Make a Fall Wreath From Foraged Leaves and Twigs**\
+`The handmade decoration can brighten up a door or be used as a centerpiece on a holiday table.`\
+https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
+
 **Person Detained in Illinois Bomb Case, Authorities Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/us/politics/democrats-state-government-contro
 **How Sam Bankman-Fried Lost Out on a $35 Billion Jackpot From Anthropic**\
 `The founder of the collapsed FTX crypto exchange, who is serving prison time for fraud, would have made a windfall from a $500 million investment in Anthropic.`\
 https://www.nytimes.com/2026/11/16/technology/sam-bankman-fried-anthropic.html
-
-**National Book Awards 2026: Vote in Our Readers’ Poll**\
-`Vote for your favorite work of fiction from a diverse slate of finalists for one of the English-speaking world’s top literary prizes.`\
-https://www.nytimes.com/2026/11/16/books/national-book-award-fiction-readers-vote.html
-
-**A Classic Car Show From Paris Aims to Turn Heads in Manhattan**\
-`Retromobile will feature vehicles from Jerry Seinfeld and Billy Joel and a parade of famous models from bygone eras — and some newer classics, too.`\
-https://www.nytimes.com/2026/11/16/business/retromobile-classic-car-show-nyc.html
 
