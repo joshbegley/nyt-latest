@@ -1,3 +1,27 @@
+**Quote of the Day: A.I. Can Help Judges Score More Precisely, But It Fails on Artistry**\
+`Quotation of the Day for Monday, November 16, 2026.`\
+https://www.nytimes.com/2026/11/16/pageoneplus/quote-of-the-day-ai-can-help-judges-score-more-precisely-but-it-fails-on-artistry.html
+
+**A Year On, Canada’s Mark Carney Returns to China a Political Star**\
+`Canada’s leader is courting Europe, but the bigger payoff might be in Asia, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
+https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
+
+**Searching for the Last Stoats of Waiheke Island**\
+`Can the tourist destination become the first urban island to rid itself of the stoat — an introduced predator that has ravaged New Zealand’s endemic wildlife?`\
+https://www.nytimes.com/2026/11/16/world/australia/new-zealand-stoats.html
+
+**They Defeated a Strongman. But Can They Run a Country?**\
+`Serbia’s student movement was deliberately leaderless and made group decisions to unseat Aleksandar Vucic. Now no one seems quite sure what happens next.`\
+https://www.nytimes.com/2026/11/16/world/europe/serbia-students-vucic-election.html
+
+**International Students Are Turning Away From U.S. Universities**\
+`For a second year, Trump administration policies appear to be scaring away international students, disrupting the finances of the American colleges that depend on them.`\
+https://www.nytimes.com/2026/11/16/us/international-student-college-enrollment-declines.html
+
+**How to Watch the 2026 Leonids Meteor Shower**\
+`Known for bright, fast meteors with long tails, the Leonids come around every November. But the number of streaks visible per hour can be low.`\
+https://www.nytimes.com/2026/11/16/science/leonids-meteor-shower-peak.html
+
 **From the Front Page: The U.S. and the Soviet Union Establish Diplomatic Relations on Nov. 16, 1933**\
 `President Franklin D. Roosevelt and the Soviet foreign minister, Maxim Litvinov, formalized the agreement in an exchange of messages.`\
 https://www.nytimes.com/2026/11/16/learning/from-the-front-page-the-us-and-the-soviet-union-establish-diplomatic-relations-on-nov-16-1933.html
