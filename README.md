@@ -1,3 +1,11 @@
+**Tucked in a Closet, Hidden by a Coat, a Lost Work by Georgia O’Keeffe**\
+`A piece by the famed painter had been squirreled away for decades. Now it’s been found — and may sell for millions.`\
+https://www.nytimes.com/2026/11/16/nyregion/found-georgia-okeeffe-painting.html
+
+**Student News Quiz: Mississippi Senate Race, Airline Disruption, James Bond**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/11/16/learning/16studentnewsquiz-ln.html
+
 **Eric Kim Cooks His Ideal Thanksgiving**\
 `The New York Times Cooking columnist Eric Kim shares how to cook his 2026 Thanksgiving menu, a love letter to the Southern buffet, from start to finish.`\
 https://www.nytimes.com/video/dining/100000011281022/eric-kim-cooks-his-ideal-thanksgiving.html
@@ -189,8 +197,4 @@ https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
 **The Blue Wave Lifted Democrats. But Not All Progressives Rose as High.**\
 `The performance gap with moderates narrowed, but progressive candidates underperformed by enough to keep the “electability” debate alive.`\
 https://www.nytimes.com/2026/11/16/upshot/progressives-moderates-democrats-elections.html
-
-**Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
-`For years, engineers have shuffled between Tesla and SpaceX, and the companies have worked on major projects together.`\
-https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
 

@@ -1,3 +1,7 @@
+**United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
+`The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
+
 **Eric Kim Cooks His Ideal Thanksgiving**\
 `The New York Times Cooking columnist Eric Kim shares how to cook his 2026 Thanksgiving menu, a love letter to the Southern buffet, from start to finish.`\
 https://www.nytimes.com/video/dining/100000011281022/eric-kim-cooks-his-ideal-thanksgiving.html
