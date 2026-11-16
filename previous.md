@@ -1,3 +1,11 @@
+**Enrollment in N.Y.C. Schools Falls by 23,000**\
+`New York City has lost 200,000 students over the past decade, mirroring declines in districts across the United States.`\
+https://www.nytimes.com/2026/11/16/nyregion/enrollment-nyc-schools-declines.html
+
+**Madison Huang, Jensen Huang’s Daughter, Became a Powerful Force at Nvidia**\
+`Installed as her father’s de facto chief of staff, Jensen Huang’s daughter alienated top executives. Now her lingering role poses a test for interim C.E.O. Colette Kress.`\
+https://www.nytimes.com/2026/11/16/technology/nvidia-jensen-madison-huang.html
+
 **What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
 `No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
 https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
 `Also, new data paves the way for weight-loss drugs for children. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
 
-**United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
+**United Airlines Flights Resume After ‘Widespread System Outage’**\
 `The brief disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
 **Challenging Consensus, Scientist Says Epstein Autopsy Photos Show Homicide**\
 `Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
 https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
-
-**Willie Geist Is Leaving ‘Morning Joe’ After Nearly 20 Years**\
-`He will take on an expanded role at NBC News, where he has been the host of the Sunday edition of the “Today” show since 2016.`\
-https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today.html
-
-**3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
-`The man who shot the officers had barricaded himself in his apartment at the Co-op City complex, the police said. The officers were both in stable condition.`\
-https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
 

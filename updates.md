@@ -1,3 +1,15 @@
+**Enrollment in N.Y.C. Schools Falls by 23,000**\
+`New York City has lost 200,000 students over the past decade, mirroring declines in districts across the United States.`\
+https://www.nytimes.com/2026/11/16/nyregion/enrollment-nyc-schools-declines.html
+
+**Madison Huang, Jensen Huang’s Daughter, Became a Powerful Force at Nvidia**\
+`Installed as her father’s de facto chief of staff, Jensen Huang’s daughter alienated top executives. Now her lingering role poses a test for interim C.E.O. Colette Kress.`\
+https://www.nytimes.com/2026/11/16/technology/nvidia-jensen-madison-huang.html
+
+**United Airlines Flights Resume After ‘Widespread System Outage’**\
+`The brief disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
+
 **What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
 `No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
 https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
