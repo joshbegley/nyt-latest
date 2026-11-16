@@ -1,3 +1,11 @@
+**New Data Paves the Way for Weight-Loss Drugs in Children as Young as 6**\
+`Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
+https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
+
+**American Roosters Fight in the Philippines Despite U.S. Crackdown**\
+`It’s illegal in the United States to transport game fowl for fighting. But investigators say breeders are sending birds to the Philippines, where cockfighting is legal and lucrative.`\
+https://www.nytimes.com/2026/11/16/world/asia/roosters-cockfighting-philippines.html
+
 **A Superfan Has Grown Up with Sarah J. Maas**\
 `Like many a passionate reader, Sofia Patino Duque can track milestones in her life by milestone encounters with her favorite author.`\
 https://www.nytimes.com/2026/11/16/books/review/sarah-j-maas-fandom.html
@@ -78,7 +86,7 @@ https://www.nytimes.com/2026/11/16/crosswords/strands-sidekick-989.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
 https://www.nytimes.com/2026/11/16/crosswords/wordle-review-1977.html
 
-**What to Know About Trump’s Trip to Asia**\
+**Trump’s Asia Trip Will Bring Him to the Table With Xi and Putin: What to Know**\
 `President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
 https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/arts/dance/barbie-in-the-nutcracker-debbie-al
 **How the ‘Manosphere’ Escaped the Internet and Invaded Conservative Colleges**\
 `Republicans can’t afford to ignore the toxic gender politics gaining ground among young conservatives.`\
 https://www.nytimes.com/2026/11/16/opinion/misogyny-college-voting-republicans.html
-
-**Should Men Wear Turtlenecks?**\
-`A reader wonders what his wardrobe choice might say about him.`\
-https://www.nytimes.com/2026/11/16/style/men-turtlenecks-fashion.html
-
-**In Brooklyn, a Five-Year Plan Can Do Wonders**\
-`A three-bedroom apartment in Prospect Lefferts Gardens frees a woman from the obligations of homeownership and connects her with a new group of friends.`\
-https://www.nytimes.com/2026/11/16/realestate/renting-prospect-lefferts-gardens.html
 
