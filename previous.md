@@ -1,3 +1,7 @@
+**Migrant Arrivals Surge in Spain’s Canary Islands**\
+`More than 2,000 migrants reached Spain’s Canary Islands by boat over the weekend, with the highest number on Saturday, the country’s maritime rescue service said. The archipelago has experienced a surge of arrivals from West African countries since October.`\
+https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-migrants.html
+
 **Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
 `Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
 https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
@@ -122,13 +126,13 @@ https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 
-**Finally, a Vaccine for Cancer**\
-`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
-
 **What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
 `Plus, why “birdbrain” is a misnomer.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
+
+**Finally, a Vaccine for Cancer**\
+`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
 
 **NYT Strands Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**What Nithya Raman Plans to Do First as L.A. Mayor**\
-`Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
-https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
-
 **Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
 `As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
 https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
 
-**Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
-`Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
-https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
+**What Nithya Raman Plans to Do First as L.A. Mayor**\
+`Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
+https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 

@@ -1,3 +1,7 @@
+**Migrant Arrivals Surge in Spain’s Canary Islands**\
+`More than 2,000 migrants reached Spain’s Canary Islands by boat over the weekend, with the highest number on Saturday, the country’s maritime rescue service said. The archipelago has experienced a surge of arrivals from West African countries since October.`\
+https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-migrants.html
+
 **Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
 `Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
 https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
