@@ -1,3 +1,7 @@
+**10 Days That Changed the World**\
+`There have been 63,977 days since the New York Times began publishing. We chose the most important ones. <strong></strong>`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
+
 **Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
 `The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html

@@ -58,7 +58,7 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammo
 `With ‘On the Origin of Species,’ Charles Darwin kicked off a battle between science and religion that would define the century to come.<strong></strong>`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/charles-darwin-origin-species-evolution.html
 
-**10 Days That Changed the World in the Past 175 Years**\
+**10 Days That Changed the World**\
 `There have been 63,977 days since the New York Times began publishing. We chose the most important ones. <strong></strong>`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
 

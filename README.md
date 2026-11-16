@@ -1,3 +1,7 @@
+**Why Robert Pattinson Could Be a Great James Bond**\
+`Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
+https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
+
 **Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
 `The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/dining/put-acorn-squash-in-your-mac-and-chees
 **Carbon Emissions of Biggest U.S. Data Centers Already Rival Entire Countries, Study Reveals**\
 `Harvard researchers calculated emissions for 403 American data centers. It wasn’t easy.`\
 https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-carbon-emissions.html
-
-**2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
-`Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
-https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
 
