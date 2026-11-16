@@ -1,3 +1,7 @@
+**Pilots Kept Contact With Controllers During Nationwide Halt to Flights**\
+`Pilots were generally able to maintain contact with air traffic controllers and airline staff on the ground despite an outage that caused a nearly five-hour halt to departures.`\
+https://www.nytimes.com/2026/11/16/business/faa-ground-stop-pilots-radio-controllers.html
+
 **Enrollment in N.Y.C. Schools Falls by 23,000**\
 `New York City has lost 200,000 students over the past decade, mirroring declines in districts across the United States.`\
 https://www.nytimes.com/2026/11/16/nyregion/enrollment-nyc-schools-declines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
 **Flights Grounded: Who Is to Blame?**\
 `Readers cite mismanagement and ill-advised cuts by the Trump administration for the air travel breakdown on Friday.`\
 https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
-
-**Challenging Consensus, Scientist Says Epstein Autopsy Photos Show Homicide**\
-`Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
-https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
 

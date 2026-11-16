@@ -1,3 +1,7 @@
+**Pilots Kept Contact With Controllers During Nationwide Halt to Flights**\
+`Pilots were generally able to maintain contact with air traffic controllers and airline staff on the ground despite an outage that caused a nearly five-hour halt to departures.`\
+https://www.nytimes.com/2026/11/16/business/faa-ground-stop-pilots-radio-controllers.html
+
 **Enrollment in N.Y.C. Schools Falls by 23,000**\
 `New York City has lost 200,000 students over the past decade, mirroring declines in districts across the United States.`\
 https://www.nytimes.com/2026/11/16/nyregion/enrollment-nyc-schools-declines.html
