@@ -1,3 +1,7 @@
+**Person of Interest Detained in Illinois Bomb Case, Authorities Say**\
+`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
+https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
+
 **Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
 `As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/books/national-book-award-fiction-readers-vot
 **A Classic Car Show From Paris Aims to Turn Heads in Manhattan**\
 `Retromobile will feature vehicles from Jerry Seinfeld and Billy Joel and a parade of famous models from bygone eras — and some newer classics, too.`\
 https://www.nytimes.com/2026/11/16/business/retromobile-classic-car-show-nyc.html
-
-**100 Years Ago, NBC’s First Network Radio Broadcast Aired**\
-`The NBC show was transmitted from a ballroom on Fifth Avenue, laying the groundwork for the age of modern media.`\
-https://www.nytimes.com/2026/11/16/nyregion/nbc-first-radio-broadcast-nationwide.html
 
