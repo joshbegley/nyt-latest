@@ -1,3 +1,7 @@
+**Miguel Ángel Félix Gallardo, Mexican Drug Lord, Dies in Prison**\
+`Miguel Ángel Félix Gallardo, who helped build the foundations of modern-day drug empires, was the subject of a major U.S. manhunt for his role in the murder of a D.E.A. agent.`\
+https://www.nytimes.com/2026/11/15/world/americas/felix-gallardo-mexico-dead.html
+
 **A Republican Party That’s Learned Nothing**\
 `Defeating MAGA is only half done.`\
 https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
