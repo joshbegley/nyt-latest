@@ -1,3 +1,11 @@
+**Is Jensen Huang Plotting a Comeback?**\
+`Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
+https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
+
+**The Park Avenue Penthouse Owned by Clive Davis Is Listed at $11 Million**\
+`The music impresario, who died in June, lived for decades at the Ritz Tower. Also, Josh Hart of the Knicks re-lists his Florida home.`\
+https://www.nytimes.com/2026/11/16/realestate/clive-davis-penthouse-park-avenue.html
+
 **Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
 `Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
 https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html

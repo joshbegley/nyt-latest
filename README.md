@@ -1,3 +1,7 @@
+**Grammy Nominations 2027: See the Full List**\
+`The artists, albums and songs up for honors at the 69th annual ceremony were announced Monday. The show will be held on Feb. 7 in Los Angeles and air on ABC and Disney+ after decades on CBS.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
+
 **Is Jensen Huang Plotting a Comeback?**\
 `Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
 https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
@@ -26,13 +30,13 @@ https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 
-**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
-`Plus, why “birdbrain” is a misnomer.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
-
 **Finally, a Vaccine for Cancer**\
 `An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
+
+**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
+`Plus, why “birdbrain” is a misnomer.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
 
 **NYT Strands Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
@@ -74,7 +78,7 @@ https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
 `A couple realized their dream of buying an old stone house amid French vineyards. The only issue: It required patience, creativity and work. A lot of it.`\
 https://www.nytimes.com/2026/11/16/realestate/cottage-renovation-burgundy-france.html
 
-**Relentless Attacks on Ukraine’s Power Grid Threaten to Make Cities Unlivable**\
+**Winter Nightmare Looms Early in Ukraine as Russia Strikes Relentlessly**\
 `Even as it talks peace, Russia has opened a bombing campaign intended to strip Kyiv and other cities of heat, running water and sanitation this winter.`\
 https://www.nytimes.com/2026/11/16/world/europe/russia-ukraine-winter-campaign.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/learning/word-of-the-day-lackadaisically.html
 **A Flurry of Thanksgiving Travel Deals for Vacation Shoppers**\
 `The Thanksgiving season ushers in sales across the travel industry, from international trips to luxury resorts. Here is a sampling.`\
 https://www.nytimes.com/2026/11/16/travel/thanksgiving-season-travel-deals.html
-
-**Milton Glaser’s Chelsea Apartment Is for Sale**\
-`Milton and Shirley Glaser filled their apartment with art and collectibles. With its ample storage, so could its next owner.`\
-https://www.nytimes.com/2026/11/16/realestate/milton-glasers-chelsea-apartment-is-for-sale.html
 
