@@ -2,7 +2,7 @@
 `The justices left in place a lower-court decision to block the administration from cutting millions in grants to University of California researchers over perceived ties to diversity initiatives.`\
 https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of-california.html
 
-**Infectious Disease Scientist to Lead N.I.A.I.D. Amid Turmoil**\
+**John H. Powers III to Lead NIAID Amid Turmoil**\
 `Dr. John H. Powers III was appointed director of the National Institute of Allergy and Infectious Diseases, a powerful post held for decades by Dr. Anthony Fauci.`\
 https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html
 
