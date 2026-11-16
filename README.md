@@ -1,3 +1,7 @@
+**How the Wannsee Conference Changed the World**\
+`At the Wannsee Conference, the Nazis planned the Final Solution.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
+
 **How Thomas Edison Changed the World**\
 `When Thomas Edison first lit up the Financial District, it opened up the night and birthed the modern technological age.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/electric-grid-edison-light-power.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
 **Person in Custody in Illinois Bomb Case, Officials Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
-
-**Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
-`As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
-https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
 
