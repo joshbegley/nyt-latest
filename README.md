@@ -95,7 +95,7 @@ https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
 https://www.nytimes.com/2026/11/15/us/politics/democrats-denver-gathering-takeaways.html
 
 **Megaspeed Says Alice Huang Left Company in August 2025**\
-`The Singaporean company’s statement added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+`The Singaporean company’s statement was its first to address the status of Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
 https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
 
 **Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
