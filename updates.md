@@ -1,5 +1,9 @@
 **United Halts Flights as It Addresses ‘Widespread System Outage’**\
 `The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
+
+**United Halts Flights as It Addresses ‘Widespread System Outage’**\
+`The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-halts-flights-as-it-addresses-widespread-system-outage.html
 
 **Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
