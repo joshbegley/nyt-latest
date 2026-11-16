@@ -1,3 +1,15 @@
+**Challenging Consensus, Scientist Says Photos Show Epstein Was Killed**\
+`Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
+https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
+
+**Willie Geist Is Leaving ‘Morning Joe’ After Nearly 20 Years**\
+`He will take on an expanded role at NBC News, where he has been the host of the Sunday edition of the “Today” show since 2016.`\
+https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today.html
+
+**Person Detained in Illinois Bomb Case, Official Says**\
+`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
+https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
+
 **3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
 `The officers were responding to a request for a wellness check when they were shot by a person who is barricaded in an apartment in the Co-op City complex.`\
 https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
