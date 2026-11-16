@@ -1,3 +1,7 @@
+**Person of Interest Detained in Illinois Bomb Case, Authorities Say**\
+`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
+https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
+
 **Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
 `As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
@@ -150,13 +154,13 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
-`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
-https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
-
 **What Nithya Raman Plans to Do First as L.A. Mayor**\
 `Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
+
+**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
+`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
+https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/books/national-book-award-fiction-readers-vot
 **A Classic Car Show From Paris Aims to Turn Heads in Manhattan**\
 `Retromobile will feature vehicles from Jerry Seinfeld and Billy Joel and a parade of famous models from bygone eras — and some newer classics, too.`\
 https://www.nytimes.com/2026/11/16/business/retromobile-classic-car-show-nyc.html
-
-**100 Years Ago, NBC’s First Network Radio Broadcast Aired**\
-`The NBC show was transmitted from a ballroom on Fifth Avenue, laying the groundwork for the age of modern media.`\
-https://www.nytimes.com/2026/11/16/nyregion/nbc-first-radio-broadcast-nationwide.html
 
