@@ -1,3 +1,7 @@
+**South Korea to Examine How K-Pop Industry Treats Underage Performers**\
+`The announcement came after a New York Times investigation about the restrictive contracts of the group NewJeans, signed when its members were 14 to 17.`\
+https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
+
 **NYT Connections Answers for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attack
 **NYT Spelling Bee Answers for November 16, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/16/crosswords/spelling-bee-forum.html
-
-**The New Congress Must Rein in Trump’s Dangerous China Policy**\
-`Trump’s accommodating approach toward China has emboldened Beijing, but the new Congress has a rare chance to change course.`\
-https://www.nytimes.com/2026/11/16/opinion/china-us-trump-asia-military.html
 
