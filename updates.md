@@ -1,3 +1,7 @@
+**South Korea to Examine How K-Pop Industry Treats Underage Performers**\
+`The announcement came after a New York Times investigation about the restrictive contracts of the group NewJeans, signed when its members were 14 to 17.`\
+https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
+
 **NYT Connections Answers for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
