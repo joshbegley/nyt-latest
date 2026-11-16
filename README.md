@@ -1,3 +1,11 @@
+**Challenging Consensus, Scientist Says Photos Show Epstein Was Killed**\
+`Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
+https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
+
+**Willie Geist Is Leaving ‘Morning Joe’ After Nearly 20 Years**\
+`He will take on an expanded role at NBC News, where he has been the host of the Sunday edition of the “Today” show since 2016.`\
+https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today.html
+
 **3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
 `The officers were responding to a request for a wellness check when they were shot by a person who is barricaded in an apartment in the Co-op City complex.`\
 https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
@@ -58,8 +66,8 @@ https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.h
 `The handmade decoration can brighten up a door or be used as a centerpiece on a holiday table.`\
 https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
 
-**Person Detained in Illinois Bomb Case, Authorities Say**\
-`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
+**Person Detained in Illinois Bomb Case, Official Says**\
+`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
 
 **Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/obituaries/howard-lyman-dead.html
 **Would You Want to Go to a Hip-Hop School?**\
 `A new high school in the South Bronx is using hip-hop culture to teach in a borough that has a long record of educational failure.`\
 https://www.nytimes.com/2026/11/16/learning/would-you-want-to-go-to-a-hip-hop-school.html
-
-**As Phillips Scales Back, the ‘Big Two’ Auction Houses Seem to Stand Alone**\
-`Phillips was always an underdog in the auction world, but it had ambition to compete with Christie’s and Sotheby’s. Then the economics changed.`\
-https://www.nytimes.com/2026/11/16/arts/design/phillips-sothebys-christies-art-auction-competition.html
-
-**Judge Sets Spring Retrial for Lindsay Clancy**\
-`At a hearing on Monday, prosecutors did not say whether they would plan to retry Ms. Clancy on first-degree murder charges, lesser charges or at all.`\
-https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
 
