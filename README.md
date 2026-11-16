@@ -106,13 +106,13 @@ https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
 
-**Defeating MAGA Is Only Half Done**\
-`The G.O.P. has not learned its lesson.`\
-https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
-
 **The Risk Democrats Need to Take**\
 `Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
 https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
+
+**A Republican Party That’s Learned Nothing**\
+`Defeating MAGA is only half done.`\
+https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
 
 **The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
 `13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
