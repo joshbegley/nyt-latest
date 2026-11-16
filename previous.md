@@ -1,3 +1,7 @@
+**From the Front Page: The U.S. and the Soviet Union Establish Diplomatic Relations on Nov. 16, 1933**\
+`President Franklin D. Roosevelt and the Soviet foreign minister, Maxim Litvinov, formalized the agreement in an exchange of messages.`\
+https://www.nytimes.com/2026/11/16/learning/from-the-front-page-the-us-and-the-soviet-union-establish-diplomatic-relations-on-nov-16-1933.html
+
 **‘Downstate’ Review: How Much Should Sex Offenders Be Punished?**\
 `The nausea-inducing, adrenaline-pumping moral drama is revived by the director Joe Mantello at the Booth Theater.`\
 https://www.nytimes.com/2026/11/15/theater/downstate-review-broadway-freeman-sadoski.html
@@ -122,13 +126,13 @@ https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
 
-**The Risk Democrats Need to Take**\
-`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
-https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
-
 **A Republican Party That’s Learned Nothing**\
 `Defeating MAGA is only half done.`\
 https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
+
+**The Risk Democrats Need to Take**\
+`Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
+https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
 
 **The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
 `13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/us/politics/federal-employees-democratic-cong
 **After Midterms Triumph, Democrats Look Quickly and Eagerly Ahead to 2028**\
 `Politicians, donors and campaign strategists are already imagining a large and contentious field of presidential contenders.`\
 https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candidates.html
-
-**The Reward for Black Women’s Work in Georgia: Leaders Who Look Like Them**\
-`Diligent ground-level efforts by Black women helped make Democrats competitive again in Georgia. Now they’ll hold seven of the top eight elected leadership roles in the state.`\
-https://www.nytimes.com/2026/11/15/us/black-women-georgia-leaders.html
 

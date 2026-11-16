@@ -1,3 +1,7 @@
+**From the Front Page: The U.S. and the Soviet Union Establish Diplomatic Relations on Nov. 16, 1933**\
+`President Franklin D. Roosevelt and the Soviet foreign minister, Maxim Litvinov, formalized the agreement in an exchange of messages.`\
+https://www.nytimes.com/2026/11/16/learning/from-the-front-page-the-us-and-the-soviet-union-establish-diplomatic-relations-on-nov-16-1933.html
+
 **‘Downstate’ Review: How Much Should Sex Offenders Be Punished?**\
 `The nausea-inducing, adrenaline-pumping moral drama is revived by the director Joe Mantello at the Booth Theater.`\
 https://www.nytimes.com/2026/11/15/theater/downstate-review-broadway-freeman-sadoski.html
