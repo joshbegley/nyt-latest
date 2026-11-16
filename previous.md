@@ -1,3 +1,7 @@
+**The Death of ‘Keep 1.5 Alive’**\
+`Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
+https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
+
 **The Local: Why Minnesota is a literary hotbed**\
 `Also, “A Christmas Carol” opens at the Guthrie.`\
 https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
 **Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
 `The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
 https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
-
-**Nationwide Ground Stop Recovery Continues Ahead of Thanksgiving Travel**\
-`Experts said flight schedules were expected to normalize before the holiday next week.`\
-https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
 

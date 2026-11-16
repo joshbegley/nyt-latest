@@ -1,3 +1,7 @@
+**Republicans Can’t Rely on Trump Voters Anymore**\
+`Tim Carney, a senior political columnist at The Washington Examiner, argues that Trump’s voters never became reliably conservative and Republican. On “The Opinions,” he explains why “there’s no juice left to squeeze from MAGA” as Trump’s second term comes to an end.`\
+https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-trump-voters-anymore.html
+
 **The Death of ‘Keep 1.5 Alive’**\
 `Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
 https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
 **Is Jensen Huang Plotting a Comeback?**\
 `Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
 https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
-
-**Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
-`The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
-https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
 

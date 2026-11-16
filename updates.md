@@ -1,3 +1,7 @@
+**The Death of ‘Keep 1.5 Alive’**\
+`Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
+https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
+
 **The Local: Why Minnesota is a literary hotbed**\
 `Also, “A Christmas Carol” opens at the Guthrie.`\
 https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
