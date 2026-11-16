@@ -1,3 +1,11 @@
+**Want a Table at the Buzziest New Restaurant? Try Getting Past the Bouncer.**\
+`No, you can’t talk to the host.`\
+https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
+
+**The Blue Wave Lifted Democrats. But Not All Progressives Rose as High.**\
+`The performance gap with moderates narrowed, but progressive candidates underperformed by enough to keep the “electability” debate alive.`\
+https://www.nytimes.com/2026/11/16/upshot/progressives-moderates-democrats-elections.html
+
 **Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
 `For years, engineers have shuffled between Tesla and SpaceX and the companies have worked on major projects together.`\
 https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
