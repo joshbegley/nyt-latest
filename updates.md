@@ -1,3 +1,19 @@
+**Judge Sets New March Trial Date for Lindsay Clancy**\
+`Judge William Sullivan set a new trial date of March 29 for Lindsay Clancy, whose first trial for the deaths of her three children ended in a deadlocked jury.`\
+https://www.nytimes.com/video/us/100000011287264/clancy-trial-date.html
+
+**Cornell University’s President Vows Fraternity Review in Wake of No Confidence Vote**\
+`President Michael I. Kotlikoff announced further steps in response to a former student’s lawsuit alleging a gang rape at a frat house.`\
+https://www.nytimes.com/2026/11/16/nyregion/cornell-president-kotlikoff-rape-lawsuit.html
+
+**California Sues OpenAI Over A.I. Safety Issues**\
+`The state attorney general filed a lawsuit accusing the company of failing to put appropriate safeguards on its artificial intelligence and putting the public at risk.`\
+https://www.nytimes.com/2026/11/16/technology/california-openai-ai-safety.html
+
+**Challenging Consensus, Scientist Says Epstein Autopsy Photos Show Homicide**\
+`Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
+https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
+
 **Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
 `Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
 https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
