@@ -1,4 +1,4 @@
-**Person of Interest Detained in Illinois Bomb Case, Authorities Say**\
+**Person Detained in Illinois Bomb Case, Authorities Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated a bomb at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
 
