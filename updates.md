@@ -1,3 +1,7 @@
+**A Year On, Mark Carney of Canada Returns to China a Political Star**\
+`Canada’s leader is courting Europe, but the bigger payoff might be in Asia, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
+https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
+
 **Attacks on Ukraine’s Power Grid Leave Cities in Darkness**\
 `Russia has opened a bombing campaign aimed at stripping cities in Ukraine of heat, running water and sanitation this winter.`\
 https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attacks-power-grid.html
