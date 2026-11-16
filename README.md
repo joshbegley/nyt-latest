@@ -1,3 +1,11 @@
+**The Local: Why Minnesota is a literary hotbed**\
+`Also, “A Christmas Carol” opens at the Guthrie.`\
+https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
+
+**Austria May Strip Former Foreign Minister Karin Kneissl of Citizenship**\
+`The onetime foreign minister, Karin Kneissl, has lauded her new home for its “genuine freedom” and used it as a perch to attack her old one.`\
+https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenship.html
+
 **Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
 `A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
 https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdr
 **Nationwide Ground Stop Recovery Continues Ahead of Thanksgiving Travel**\
 `Experts said flight schedules were expected to normalize before the holiday next week.`\
 https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
-
-**‘Steering Failure’ Likely Caused Tanker’s Collision With Riverboat, N.T.S.B. Says**\
-`A tanker struck a docked passenger ship in New Orleans on Friday, causing it to capsize. Investigators emphasized that their findings were preliminary.`\
-https://www.nytimes.com/2026/11/16/us/new-orleans-cruise-ship-steering-failure.html
-
-**Taking Credit**\
-`My colleagues look at the debate inside the Democratic Party about which faction can take credit for the midterm romp.`\
-https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
 
