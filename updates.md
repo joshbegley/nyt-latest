@@ -1,3 +1,11 @@
+**United Halts Flights as It Addresses ‘Widespread System Outage’**\
+`The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+https://www.nytimes.com/2026/11/16/business/united-halts-flights-as-it-addresses-widespread-system-outage.html
+
+**Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
+`The court filing confirms that the Trump administration has sought on two parallel fronts to identify the sources for an article as part of one overarching investigation.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-linkedin-data-nyt-sources.html
+
 **Why Robert Pattinson Could Be a Great James Bond**\
 `Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
 https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
