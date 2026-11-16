@@ -1,3 +1,11 @@
+**Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
+`Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
+https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
+
+**Five European Countries Plan to Deport Migrants to Rwanda**\
+`Germany, Austria, the Netherlands, Greece and Denmark are seeking to establish a hub for rejected asylum seekers. Here’s what to know about their effort.`\
+https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
+
 **Influencer University**\
 `We look inside the life of a sorority influencer.`\
 https://www.nytimes.com/2026/11/16/briefing/influencer-university.html

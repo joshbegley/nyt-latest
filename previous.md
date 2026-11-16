@@ -1,3 +1,7 @@
+**Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
+`Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
+https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
+
 **Influencer University**\
 `We look inside the life of a sorority influencer.`\
 https://www.nytimes.com/2026/11/16/briefing/influencer-university.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
 
 **Five European Countries Plan to Deport Migrants to Rwanda**\
-`Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
+`Germany, Austria, the Netherlands, Greece and Denmark are seeking to establish a hub for rejected asylum seekers. Here’s what to know about their effort.`\
 https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
 
 **How to Make a Fall Wreath From Foraged Leaves and Twigs**\
@@ -182,19 +186,15 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
-`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
-https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
-
 **What Nithya Raman Plans to Do First as L.A. Mayor**\
 `Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 
+**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
+`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
+https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
+
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
 https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
-
-**Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
-`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
-https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
 
