@@ -1,3 +1,7 @@
+**An Intriguing Approach to Slow Alzheimer’s Shows Mixed Results**\
+`The device, a headset delivering light and sound, is based on the theory that audiovisual stimulation can evoke brainwave responses that might help preserve neurological function.`\
+https://www.nytimes.com/2026/11/16/well/cognito-spectris-alzheimers-headset-device.html
+
 **The Walks That Fire Their Imaginations**\
 `Philip Lim, Kengo Kuma, Joy Harjo and others on their favorite places to amble, from Reykjavík to the Rio Grande.`\
 https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
