@@ -1,3 +1,7 @@
+**The Joyful Nerdiness of a 66-Hour, Nonstop Reading of ‘The Power Broker’**\
+`New Yorkers read the 1,162-page book around the clock for four days, reflecting on the legacy of Robert Moses and celebrating its author, Robert Caro, who read the final pages.`\
+https://www.nytimes.com/2026/11/15/nyregion/power-broker-marathon-reading-robert-moses-caro.html
+
 **Research Stalls for a Year Into a Cancer That Kills Children in a Year**\
 `For 27 years, the Pediatric Brain Tumor Consortium worked to save kids with brain cancer. But just before 5-year-old Ryleigh Schecter was diagnosed, the government shut it down.`\
 https://www.nytimes.com/2026/11/15/well/research-stalls-for-a-year-into-a-cancer-that-kills-children-in-a-year.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/us/sexual-assault-lawsuit-texas-christian-uni
 **Book Review: ‘Stations,’ by Louise Kennedy**\
 `A young Irishwoman in London tests the limits of commitment in Louise Kennedy’s “Stations.”`\
 https://www.nytimes.com/2026/11/15/books/review/stations-louise-kennedy.html
-
-**‘Birdbrain’ Is a Misnomer. Crows Make Decisions Faster Than We Can**\
-`In a recent experiment, crows could process and respond to visual cues at twice the speed as humans and monkeys.`\
-https://www.nytimes.com/2026/11/15/science/birdbrain-crows-birds-research-decision.html
 
