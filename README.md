@@ -1,3 +1,31 @@
+**How the 15th Amendment Changed the World**\
+`The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html
+
+**How the Internet's Predecessor ARPANET Changed the World**\
+`With the invention of ARPANET, connectivity between computers would reshape every aspect of modern society.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/arpanet-internet-computers-network.html
+
+**How the Birth Control Pill Changed the World**\
+`The pill gave women autonomy — and created a whole new type of reactionary politics.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/birth-control-pill-women-liberation.html
+
+**Quiz. James Bond Quiz.**\
+`Robert Pattinson will be the next to don 007’s tuxedo. Let’s test your knowledge about the James Bond series.`\
+https://www.nytimes.com/quiz/2026/11/16/arts/james-bond-quiz.html
+
+**How the Atomic Bomb on Hiroshima Changed the World**\
+`The day the U.S. dropped an atomic bomb on Hiroshima, a new era of existential dread was born in the ashes.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/hiroshima-atomic-bomb-nuclear-war.html
+
+**How the Bolshevik Revolution Changed the World**\
+`The Bolshevik Revolution set the terms for a century-long conflict between capitalism and socialism.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/bolshevik-revolution-russia-communism-cold-war.html
+
+**Bessent Takes Hawkish Turn in White House Debate on China**\
+`The Treasury secretary who sought to de-escalate tariff wars is taking a tougher approach to exports of sensitive U.S. technology.`\
+https://www.nytimes.com/2026/11/16/us/politics/bessent-lutnick-china.html
+
 **How the Haber-Bosch Process Changed the World**\
 `The Haber-Bosch process is the reason three-to-four billion of us are alive today.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammonia-fertilizer.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011250099/how-obamacare-premiums
 **There’s a New James Bond, Again. How Did the Last Ones Fare?**\
 `The casting of 007 inevitably stokes debate, and the immediate reaction doesn’t necessarily match the eventual reviews.`\
 https://www.nytimes.com/2026/11/16/movies/james-bond-actors-reviews.html
-
-**Robert Pattinson Named as the Next James Bond**\
-`The announcement ends years of speculation over who would take over the role after Daniel Craig’s five-film run.`\
-https://www.nytimes.com/2026/11/16/movies/james-bond-robert-pattinson.html
-
-**New Data Paves the Way for Weight-Loss Drugs for Young Children, but Questions Remain**\
-`Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
-https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
-
-**American Roosters Fight in the Philippines Despite U.S. Crackdown**\
-`It’s illegal in the United States to transport game fowl for fighting. But investigators say breeders are sending birds to the Philippines, where cockfighting is legal and lucrative.`\
-https://www.nytimes.com/2026/11/16/world/asia/roosters-cockfighting-philippines.html
-
-**A Superfan Has Grown Up with Sarah J. Maas**\
-`Like many a passionate reader, Sofia Patino Duque can track milestones in her life by milestone encounters with her favorite author.`\
-https://www.nytimes.com/2026/11/16/books/review/sarah-j-maas-fandom.html
-
-**U.N. Starts Uncertain Effort to Regulate Lethal Autonomous Weapons**\
-`Delegates met in Geneva to discuss guardrails for such systems even as their development grows. Russia and the United States have resisted the efforts.`\
-https://www.nytimes.com/2026/11/16/world/europe/un-killer-robots-autonomous-weapons.html
-
-**At the 2026 Governors Awards, Glenn Close and Ridley Scott Get Honorary Oscars**\
-`The co-director of “You Can See Everything” was the man of the hour at the honorary Oscars. The actual recipients included Glenn Close and Ridley Scott.`\
-https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ridley-scott.html
-
-**Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
-`A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
-https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html
 
