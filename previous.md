@@ -1,3 +1,19 @@
+**Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
+`As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
+
+**How Obamacare Premiums Are Rising**\
+`Margot Sanger-Katz, our reporter on health care policy, explains why Affordable Care Act plans are becoming more costly, and who will face the steepest cost increases.`\
+https://www.nytimes.com/video/us/politics/100000011250099/how-obamacare-premiums-are-rising.html
+
+**There’s a New James Bond, Again. How Did the Last Ones Fare?**\
+`The casting of 007 inevitably stokes debate, and the immediate reaction doesn’t necessarily match the eventual reviews.`\
+https://www.nytimes.com/2026/11/16/movies/james-bond-actors-reviews.html
+
+**Robert Pattinson Named as the Next James Bond**\
+`The announcement ends years of speculation over who would take over the role after Daniel Craig’s five-film run.`\
+https://www.nytimes.com/2026/11/16/movies/james-bond-robert-pattinson.html
+
 **New Data Paves the Way for Weight-Loss Drugs in Children as Young as 6**\
 `Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
 https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/16/business/retromobile-classic-car-show-nyc.htm
 **100 Years Ago, NBC’s First Network Radio Broadcast Aired**\
 `The NBC show was transmitted from a ballroom on Fifth Avenue, laying the groundwork for the age of modern media.`\
 https://www.nytimes.com/2026/11/16/nyregion/nbc-first-radio-broadcast-nationwide.html
-
-**Apple Was Late to the Video Podcast Boom. Now It’s Trying to Catch Up.**\
-`They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
-https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
-
-**The Eat-What-You-Kill System That Rules Big Law**\
-`The free agent system is taking over big law firms.`\
-https://www.nytimes.com/2026/11/16/opinion/big-law-firms-competition.html
-
-**The Ballerina Barbieverse Expands With a New ‘Nutcracker’**\
-`Malibu and Brooklyn Barbie dance their squabbles away in Debbie Allen’s choreography, which goes way beyond ballet.`\
-https://www.nytimes.com/2026/11/16/arts/dance/barbie-in-the-nutcracker-debbie-allen.html
-
-**How the ‘Manosphere’ Escaped the Internet and Invaded Conservative Colleges**\
-`Republicans can’t afford to ignore the toxic gender politics gaining ground among young conservatives.`\
-https://www.nytimes.com/2026/11/16/opinion/misogyny-college-voting-republicans.html
 
