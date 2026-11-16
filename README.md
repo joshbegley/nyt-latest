@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.ht
 https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today.html
 
 **3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
-`The officers were responding to a request for a wellness check when they were shot by a person who is barricaded in an apartment in the Co-op City complex.`\
+`The man who shot the officers had barricaded himself in his apartment at the Co-op City complex, the police said. The officers were both in stable condition.`\
 https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
 
 **The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
