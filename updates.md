@@ -1,3 +1,11 @@
+**Eric Kim Cooks His Ideal Thanksgiving**\
+`The New York Times Cooking columnist Eric Kim shares how to cook his 2026 Thanksgiving menu, a love letter to the Southern buffet, from start to finish.`\
+https://www.nytimes.com/video/dining/100000011281022/eric-kim-cooks-his-ideal-thanksgiving.html
+
+**Greek Lemon Potatoes**\
+`For the dreamiest roasted potatoes — with creamy insides and very crispy outsides — follow this classic Greek method of roasting peeled potatoes in equal parts olive oil, lemon juice and chicken stock.`\
+https://www.nytimes.com/video/dining/100000011288529/greek-lemon-potatoes.html
+
 **An Intriguing Approach to Slow Alzheimer’s Shows Mixed Results**\
 `The device, a headset delivering light and sound, is based on the theory that audiovisual stimulation can evoke brainwave responses that might help preserve neurological function.`\
 https://www.nytimes.com/2026/11/16/well/cognito-spectris-alzheimers-headset-device.html

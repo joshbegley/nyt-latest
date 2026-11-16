@@ -1,3 +1,11 @@
+**Eric Kim Cooks His Ideal Thanksgiving**\
+`The New York Times Cooking columnist Eric Kim shares how to cook his 2026 Thanksgiving menu, a love letter to the Southern buffet, from start to finish.`\
+https://www.nytimes.com/video/dining/100000011281022/eric-kim-cooks-his-ideal-thanksgiving.html
+
+**Greek Lemon Potatoes**\
+`For the dreamiest roasted potatoes — with creamy insides and very crispy outsides — follow this classic Greek method of roasting peeled potatoes in equal parts olive oil, lemon juice and chicken stock.`\
+https://www.nytimes.com/video/dining/100000011288529/greek-lemon-potatoes.html
+
 **An Intriguing Approach to Slow Alzheimer’s Shows Mixed Results**\
 `The device, a headset delivering light and sound, is based on the theory that audiovisual stimulation can evoke brainwave responses that might help preserve neurological function.`\
 https://www.nytimes.com/2026/11/16/well/cognito-spectris-alzheimers-headset-device.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/upshot/progressives-moderates-democrats-elect
 **Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
 `For years, engineers have shuffled between Tesla and SpaceX, and the companies have worked on major projects together.`\
 https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
-
-**Elon Musk Dreams of Merging Tesla and SpaceX in Move Toward Tech Supremacy**\
-`The history of the sprawling corporate combinations is rich, colorful and mostly disappointing. Could a SpaceX-Tesla merger be a success story?`\
-https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex-conglomerate.html
-
-**Migrant Arrivals Surge in Spain’s Canary Islands**\
-`More than 2,000 migrants reached Spain’s Canary Islands by boat over the weekend, with the highest number on Saturday, the country’s maritime rescue service said. The archipelago has experienced a surge of arrivals from West African countries since October.`\
-https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-migrants.html
 

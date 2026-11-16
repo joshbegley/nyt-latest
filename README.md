@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
 `Also, new data paves the way for weight-loss drugs for children. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
 
-**United Halts Flights as It Addresses ‘Widespread System Outage’**\
+**United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
 `The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
 
