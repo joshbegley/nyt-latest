@@ -1,4 +1,8 @@
-**Chase Bank Reports Technical Issue Disrupting Transactions**\
+**Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
+`A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
+https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
+
+**Chase Bank Transactions Disrupted by ‘Technical Issue’ Amid Outage Reports**\
 `Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
 https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/us/new-orleans-cruise-ship-steering-failure.h
 **Taking Credit**\
 `My colleagues look at the debate inside the Democratic Party about which faction can take credit for the midterm romp.`\
 https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
-
-**South Korea to Examine How K-Pop Industry Treats Underage Performers**\
-`The announcement came after a New York Times investigation about the restrictive contracts of the group NewJeans, signed when its members were 14 to 17.`\
-https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 

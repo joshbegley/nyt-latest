@@ -1,3 +1,11 @@
+**Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
+`A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
+https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
+
+**Chase Bank Transactions Disrupted by ‘Technical Issue’ Amid Outage Reports**\
+`Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
+https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
+
 **Chase Bank Reports Technical Issue Disrupting Transactions**\
 `Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
 https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
