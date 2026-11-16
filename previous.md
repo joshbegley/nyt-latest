@@ -1,3 +1,7 @@
+**How a Pennsylvania Teacher Builds Skills With Our Student Opinion Feature**\
+`By responding to online forums, students practice narrative and argumentative writing; participate in civic discourse; and find an international audience for their work.`\
+https://www.nytimes.com/2026/11/16/learning/how-a-pennsylvania-teacher-builds-skills-with-our-student-opinion-feature.html
+
 **Attacks on Ukraine’s Power Grid Leave Cities in Darkness**\
 `Russia has opened a bombing campaign aimed at stripping cities in Ukraine of heat, running water and sanitation this winter.`\
 https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attacks-power-grid.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/opinion/anthropic-ipo-ai-investors.html
 **NYT Strands Hints for November 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
 https://www.nytimes.com/2026/11/15/crosswords/strands-sidekick-988.html
-
-**Today’s Wordle Hints for November 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
-https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
 
