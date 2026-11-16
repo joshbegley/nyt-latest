@@ -1,3 +1,19 @@
+**Influencer University**\
+`We look inside the life of a sorority influencer.`\
+https://www.nytimes.com/2026/11/16/briefing/influencer-university.html
+
+**Do You Recognize These Characters Who Have Appeared in Multiple Novels?**\
+`Certain authors are adept at slipping familiar names into different books. See how many you know in this short quiz.`\
+https://www.nytimes.com/quiz/2026/11/16/bookreview/recurring-characters-quiz.html
+
+**Put Acorn Squash in Your Mac and Cheese**\
+`Bonus: You can cover and refrigerate this supremely cheesy dish for up to three days.`\
+https://www.nytimes.com/2026/11/16/dining/put-acorn-squash-in-your-mac-and-cheese.html
+
+**Carbon Emissions of Biggest U.S. Data Centers Already Rival Entire Countries, Study Reveals**\
+`Harvard researchers calculated emissions for 403 American data centers. It wasn’t easy.`\
+https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-carbon-emissions.html
+
 **2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
 `Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
 **Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
 `Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
 https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
-
-**Affordability or Antifascism Is a False Choice**\
-`A democratic revolt against the capture and corruption of politics by moneyed interests is more than just a call for lower living costs.`\
-https://www.nytimes.com/2026/11/16/opinion/affordability-midterms-voters.html
-
-**The Park Avenue Penthouse Owned by Clive Davis Is Listed at $11 Million**\
-`The music impresario, who died in June, lived for decades at the Ritz Tower. Also, Josh Hart of the Knicks re-lists his Florida home.`\
-https://www.nytimes.com/2026/11/16/realestate/clive-davis-penthouse-park-avenue.html
-
-**Permitting Bill Would Charge Data Centers Billions for Power**\
-`The permitting bill could make it easier to build data centers for A.I. but a novel provision would also force data centers to pay much more for power.`\
-https://www.nytimes.com/2026/11/16/climate/permitting-bill-data-centers-electricity-rates.html
-
-**Democrats Will Wield Enormous Power in Statehouses. What Will They Do?**\
-`While attention has focused on the incoming Democratic Congress, the real change could happen in state capitals where Democrats will control a dozen new statehouse chambers.`\
-https://www.nytimes.com/2026/11/16/us/politics/democrats-state-government-control-priorities.html
 
