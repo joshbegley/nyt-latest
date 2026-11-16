@@ -1,3 +1,11 @@
+**Millions Will Travel for Thanksgiving as Air Traffic Recovers From Outage**\
+`Experts said flight schedules were expected to normalize before the holiday next week.`\
+https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
+
+**‘Steering Failure’ Likely Caused Tanker’s Collision With Riverboat, N.T.S.B. Says**\
+`A tanker struck a docked passenger ship in New Orleans on Friday, causing it to capsize. Investigators emphasized that their findings were preliminary.`\
+https://www.nytimes.com/2026/11/16/us/new-orleans-cruise-ship-steering-failure.html
+
 **Taking Credit**\
 `My colleagues look at the debate inside the Democratic Party about which faction can take credit for the midterm romp.`\
 https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
