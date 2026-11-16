@@ -1,3 +1,11 @@
+**Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
+`As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
+
+**How Obamacare Premiums Are Rising**\
+`Margot Sanger-Katz, our reporter on health care policy, explains why Affordable Care Act plans are becoming more costly, and who will face the steepest cost increases.`\
+https://www.nytimes.com/video/us/politics/100000011250099/how-obamacare-premiums-are-rising.html
+
 **There’s a New James Bond, Again. How Did the Last Ones Fare?**\
 `The casting of 007 inevitably stokes debate, and the immediate reaction doesn’t necessarily match the eventual reviews.`\
 https://www.nytimes.com/2026/11/16/movies/james-bond-actors-reviews.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/business/retromobile-classic-car-show-nyc.htm
 **100 Years Ago, NBC’s First Network Radio Broadcast Aired**\
 `The NBC show was transmitted from a ballroom on Fifth Avenue, laying the groundwork for the age of modern media.`\
 https://www.nytimes.com/2026/11/16/nyregion/nbc-first-radio-broadcast-nationwide.html
-
-**Apple Was Late to the Video Podcast Boom. Now It’s Trying to Catch Up.**\
-`They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
-https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
-
-**The Eat-What-You-Kill System That Rules Big Law**\
-`The free agent system is taking over big law firms.`\
-https://www.nytimes.com/2026/11/16/opinion/big-law-firms-competition.html
 
