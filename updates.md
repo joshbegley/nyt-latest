@@ -1,3 +1,7 @@
+**Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
+`Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
+https://www.nytimes.com/2026/11/16/world/europe/iran-dams-missile-sites-environmentalists.html
+
 **One Overlooked Reason the Democrats May Have Won the Midterms**\
 `Is humility poised for a political comeback?`\
 https://www.nytimes.com/2026/11/16/opinion/talarico-humility.html

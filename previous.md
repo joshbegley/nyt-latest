@@ -1,3 +1,7 @@
+**Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
+`Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
+https://www.nytimes.com/2026/11/16/world/europe/iran-dams-missile-sites-environmentalists.html
+
 **One Overlooked Reason the Democrats May Have Won the Midterms**\
 `Is humility poised for a political comeback?`\
 https://www.nytimes.com/2026/11/16/opinion/talarico-humility.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/world/europe/serbia-students-vucic-election.h
 **International Students Are Turning Away From U.S. Universities**\
 `For a second year, Trump administration policies appear to be scaring away international students, disrupting the finances of the American colleges that depend on them.`\
 https://www.nytimes.com/2026/11/16/us/international-student-college-enrollment-declines.html
-
-**How to Watch the 2026 Leonids Meteor Shower**\
-`Known for bright, fast meteors with long tails, the Leonids come around every November. But the number of streaks visible per hour can be low.`\
-https://www.nytimes.com/2026/11/16/science/leonids-meteor-shower-peak.html
 
