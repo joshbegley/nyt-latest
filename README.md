@@ -1,3 +1,11 @@
+**Want a Table at the Buzziest New Restaurant? Try Getting Past the Bouncer.**\
+`No, you can’t talk to the host.`\
+https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
+
+**The Blue Wave Lifted Democrats. But Not All Progressives Rose as High.**\
+`The performance gap with moderates narrowed, but progressive candidates underperformed by enough to keep the “electability” debate alive.`\
+https://www.nytimes.com/2026/11/16/upshot/progressives-moderates-democrats-elections.html
+
 **Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
 `For years, engineers have shuffled between Tesla and SpaceX and the companies have worked on major projects together.`\
 https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/realestate/cottage-renovation-burgundy-france
 **Winter Nightmare Looms Early in Ukraine as Russia Strikes Relentlessly**\
 `Even as it talks peace, Russia has opened a bombing campaign intended to strip Kyiv and other cities of heat, running water and sanitation this winter.`\
 https://www.nytimes.com/2026/11/16/world/europe/russia-ukraine-winter-campaign.html
-
-**‘Tom Stoppard’s Shakespeare, A One-Night-Only Production**\
-`On the anniversary of Tom Stoppard’s death, the actor Ethan Hawke leads a production that traces the enduring bond between two monumental playwrights.`\
-https://www.nytimes.com/2026/11/16/theater/stoppard-and-shakespeare-ethan-hawke-theater-for-a-new-audience.html
-
-**Philip Roth’s Lessons Arrived When I Needed Them Most**\
-`The author adds his own thoughts to a Philip Roth essay about his teacher.`\
-https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 
