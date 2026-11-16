@@ -1,3 +1,7 @@
+**3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
+`The officers were responding to a request for a wellness check when they were shot by a person who is barricaded in an apartment in the Co-op City complex.`\
+https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
+
 **The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
 `Puccini’s breakneck tragedy has always been popular in New York: so much that you could hear two versions in 24 hours last weekend.`\
 https://www.nytimes.com/2026/11/16/arts/music/tosca-met-opera-new-york-philharmonic.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/arts/design/phillips-sothebys-christies-art-a
 **Judge Sets Spring Retrial for Lindsay Clancy**\
 `At a hearing on Monday, prosecutors did not say whether they would plan to retry Ms. Clancy on first-degree murder charges, lesser charges or at all.`\
 https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
-
-**Bringing an Abandoned Cottage in Burgundy Back to Life**\
-`A couple realized their dream of buying an old stone house amid French vineyards. The only issue: It required patience, creativity and work. A lot of it.`\
-https://www.nytimes.com/2026/11/16/realestate/cottage-renovation-burgundy-france.html
 

@@ -1,3 +1,7 @@
+**3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
+`The officers were responding to a request for a wellness check when they were shot by a person who is barricaded in an apartment in the Co-op City complex.`\
+https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
+
 **Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
 `For years, engineers have shuffled between Tesla and SpaceX, and the companies have worked on major projects together.`\
 https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
