@@ -1,3 +1,31 @@
+**How the 15th Amendment Changed the World**\
+`The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html
+
+**How the Internet's Predecessor ARPANET Changed the World**\
+`With the invention of ARPANET, connectivity between computers would reshape every aspect of modern society.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/arpanet-internet-computers-network.html
+
+**How the Birth Control Pill Changed the World**\
+`The pill gave women autonomy — and created a whole new type of reactionary politics.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/birth-control-pill-women-liberation.html
+
+**Quiz. James Bond Quiz.**\
+`Robert Pattinson will be the next to don 007’s tuxedo. Let’s test your knowledge about the James Bond series.`\
+https://www.nytimes.com/quiz/2026/11/16/arts/james-bond-quiz.html
+
+**How the Atomic Bomb on Hiroshima Changed the World**\
+`The day the U.S. dropped an atomic bomb on Hiroshima, a new era of existential dread was born in the ashes.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/hiroshima-atomic-bomb-nuclear-war.html
+
+**How the Bolshevik Revolution Changed the World**\
+`The Bolshevik Revolution set the terms for a century-long conflict between capitalism and socialism.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/bolshevik-revolution-russia-communism-cold-war.html
+
+**Bessent Takes Hawkish Turn in White House Debate on China**\
+`The Treasury secretary who sought to de-escalate tariff wars is taking a tougher approach to exports of sensitive U.S. technology.`\
+https://www.nytimes.com/2026/11/16/us/politics/bessent-lutnick-china.html
+
 **How the Haber-Bosch Process Changed the World**\
 `The Haber-Bosch process is the reason three-to-four billion of us are alive today.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammonia-fertilizer.html
