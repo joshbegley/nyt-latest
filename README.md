@@ -1,3 +1,7 @@
+**Millions Will Travel for Thanksgiving as Air Traffic Recovers From Outage**\
+`Experts said flight schedules were expected to normalize before the holiday next week.`\
+https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
+
 **‘Steering Failure’ Likely Caused Tanker’s Collision With Riverboat, N.T.S.B. Says**\
 `A tanker struck a docked passenger ship in New Orleans on Friday, causing it to capsize. Investigators emphasized that their findings were preliminary.`\
 https://www.nytimes.com/2026/11/16/us/new-orleans-cruise-ship-steering-failure.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
-`Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
-https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
-
 **Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
 `As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
 https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
+
+**Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
+`Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
+https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/opinion/ai-bubble-finance-crisis-deregulation
 **Pope Leo, Weeks After Surgery, Holds Up Well on South America Trip**\
 `When doctors operated on Pope Leo XIV’s lung in October, some wondered if he’d postpone a long-planned trip to South America. It’s gone well so far.`\
 https://www.nytimes.com/2026/11/16/world/europe/pope-leo-peru-health.html
-
-**How a Pennsylvania Teacher Builds Skills With Our Student Opinion Feature**\
-`By responding to online forums, students practice narrative and argumentative writing; participate in civic discourse; and find an international audience for their work.`\
-https://www.nytimes.com/2026/11/16/learning/how-a-pennsylvania-teacher-builds-skills-with-our-student-opinion-feature.html
 
