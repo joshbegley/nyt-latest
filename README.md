@@ -1,3 +1,7 @@
+**Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
+`The court filing confirms that the Trump administration has sought on two parallel fronts to identify the sources for an article as part of one overarching investigation.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-linkedin-data-nyt-sources.html
+
 **Why Robert Pattinson Could Be a Great James Bond**\
 `Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
 https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/quiz/2026/11/16/bookreview/recurring-characters-quiz.htm
 **Put Acorn Squash in Your Mac and Cheese**\
 `Bonus: You can cover and refrigerate this supremely cheesy dish for up to three days.`\
 https://www.nytimes.com/2026/11/16/dining/put-acorn-squash-in-your-mac-and-cheese.html
-
-**Carbon Emissions of Biggest U.S. Data Centers Already Rival Entire Countries, Study Reveals**\
-`Harvard researchers calculated emissions for 403 American data centers. It wasn’t easy.`\
-https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-carbon-emissions.html
 

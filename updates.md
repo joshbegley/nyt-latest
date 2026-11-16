@@ -1,3 +1,11 @@
+**Why Robert Pattinson Could Be a Great James Bond**\
+`Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
+https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
+
+**Chase Bank Transactions Disrupted by ‘Technical Issue’ Amid Outage Reports**\
+`After technical problems grounded flights nationwide and Microsoft products failed, the banking issues added to a sense of doom about the systems underpinning daily life.`\
+https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
+
 **10 Days That Changed the World**\
 `There have been 63,977 days since the New York Times began publishing. We chose the most important ones. <strong></strong>`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
