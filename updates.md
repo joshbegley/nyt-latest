@@ -1,3 +1,7 @@
+**Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
+`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
+https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
+
 **Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
 `The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
 https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
