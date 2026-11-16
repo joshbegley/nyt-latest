@@ -1,3 +1,11 @@
+**Cornell University’s President Vows Fraternity Review in Wake of No Confidence Vote**\
+`President Michael I. Kotlikoff announced further steps in response to a former student’s lawsuit alleging a gang rape at a frat house.`\
+https://www.nytimes.com/2026/11/16/nyregion/cornell-president-kotlikoff-rape-lawsuit.html
+
+**California Sues OpenAI Over A.I. Safety Issues**\
+`The state attorney general filed a lawsuit accusing the company of failing to put appropriate safeguards on its artificial intelligence and putting the public at risk.`\
+https://www.nytimes.com/2026/11/16/technology/california-openai-ai-safety.html
+
 **Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
 `Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
 https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
@@ -6,7 +14,7 @@ https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
 `Readers cite mismanagement and ill-advised cuts by the Trump administration for the air travel breakdown on Friday.`\
 https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
 
-**Challenging Consensus, Scientist Says Photos Show Epstein Was Killed**\
+**Challenging Consensus, Scientist Says Epstein Autopsy Photos Show Homicide**\
 `Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
 https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
 
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/crosswords/wordle-review-1977.html
 **Trump’s Asia Trip Will Bring Him to the Table With Xi and Putin: What to Know**\
 `President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
 https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
-
-**Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
-`Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
-https://www.nytimes.com/2026/11/16/world/middleeast/iran-dams-missile-sites-environmentalists.html
-
-**One Overlooked Reason the Democrats May Have Won the Midterms**\
-`Is humility poised for a political comeback?`\
-https://www.nytimes.com/2026/11/16/opinion/talarico-humility.html
 
