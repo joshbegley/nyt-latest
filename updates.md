@@ -1,3 +1,11 @@
+**Chase Bank Reports Technical Issue Disrupting Transactions**\
+`Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
+https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
+
+**At a Roman Palazzo, a U.S. Cultural Agency Defends the Western Tradition**\
+`A gathering organized by the National Endowment for the Humanities brought Italian intellectuals together with American conservatives who warn of cultural decay.`\
+https://www.nytimes.com/2026/11/16/arts/national-endowment-humanities-rome-conference.html
+
 **Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
 `President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
 https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
