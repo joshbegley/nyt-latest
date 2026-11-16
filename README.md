@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 
-**Finally, a Vaccine for Cancer**\
-`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
-
 **What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
 `Plus, why “birdbrain” is a misnomer.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
+
+**Finally, a Vaccine for Cancer**\
+`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
 
 **NYT Strands Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
 
 **Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
-`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellweather works to watch.`\
+`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
 https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
 
 **Affordability or Antifascism Is a False Choice**\

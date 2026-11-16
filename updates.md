@@ -1,3 +1,11 @@
+**Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
+`The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
+https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
+
+**Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
+`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellweather works to watch.`\
+https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
+
 **Millions Will Travel for Thanksgiving as Air Traffic Recovers From Outage**\
 `Experts said flight schedules were expected to normalize before the holiday next week.`\
 https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
