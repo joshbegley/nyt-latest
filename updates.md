@@ -1,3 +1,7 @@
+**Research Stalls for a Year Into a Cancer That Kills Children in a Year**\
+`For 27 years, the Pediatric Brain Tumor Consortium worked to save kids with brain cancer. But just before 5-year-old Ryleigh Schecter was diagnosed, the government shut it down.`\
+https://www.nytimes.com/2026/11/15/well/research-stalls-for-a-year-into-a-cancer-that-kills-children-in-a-year.html
+
 **NYT Crossword Answers for Nov. 16, 2026**\
 `Josef Sipkins makes his New York Times Crossword debut.`\
 https://www.nytimes.com/2026/11/15/crosswords/daily-puzzle-2026-11-16.html
