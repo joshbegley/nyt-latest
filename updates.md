@@ -1,3 +1,15 @@
+**Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
+`The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html
+
+**Mamdani’s Move to Disband N.Y.P.D. Unit Provokes Praise, Anger and Spin**\
+`Police unions reacted angrily to Mayor Zohran Mamdani’s decision to revamp the Strategic Response Group, but criminal justice activists were pleased.`\
+https://www.nytimes.com/2026/11/16/nyregion/mamdani-tisch-police-srg-protest.html
+
+**The Days From the Past 175 Years That Almost Made the List**\
+`Our panel of historical experts had some lively debates. Here's a window into their deliberations.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-runner-ups.html
+
 **How the Wannsee Conference Changed the World**\
 `At the Wannsee Conference, the Nazis planned the Final Solution.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
