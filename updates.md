@@ -1,3 +1,7 @@
+**Apple Was Late to Video Podcasts. Now It’s Trying to Catch Up.**\
+`They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
+https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
+
 **Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
 `The defendants were accused of colluding with Iran. Rights groups said the case raised concerns about religious persecution in Bahrain, which is ruled by a Sunni monarchy.`\
 https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
