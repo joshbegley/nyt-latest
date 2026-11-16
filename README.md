@@ -22,13 +22,13 @@ https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 
-**Finally, a Vaccine for Cancer**\
-`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
-
 **What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
 `Plus, why “birdbrain” is a misnomer.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
+
+**Finally, a Vaccine for Cancer**\
+`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
 
 **NYT Strands Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
