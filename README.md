@@ -1,3 +1,7 @@
+**Madison Huang, Jensen Huang’s Daughter, Became a Powerful Force at Nvidia**\
+`Installed as her father’s de facto chief of staff, Jensen Huang’s daughter alienated top executives. Now her lingering role poses a test for interim C.E.O. Colette Kress.`\
+https://www.nytimes.com/2026/11/16/technology/nvidia-jensen-madison-huang.html
+
 **What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
 `No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
 https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.ht
 **Willie Geist Is Leaving ‘Morning Joe’ After Nearly 20 Years**\
 `He will take on an expanded role at NBC News, where he has been the host of the Sunday edition of the “Today” show since 2016.`\
 https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today.html
-
-**3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
-`The man who shot the officers had barricaded himself in his apartment at the Co-op City complex, the police said. The officers were both in stable condition.`\
-https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
 

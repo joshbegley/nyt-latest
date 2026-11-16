@@ -1,3 +1,15 @@
+**What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
+`No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
+https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
+
+**For Your Consideration: Animated and Documentary Short Films by Op-Docs**\
+`Watch the latest short documentaries from our award-winning series.`\
+https://www.nytimes.com/2026/11/16/opinion/for-your-consideration-opdocs-short-films.html
+
+**United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
+`The brief disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
+
 **Raye vs. Rosalía: Do the Grammys Want Tradition or Progress?**\
 `‘Popcast’ reacts to the Grammy nominations for Album of the Year, which include music from Raye, Taylor Swift and Olivia Rodrigo.`\
 https://www.nytimes.com/video/podcasts/100000011288748/raye-vs-rosalia-do-the-grammys-want-tradition-or-progress.html

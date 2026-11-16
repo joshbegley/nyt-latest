@@ -1,3 +1,11 @@
+**What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
+`No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
+https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
+
+**For Your Consideration: Animated and Documentary Short Films by Op-Docs**\
+`Watch the latest short documentaries from our award-winning series.`\
+https://www.nytimes.com/2026/11/16/opinion/for-your-consideration-opdocs-short-films.html
+
 **Raye vs. Rosalía: Do the Grammys Want Tradition or Progress?**\
 `‘Popcast’ reacts to the Grammy nominations for Album of the Year, which include music from Raye, Taylor Swift and Olivia Rodrigo.`\
 https://www.nytimes.com/video/podcasts/100000011288748/raye-vs-rosalia-do-the-grammys-want-tradition-or-progress.html
@@ -31,7 +39,7 @@ https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
 https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
 
 **United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
-`The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
+`The brief disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
 
 **Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/business/media/willie-geist-morning-joe-today
 **3 Shot, Including 2 Security Officers, in Bronx Apartment Complex**\
 `The man who shot the officers had barricaded himself in his apartment at the Co-op City complex, the police said. The officers were both in stable condition.`\
 https://www.nytimes.com/2026/11/16/nyregion/nyc-bronx-shooting-coop-city.html
-
-**The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
-`Puccini’s breakneck tragedy has always been popular in New York: so much that you could hear two versions in 24 hours last weekend.`\
-https://www.nytimes.com/2026/11/16/arts/music/tosca-met-opera-new-york-philharmonic.html
-
-**Want a Table at the Buzziest New Restaurant? Try Getting Past the Bouncer.**\
-`No, you can’t talk to the host.`\
-https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
 
