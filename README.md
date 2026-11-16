@@ -1,3 +1,7 @@
+**An Intriguing Approach to Slow Alzheimer’s Shows Mixed Results**\
+`The device, a headset delivering light and sound, is based on the theory that audiovisual stimulation can evoke brainwave responses that might help preserve neurological function.`\
+https://www.nytimes.com/2026/11/16/well/cognito-spectris-alzheimers-headset-device.html
+
 **The Walks That Fire Their Imaginations**\
 `Philip Lim, Kengo Kuma, Joy Harjo and others on their favorite places to amble, from Reykjavík to the Rio Grande.`\
 https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex-conglomerate.
 **Migrant Arrivals Surge in Spain’s Canary Islands**\
 `More than 2,000 migrants reached Spain’s Canary Islands by boat over the weekend, with the highest number on Saturday, the country’s maritime rescue service said. The archipelago has experienced a surge of arrivals from West African countries since October.`\
 https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-migrants.html
-
-**Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
-`Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
-https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
 
