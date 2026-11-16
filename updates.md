@@ -1,3 +1,7 @@
+**Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
+`For years, engineers have shuffled between Tesla and SpaceX, and the companies have worked on major projects together.`\
+https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
+
 **New Data Paves the Way for Weight-Loss Drugs for Young Children, but Questions Remain**\
 `Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
 https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
