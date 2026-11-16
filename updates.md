@@ -1,3 +1,7 @@
+**A Republican Party That’s Learned Nothing**\
+`Defeating MAGA is only half done.`\
+https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
+
 **The Joyful Nerdiness of a 66-Hour, Nonstop Reading of ‘The Power Broker’**\
 `New Yorkers read the 1,162-page book around the clock for four days, reflecting on the legacy of Robert Moses and celebrating its author, Robert Caro, who read the final pages.`\
 https://www.nytimes.com/2026/11/15/nyregion/power-broker-marathon-reading-robert-moses-caro.html
