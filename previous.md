@@ -1,3 +1,7 @@
+**Pope Leo, Weeks After Surgery, Holds Up Well on South America Trip**\
+`When doctors operated on Pope Leo XIV’s lung in October, some wondered if he’d postpone a long-planned trip to South America. It’s gone well so far.`\
+https://www.nytimes.com/2026/11/16/world/europe/pope-leo-peru-health.html
+
 **How a Pennsylvania Teacher Builds Skills With Our Student Opinion Feature**\
 `By responding to online forums, students practice narrative and argumentative writing; participate in civic discourse; and find an international audience for their work.`\
 https://www.nytimes.com/2026/11/16/learning/how-a-pennsylvania-teacher-builds-skills-with-our-student-opinion-feature.html
@@ -170,13 +174,13 @@ https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026`\
 https://www.nytimes.com/2026/11/15/crosswords/connections-companion-1254.html
 
-**A Republican Party That’s Learned Nothing**\
-`Defeating MAGA is only half done.`\
-https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
-
 **The Risk Democrats Need to Take**\
 `Democrats everywhere ran on putting affordability first. The permitting reform bill is an early test of whether they meant it.`\
 https://www.nytimes.com/2026/11/15/opinion/democrats-permitting-reform-bill-affordability.html
+
+**A Republican Party That’s Learned Nothing**\
+`Defeating MAGA is only half done.`\
+https://www.nytimes.com/2026/11/15/opinion/gop-republican-party-midterms.html
 
 **The Ultraviolent, Wildly Successful, Uniquely American Phenomenon of Grand Theft Auto**\
 `13 years and a billion dollars later, the sixth installment of the blockbuster crime spree game is (almost) here.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/opinion/democrats-win-mississippi-south.html
 **The Flaw at the Heart of Anthropic’s I.P.O.**\
 `Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
 https://www.nytimes.com/2026/11/15/opinion/anthropic-ipo-ai-investors.html
-
-**NYT Strands Hints for November 16, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
-https://www.nytimes.com/2026/11/15/crosswords/strands-sidekick-988.html
 

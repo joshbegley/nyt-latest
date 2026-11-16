@@ -1,3 +1,7 @@
+**Pope Leo, Weeks After Surgery, Holds Up Well on South America Trip**\
+`When doctors operated on Pope Leo XIV’s lung in October, some wondered if he’d postpone a long-planned trip to South America. It’s gone well so far.`\
+https://www.nytimes.com/2026/11/16/world/europe/pope-leo-peru-health.html
+
 **A Year On, Mark Carney of Canada Returns to Asia a Political Star**\
 `Canada’s leader is courting Europe, but the bigger payoff might be in China, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
 https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
