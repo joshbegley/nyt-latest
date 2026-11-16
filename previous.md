@@ -1,3 +1,11 @@
+**The New Congress Must Rein in Trump’s Dangerous China Policy**\
+`Trump’s accommodating approach toward China has emboldened Beijing, but the new Congress has a rare chance to change course.`\
+https://www.nytimes.com/2026/11/16/opinion/china-us-trump-asia-military.html
+
+**‘The Altruists’ and 8 More Shows to Watch on TV This Week**\
+`The new Netflix series chronicles the rise and fall of a cryptocurrency exchange. And country music stars will gather for the CMA Awards.`\
+https://www.nytimes.com/2026/11/16/arts/television/the-altruists-and-8-more-shows-to-watch-on-tv-this-week.html
+
 **Quote of the Day: A.I. Can Help Judges Score More Precisely, But It Fails on Artistry**\
 `Quotation of the Day for Monday, November 16, 2026.`\
 https://www.nytimes.com/2026/11/16/pageoneplus/quote-of-the-day-ai-can-help-judges-score-more-precisely-but-it-fails-on-artistry.html
@@ -95,7 +103,7 @@ https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
 https://www.nytimes.com/2026/11/15/us/politics/democrats-denver-gathering-takeaways.html
 
 **Megaspeed Says Alice Huang Left Company in August 2025**\
-`The Singaporean company’s statement added to the timeline involving Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+`The Singaporean company’s statement was its first to address the status of Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
 https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
 
 **Flight Delays and Cancellations Persist as System Recovers From Ground Stop**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-a
 **Microsoft Outlook Outage and FAA Groundstop Show Dependence on Fragile Technology**\
 `Incidents involving Microsoft’s Outlook and the Federal Aviation Administration this past week demonstrated our dependence on fragile technology.`\
 https://www.nytimes.com/2026/11/15/business/technology-dependence-microsoft-airlines.html
-
-**Lutnick Pushed to Weaken Chip Rules That Overlap With His Family Business**\
-`The commerce secretary has been writing new rules that would affect Southeast Asian data centers, some of which are clients of his former firm.`\
-https://www.nytimes.com/2026/11/15/us/politics/trump-lutnick-ai-chips-nvidia-cantor-fitzgerald.html
-
-**Corrections: Nov. 15, 2026**\
-`Corrections that appeared in print on Sunday, Nov. 15, 2026.`\
-https://www.nytimes.com/2026/11/15/pageoneplus/corrections-nov-15-2026.html
 

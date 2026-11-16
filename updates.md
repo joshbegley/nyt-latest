@@ -1,3 +1,15 @@
+**The New Congress Must Rein in Trump’s Dangerous China Policy**\
+`Trump’s accommodating approach toward China has emboldened Beijing, but the new Congress has a rare chance to change course.`\
+https://www.nytimes.com/2026/11/16/opinion/china-us-trump-asia-military.html
+
+**‘The Altruists’ and 8 More Shows to Watch on TV This Week**\
+`The new Netflix series chronicles the rise and fall of a cryptocurrency exchange. And country music stars will gather for the CMA Awards.`\
+https://www.nytimes.com/2026/11/16/arts/television/the-altruists-and-8-more-shows-to-watch-on-tv-this-week.html
+
+**Megaspeed Says Alice Huang Left Company in August 2025**\
+`The Singaporean company’s statement was its first to address the status of Ms. Huang, a former executive who had a relationship with Jensen Huang of Nvidia. U.S. officials say she was spying for China.`\
+https://www.nytimes.com/2026/11/15/business/megaspeed-alice-huang-nvidia-china.html
+
 **Quote of the Day: A.I. Can Help Judges Score More Precisely, But It Fails on Artistry**\
 `Quotation of the Day for Monday, November 16, 2026.`\
 https://www.nytimes.com/2026/11/16/pageoneplus/quote-of-the-day-ai-can-help-judges-score-more-precisely-but-it-fails-on-artistry.html
