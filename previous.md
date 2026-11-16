@@ -1,3 +1,23 @@
+**NYT Connections Answers for November 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
+https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
+
+**Finally, a Vaccine for Cancer**\
+`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
+
+**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
+`Plus, why “birdbrain” is a misnomer.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
+
+**NYT Strands Hints for November 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
+https://www.nytimes.com/2026/11/16/crosswords/strands-sidekick-989.html
+
+**Today’s Wordle Hints for November 17, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
+https://www.nytimes.com/2026/11/16/crosswords/wordle-review-1977.html
+
 **What to Know About Trump’s Trip to Asia**\
 `President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
 https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/16/crosswords/spelling-bee-forum.html
 **The New Congress Must Rein in Trump’s Dangerous China Policy**\
 `Trump’s accommodating approach toward China has emboldened Beijing, but the new Congress has a rare chance to change course.`\
 https://www.nytimes.com/2026/11/16/opinion/china-us-trump-asia-military.html
-
-**‘The Altruists’ and 8 More Shows to Watch on TV This Week**\
-`The new Netflix series chronicles the rise and fall of a cryptocurrency exchange. And country music stars will gather for the CMA Awards.`\
-https://www.nytimes.com/2026/11/16/arts/television/the-altruists-and-8-more-shows-to-watch-on-tv-this-week.html
-
-**Quote of the Day: A.I. Can Help Judges Score More Precisely, But It Fails on Artistry**\
-`Quotation of the Day for Monday, November 16, 2026.`\
-https://www.nytimes.com/2026/11/16/pageoneplus/quote-of-the-day-ai-can-help-judges-score-more-precisely-but-it-fails-on-artistry.html
-
-**A Year On, Mark Carney of Canada Returns to Asia a Political Star**\
-`Canada’s leader is courting Europe, but the bigger payoff might be in China, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
-https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
-
-**Searching for the Last Stoats of Waiheke Island**\
-`Can the tourist destination become the first urban island to rid itself of the stoat — an introduced predator that has ravaged New Zealand’s endemic wildlife?`\
-https://www.nytimes.com/2026/11/16/world/australia/new-zealand-stoats.html
-
-**They Defeated a Strongman. But Can They Run a Country?**\
-`Serbia’s student movement was deliberately leaderless and made group decisions to unseat Aleksandar Vucic. Now no one seems quite sure what happens next.`\
-https://www.nytimes.com/2026/11/16/world/europe/serbia-students-vucic-election.html
 
