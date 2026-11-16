@@ -1,3 +1,7 @@
+**What Nithya Raman Plans to Do First as L.A. Mayor**\
+`Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
+https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
+
 **Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
 `A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
 https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html

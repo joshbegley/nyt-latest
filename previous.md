@@ -118,8 +118,8 @@ https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordabil
 `As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
 https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
 
-**Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
-`Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
+**What Nithya Raman Plans to Do First as L.A. Mayor**\
+`Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
