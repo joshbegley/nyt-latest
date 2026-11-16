@@ -1,3 +1,15 @@
+**How the Wannsee Conference Changed the World**\
+`At the Wannsee Conference, the Nazis planned the Final Solution.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
+
+**How Thomas Edison Changed the World**\
+`When Thomas Edison first lit up the Financial District, it opened up the night and birthed the modern technological age.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/electric-grid-edison-light-power.html
+
+**How Deng Xiaoping’s Capitalist Policy Changed China and the World**\
+`When Deng Xiaoping opened China to capitalism, it set the stage for a period of unimaginable growth.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/china-capitalism-deng-xiaoping-east.html
+
 **How the 15th Amendment Changed the World**\
 `The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html

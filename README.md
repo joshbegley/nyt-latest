@@ -1,3 +1,15 @@
+**Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
+`The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html
+
+**Mamdani’s Move to Disband N.Y.P.D. Unit Provokes Praise, Anger and Spin**\
+`Police unions reacted angrily to Mayor Zohran Mamdani’s decision to revamp the Strategic Response Group, but criminal justice activists were pleased.`\
+https://www.nytimes.com/2026/11/16/nyregion/mamdani-tisch-police-srg-protest.html
+
+**The Days From the Past 175 Years That Almost Made the List**\
+`Our panel of historical experts had some lively debates. Here's a window into their deliberations.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-runner-ups.html
+
 **How the Wannsee Conference Changed the World**\
 `At the Wannsee Conference, the Nazis planned the Final Solution.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-
 **2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
 `Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
-
-**Five European Countries Plan to Deport Migrants to Rwanda**\
-`Germany, Austria, the Netherlands, Greece and Denmark are seeking to establish a hub for rejected asylum seekers. Here’s what to know about their effort.`\
-https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
-
-**How to Make a Fall Wreath From Foraged Leaves and Twigs**\
-`The handmade decoration can brighten up a door or be used as a centerpiece on a holiday table.`\
-https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
-
-**Person in Custody in Illinois Bomb Case, Officials Say**\
-`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
-https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
 

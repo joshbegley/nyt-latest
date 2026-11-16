@@ -1,3 +1,15 @@
+**How the Wannsee Conference Changed the World**\
+`At the Wannsee Conference, the Nazis planned the Final Solution.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
+
+**How Thomas Edison Changed the World**\
+`When Thomas Edison first lit up the Financial District, it opened up the night and birthed the modern technological age.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/electric-grid-edison-light-power.html
+
+**How Deng Xiaoping’s Capitalist Policy Changed China and the World**\
+`When Deng Xiaoping opened China to capitalism, it set the stage for a period of unimaginable growth.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/china-capitalism-deng-xiaoping-east.html
+
 **How the 15th Amendment Changed the World**\
 `The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
 **Person in Custody in Illinois Bomb Case, Officials Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
-
-**Trump Says He’s Open to Reinstatement of Jensen Huang as Nvidia Chief**\
-`As he prepared for a visit to China, the president played down the fallout from Mr. Huang’s affair with a woman officials have identified as an intelligence asset for Beijing.`\
-https://www.nytimes.com/2026/11/16/us/politics/trump-jensen-huang-nvidia.html
-
-**How Obamacare Premiums Are Rising**\
-`Margot Sanger-Katz, our reporter on health care policy, explains why Affordable Care Act plans are becoming more costly, and who will face the steepest cost increases.`\
-https://www.nytimes.com/video/us/politics/100000011250099/how-obamacare-premiums-are-rising.html
-
-**There’s a New James Bond, Again. How Did the Last Ones Fare?**\
-`The casting of 007 inevitably stokes debate, and the immediate reaction doesn’t necessarily match the eventual reviews.`\
-https://www.nytimes.com/2026/11/16/movies/james-bond-actors-reviews.html
 
