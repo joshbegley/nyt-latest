@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/11/15/world/nvidia-jensen-huang-ai-chips.html
 `The treatment, called ivonescimab, has become a symbol of China’s rise in drug development.`\
 https://www.nytimes.com/2026/11/15/business/fda-lung-cancer-drug-china.html
 
-**Billy Evans Says He’d Do It All Over Again**\
+**Billy Evans Says He’d Do ‘You Can See Everything’ All Over Again**\
 `Speaking with CBS Sunday Morning, Elizabeth Holmes’s partner said that despite the shower scene and other regrets, he would “100 percent” make “You Can See Everything” once more.`\
 https://www.nytimes.com/2026/11/15/arts/billy-evans-you-can-see-everything.html
 
