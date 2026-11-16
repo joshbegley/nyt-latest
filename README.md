@@ -194,7 +194,3 @@ https://www.nytimes.com/2026/11/16/theater/stoppard-and-shakespeare-ethan-hawke-
 `The author adds his own thoughts to a Philip Roth essay about his teacher.`\
 https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 
-**How an Actor and Cafe Owner Lives on $35,000 in Astoria**\
-`Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
-https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
-

@@ -1,3 +1,19 @@
+**Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
+`For years, engineers have shuffled between Tesla and SpaceX and the companies have worked on major projects together.`\
+https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
+
+**Elon Musk Dreams of Merging Tesla and SpaceX in Move Toward Tech Supremacy**\
+`The history of the sprawling corporate combinations is rich, colorful and mostly disappointing. Could a SpaceX-Tesla merger be a success story?`\
+https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex-conglomerate.html
+
+**Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
+`The rules have been a topic of fierce debate in the administration and would cut back on a booming data center business serving Chinese companies.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
+
+**Nationwide Ground Stop Recovery Continues Ahead of Thanksgiving Travel**\
+`Experts said flight schedules were expected to normalize before the holiday next week.`\
+https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
+
 **Migrant Arrivals Surge in Spain’s Canary Islands**\
 `More than 2,000 migrants reached Spain’s Canary Islands by boat over the weekend, with the highest number on Saturday, the country’s maritime rescue service said. The archipelago has experienced a surge of arrivals from West African countries since October.`\
 https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-migrants.html
