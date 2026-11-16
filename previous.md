@@ -1,3 +1,23 @@
+**Influencer University**\
+`We look inside the life of a sorority influencer.`\
+https://www.nytimes.com/2026/11/16/briefing/influencer-university.html
+
+**Do You Recognize These Characters Who Have Appeared in Multiple Novels?**\
+`Certain authors are adept at slipping familiar names into different books. See how many you know in this short quiz.`\
+https://www.nytimes.com/quiz/2026/11/16/bookreview/recurring-characters-quiz.html
+
+**Put Acorn Squash in Your Mac and Cheese**\
+`Bonus: You can cover and refrigerate this supremely cheesy dish for up to three days.`\
+https://www.nytimes.com/2026/11/16/dining/put-acorn-squash-in-your-mac-and-cheese.html
+
+**Carbon Emissions of Biggest U.S. Data Centers Already Rival Entire Countries, Study Reveals**\
+`Harvard researchers calculated emissions for 403 American data centers. It wasn’t easy.`\
+https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-carbon-emissions.html
+
+**2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
+`Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
+
 **Five European Countries Plan to Deport Migrants to Rwanda**\
 `Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
 https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
@@ -138,8 +158,8 @@ https://www.nytimes.com/2026/11/16/learning/would-you-want-to-go-to-a-hip-hop-sc
 `Phillips was always an underdog in the auction world, but it had ambition to compete with Christie’s and Sotheby’s. Then the economics changed.`\
 https://www.nytimes.com/2026/11/16/arts/design/phillips-sothebys-christies-art-auction-competition.html
 
-**Judge Could Set New Trial Date for Lindsay Clancy**\
-`The judge who oversaw Ms. Clancy’s first trial that ended in a deadlocked jury is holding a hearing on Monday to determine how to proceed.`\
+**Judge Sets Spring Retrial for Lindsay Clancy**\
+`At a hearing on Monday, prosecutors did not say whether they would plan to retry Ms. Clancy on first-degree murder charges, lesser charges or at all.`\
 https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
 
 **Bringing an Abandoned Cottage in Burgundy Back to Life**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
 **Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
 `Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellwether works to watch.`\
 https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
-
-**Affordability or Antifascism Is a False Choice**\
-`A democratic revolt against the capture and corruption of politics by moneyed interests is more than just a call for lower living costs.`\
-https://www.nytimes.com/2026/11/16/opinion/affordability-midterms-voters.html
-
-**The Park Avenue Penthouse Owned by Clive Davis Is Listed at $11 Million**\
-`The music impresario, who died in June, lived for decades at the Ritz Tower. Also, Josh Hart of the Knicks re-lists his Florida home.`\
-https://www.nytimes.com/2026/11/16/realestate/clive-davis-penthouse-park-avenue.html
-
-**Permitting Bill Would Charge Data Centers Billions for Power**\
-`The permitting bill could make it easier to build data centers for A.I. but a novel provision would also force data centers to pay much more for power.`\
-https://www.nytimes.com/2026/11/16/climate/permitting-bill-data-centers-electricity-rates.html
-
-**Democrats Will Wield Enormous Power in Statehouses. What Will They Do?**\
-`While attention has focused on the incoming Democratic Congress, the real change could happen in state capitals where Democrats will control a dozen new statehouse chambers.`\
-https://www.nytimes.com/2026/11/16/us/politics/democrats-state-government-control-priorities.html
-
-**How Sam Bankman-Fried Lost Out on a $35 Billion Jackpot From Anthropic**\
-`The founder of the collapsed FTX crypto exchange, who is serving prison time for fraud, would have made a windfall from a $500 million investment in Anthropic.`\
-https://www.nytimes.com/2026/11/16/technology/sam-bankman-fried-anthropic.html
 

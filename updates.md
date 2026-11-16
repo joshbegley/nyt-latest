@@ -1,3 +1,27 @@
+**Influencer University**\
+`We look inside the life of a sorority influencer.`\
+https://www.nytimes.com/2026/11/16/briefing/influencer-university.html
+
+**Do You Recognize These Characters Who Have Appeared in Multiple Novels?**\
+`Certain authors are adept at slipping familiar names into different books. See how many you know in this short quiz.`\
+https://www.nytimes.com/quiz/2026/11/16/bookreview/recurring-characters-quiz.html
+
+**Put Acorn Squash in Your Mac and Cheese**\
+`Bonus: You can cover and refrigerate this supremely cheesy dish for up to three days.`\
+https://www.nytimes.com/2026/11/16/dining/put-acorn-squash-in-your-mac-and-cheese.html
+
+**Carbon Emissions of Biggest U.S. Data Centers Already Rival Entire Countries, Study Reveals**\
+`Harvard researchers calculated emissions for 403 American data centers. It wasn’t easy.`\
+https://www.nytimes.com/interactive/2026/11/16/climate/ai-data-center-pollution-carbon-emissions.html
+
+**2027 Grammy Snubs and Surprises: Madonna, Noah Kahan, Audrey Hobert and More**\
+`Madonna and Kahan were locked out of nominations in the top categories, the Womack Sisters were recognized and country’s gender divide showed up in an unexpected way.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-snubs-surprises-madonna-noah-kahan.html
+
+**Judge Sets Spring Retrial for Lindsay Clancy**\
+`At a hearing on Monday, prosecutors did not say whether they would plan to retry Ms. Clancy on first-degree murder charges, lesser charges or at all.`\
+https://www.nytimes.com/2026/11/16/us/lindsay-clancy-trial-hearing.html
+
 **Five European Countries Plan to Deport Migrants to Rwanda**\
 `Germany, Austria, the Netherlands, Greece and Denmark announced a plan that would send rejected asylum seekers from places other than Rwanda to the African country.`\
 https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.html
