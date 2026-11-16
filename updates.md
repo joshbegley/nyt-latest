@@ -1,3 +1,7 @@
+**Republicans Can’t Rely on Trump Voters Anymore**\
+`Tim Carney, a senior political columnist at The Washington Examiner, argues that Trump’s voters never became reliably conservative and Republican. On “The Opinions,” he explains why “there’s no juice left to squeeze from MAGA” as Trump’s second term comes to an end.`\
+https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-trump-voters-anymore.html
+
 **The Death of ‘Keep 1.5 Alive’**\
 `Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
 https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
