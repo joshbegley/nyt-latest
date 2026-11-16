@@ -1,3 +1,11 @@
+**Supreme Court Rejects Trump Bid to Revive University Research Cuts**\
+`The justices left in place a lower-court decision to block the administration from cutting millions in grants to University of California researchers over perceived ties to diversity initiatives.`\
+https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of-california.html
+
+**Infectious Disease Scientist to Lead N.I.A.I.D. Amid Turmoil**\
+`Dr. John H. Powers III was appointed director of the National Institute of Allergy and Infectious Diseases, a powerful post held for decades by Dr. Anthony Fauci.`\
+https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html
+
 **Judge Sets New March Trial Date for Lindsay Clancy**\
 `Judge William Sullivan set a new trial date of March 29 for Lindsay Clancy, whose first trial for the deaths of her three children ended in a deadlocked jury.`\
 https://www.nytimes.com/video/us/100000011287264/clancy-trial-date.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.h
 **Finally, a Vaccine for Cancer**\
 `An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
-
-**NYT Strands Hints for November 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
-https://www.nytimes.com/2026/11/16/crosswords/strands-sidekick-989.html
-
-**Today’s Wordle Hints for November 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
-https://www.nytimes.com/2026/11/16/crosswords/wordle-review-1977.html
 
