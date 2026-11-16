@@ -1,3 +1,7 @@
+**Apple Was Late to the Video Podcast Boom. Now It’s Trying to Catch Up.**\
+`They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
+https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
+
 **Apple Was Late to Video Podcasts. Now It’s Trying to Catch Up.**\
 `They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
 https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
