@@ -1,3 +1,7 @@
+**Tetsuya Chiba Has Died. He Drew Some of the Greatest Manga of All Time.**\
+`His serialized story “Ashita no Joe,” or “Tomorrow’s Joe,” about a troubled boxer, was a cultural phenomenon in Japan in the 1970s. He was 87.`\
+https://www.nytimes.com/2026/11/16/obituaries/tetsuya-chiba-dead.html
+
 **10 Numbers That Might Change How You See Asia**\
 `From semiconductor dominance to new power grids, defense deals and K-pop, the region — beyond China — is becoming increasingly interconnected and self-reliant.`\
 https://www.nytimes.com/2026/11/16/world/asia/asean-trade-security-technology.html

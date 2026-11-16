@@ -1,3 +1,7 @@
+**Tetsuya Chiba Has Died. He Drew Some of the Greatest Manga of All Time.**\
+`His serialized story “Ashita no Joe,” or “Tomorrow’s Joe,” about a troubled boxer, was a cultural phenomenon in Japan in the 1970s. He was 87.`\
+https://www.nytimes.com/2026/11/16/obituaries/tetsuya-chiba-dead.html
+
 **10 Numbers That Might Change How You See Asia**\
 `From semiconductor dominance to new power grids, defense deals and K-pop, the region — beyond China — is becoming increasingly interconnected and self-reliant.`\
 https://www.nytimes.com/2026/11/16/world/asia/asean-trade-security-technology.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/theater/bryan-cranston-all-my-sons-broadway.h
 **Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
 `The defendants were accused of colluding with Iran. Rights groups said the case was marred by torture allegations and raised concerns about religious persecution.`\
 https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
-
-**Grammy Nominations 2027: See the Full List**\
-`The artists, albums and songs up for honors at the 69th annual ceremony were announced Monday. The show will be held on Feb. 7 in Los Angeles and air on ABC and Disney+ after decades on CBS.`\
-https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
 
