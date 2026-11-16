@@ -1,3 +1,7 @@
+**Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
+`The defendants were accused of colluding with Iran. Rights groups said the case raised concerns about religious persecution in Bahrain, which is ruled by a Sunni monarchy.`\
+https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
+
 **Grammy Nominations 2027: See the Full List**\
 `The artists, albums and songs up for honors at the 69th annual ceremony were announced Monday. The show will be held on Feb. 7 in Los Angeles and air on ABC and Disney+ after decades on CBS.`\
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
