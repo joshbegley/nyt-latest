@@ -1,3 +1,11 @@
+**Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
+`Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
+https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
+
+**Flights Grounded: Who Is to Blame?**\
+`Readers cite mismanagement and ill-advised cuts by the Trump administration for the air travel breakdown on Friday.`\
+https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
+
 **Challenging Consensus, Scientist Says Photos Show Epstein Was Killed**\
 `Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
 https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/world/middleeast/iran-dams-missile-sites-envi
 **One Overlooked Reason the Democrats May Have Won the Midterms**\
 `Is humility poised for a political comeback?`\
 https://www.nytimes.com/2026/11/16/opinion/talarico-humility.html
-
-**Howard Lyman Has Died. He Turned Against Beef and Got Oprah Sued.**\
-`After a midlife crisis, Mr. Lyman sold his farm, converted to veganism and became the cattle industry’s “public enemy No. 1.” He was 88.`\
-https://www.nytimes.com/2026/11/16/obituaries/howard-lyman-dead.html
-
-**Would You Want to Go to a Hip-Hop School?**\
-`A new high school in the South Bronx is using hip-hop culture to teach in a borough that has a long record of educational failure.`\
-https://www.nytimes.com/2026/11/16/learning/would-you-want-to-go-to-a-hip-hop-school.html
 

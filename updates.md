@@ -1,3 +1,11 @@
+**Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
+`Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
+https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
+
+**Flights Grounded: Who Is to Blame?**\
+`Readers cite mismanagement and ill-advised cuts by the Trump administration for the air travel breakdown on Friday.`\
+https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
+
 **Challenging Consensus, Scientist Says Photos Show Epstein Was Killed**\
 `Investigations have found most evidence in Jeffrey Epstein’s death points to suicide. Michael Freeman, a forensic scientist who studies homicides, got rare access to the autopsy file and disagrees.`\
 https://www.nytimes.com/2026/11/16/us/jeffrey-epstein-autopsy-michael-freeman.html
