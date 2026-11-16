@@ -1,3 +1,19 @@
+**How the Haber-Bosch Process Changed the World**\
+`The Haber-Bosch process is the reason three-to-four billion of us are alive today.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammonia-fertilizer.html
+
+**How Charles Darwin's 'Origin of Species' Changed the World**\
+`With ‘On the Origin of Species,’ Charles Darwin kicked off a battle between science and religion that would define the century to come.<strong></strong>`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/charles-darwin-origin-species-evolution.html
+
+**10 Days That Changed the World in the Past 175 Years**\
+`There have been 63,977 days since the New York Times began publishing. We chose the most important ones. <strong></strong>`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
+
+**Trump Nominates Budget Deputy for Nonpartisan Federal Watchdog Role**\
+`The move could put a top administration official in charge of an oversight agency that has faulted the White House for past violations of the law.`\
+https://www.nytimes.com/2026/11/16/business/trump-gao-watchdog-nominee-eric-ueland.html
+
 **Tetsuya Chiba Has Died. He Drew Some of the Greatest Manga of All Time.**\
 `His serialized story “Ashita no Joe,” or “Tomorrow’s Joe,” about a troubled boxer, was a cultural phenomenon in Japan in the 1970s. He was 87.`\
 https://www.nytimes.com/2026/11/16/obituaries/tetsuya-chiba-dead.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ri
 **Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
 `A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
 https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html
-
-**Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
-`The rules have been a topic of fierce debate in the administration and would cut back on a booming data center business serving Chinese companies.`\
-https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
-
-**Raye, Rosalía and Ella Langley Top a Women-Led 2027 Grammys Field**\
-`Langley is the first straight-up country artist to contend for the top album prize in eight years, and Raye’s 11 nods lead all nominees.`\
-https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-ella-langley-raye-rosalia.html
-
-**Bryan Cranston to Star in ‘All My Sons’ on Broadway Next Spring**\
-`The production, also starring Marianne Jean-Baptiste, is directed by Ivo van Hove and had an Olivier-winning run in London.`\
-https://www.nytimes.com/2026/11/16/theater/bryan-cranston-all-my-sons-broadway.html
-
-**Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
-`The defendants were accused of colluding with Iran. Rights groups said the case was marred by torture allegations and raised concerns about religious persecution.`\
-https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
 
