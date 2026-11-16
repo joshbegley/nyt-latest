@@ -1,3 +1,11 @@
+**Grammy Nominations 2027: See the Full List**\
+`The artists, albums and songs up for honors at the 69th annual ceremony were announced Monday. The show will be held on Feb. 7 in Los Angeles and air on ABC and Disney+ after decades on CBS.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
+
+**Winter Nightmare Looms Early in Ukraine as Russia Strikes Relentlessly**\
+`Even as it talks peace, Russia has opened a bombing campaign intended to strip Kyiv and other cities of heat, running water and sanitation this winter.`\
+https://www.nytimes.com/2026/11/16/world/europe/russia-ukraine-winter-campaign.html
+
 **Is Jensen Huang Plotting a Comeback?**\
 `Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
 https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
