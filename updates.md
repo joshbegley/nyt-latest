@@ -1,3 +1,7 @@
+**Raye vs. Rosalía: Do the Grammys Want Tradition or Progress?**\
+`‘Popcast’ reacts to the Grammy nominations for Album of the Year, which include music from Raye, Taylor Swift and Olivia Rodrigo.`\
+https://www.nytimes.com/video/podcasts/100000011288748/raye-vs-rosalia-do-the-grammys-want-tradition-or-progress.html
+
 **Tucked in a Closet, Hidden by a Coat, a Lost Work by Georgia O’Keeffe**\
 `A piece by the famed painter had been squirreled away for decades. Now it’s been found — and may sell for millions.`\
 https://www.nytimes.com/2026/11/16/nyregion/found-georgia-okeeffe-painting.html
