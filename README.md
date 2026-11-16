@@ -1,3 +1,7 @@
+**Is Jensen Huang Plotting a Comeback?**\
+`Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
+https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
+
 **Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
 `The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
 https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
@@ -108,7 +112,7 @@ https://www.nytimes.com/2026/11/16/opinion/affordability-midterms-voters.html
 
 **The Park Avenue Penthouse Owned by Clive Davis Is Listed at $11 Million**\
 `The music impresario, who died in June, lived for decades at the Ritz Tower. Also, Josh Hart of the Knicks re-lists his Florida home.`\
-https://www.nytimes.com/2026/11/16/realestate/the-park-avenue-penthouse-owned-by-clive-davis-is-listed-at-11-million.html
+https://www.nytimes.com/2026/11/16/realestate/clive-davis-penthouse-park-avenue.html
 
 **Permitting Bill Would Charge Data Centers Billions for Power**\
 `The permitting bill could make it easier to build data centers for A.I. but a novel provision would also force data centers to pay much more for power.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/travel/thanksgiving-season-travel-deals.html
 **Milton Glaser’s Chelsea Apartment Is for Sale**\
 `Milton and Shirley Glaser filled their apartment with art and collectibles. With its ample storage, so could its next owner.`\
 https://www.nytimes.com/2026/11/16/realestate/milton-glasers-chelsea-apartment-is-for-sale.html
-
-**The Financial Bubble Cycles Are Getting Worse**\
-`The financialization of our economy, now penetrating Silicon Valley, is generating storms that are both more frequent and more destructive.`\
-https://www.nytimes.com/2026/11/16/opinion/ai-bubble-finance-crisis-deregulation.html
 
