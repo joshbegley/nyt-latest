@@ -1,3 +1,7 @@
+**Gérard Depardieu Withdraws Sexual Assault Appeal, Apologizing to Victims**\
+`The French actor admitted guilt on the morning his appeal trial was to begin in Paris, accepting his conviction for groping two women on a film set.`\
+https://www.nytimes.com/2026/11/16/movies/gerard-depardieu-apology-appeal-withdrawal.html
+
 **Millions Will Travel for Thanksgiving as Air Traffic Recovers From Outage**\
 `Experts said flight schedules were expected to normalize before the holiday next week.`\
 https://www.nytimes.com/2026/11/16/travel/thanksgiving-travel-air-traffic-outage.html
@@ -18,13 +22,13 @@ https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
 https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 
-**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
-`Plus, why “birdbrain” is a misnomer.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
-
 **Finally, a Vaccine for Cancer**\
 `An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
+
+**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
+`Plus, why “birdbrain” is a misnomer.`\
+https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
 
 **NYT Strands Hints for November 17, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026.`\
@@ -95,7 +99,7 @@ https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
 https://www.nytimes.com/2026/11/16/books/review/anita-brookner-hermione-lee.html
 
 **Doubts Loom Over a van Gogh as Auctions Aim for a $2.8 Billion Week**\
-`Major paintings by Cézanne, Picasso and Klimt are positioned to entice ultrawealthy collectors as Sotheby’s seeks resolution for the auction’s most coveted — and contested — painting.`\
+`Major paintings by Cézanne, Picasso and Klimt are positioned to entice collectors as Sotheby’s seeks resolution for the auction’s most coveted painting. Five bellweather works to watch.`\
 https://www.nytimes.com/2026/11/16/arts/design/auctions-new-york-fall-christies-sothebys-van-gogh.html
 
 **Affordability or Antifascism Is a False Choice**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/realestate/milton-glasers-chelsea-apartment-i
 **The Financial Bubble Cycles Are Getting Worse**\
 `The financialization of our economy, now penetrating Silicon Valley, is generating storms that are both more frequent and more destructive.`\
 https://www.nytimes.com/2026/11/16/opinion/ai-bubble-finance-crisis-deregulation.html
-
-**Pope Leo, Weeks After Surgery, Holds Up Well on South America Trip**\
-`When doctors operated on Pope Leo XIV’s lung in October, some wondered if he’d postpone a long-planned trip to South America. It’s gone well so far.`\
-https://www.nytimes.com/2026/11/16/world/europe/pope-leo-peru-health.html
 
