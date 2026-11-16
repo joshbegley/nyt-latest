@@ -1,3 +1,11 @@
+**The Walks That Fire Their Imaginations**\
+`Philip Lim, Kengo Kuma, Joy Harjo and others on their favorite places to amble, from Reykjavík to the Rio Grande.`\
+https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
+
+**Trump Administration Aims to Clamp Down on A.I. Chip Loophole**\
+`Also, new data paves the way for weight-loss drugs for children. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
+
 **United Halts Flights as It Addresses ‘Widespread System Outage’**\
 `The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
@@ -71,7 +79,7 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammo
 https://www.nytimes.com/interactive/2026/11/16/magazine/charles-darwin-origin-species-evolution.html
 
 **10 Days That Changed the World**\
-`There have been 63,977 days since the New York Times began publishing. We chose the most important ones. <strong></strong>`\
+`There have been 63,977 days since the New York Times began publishing. We chose the most important ones.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
 
 **Trump Nominates Budget Deputy for Nonpartisan Federal Watchdog Role**\
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/world/europe/100000011287017/spain-canary-islands-
 **Toukie Smith, Actress, Model and Former Partner of Robert DeNiro, Has Died**\
 `Her brother was a fashion designer, and her onetime partner was Robert De Niro. She had roles on “227” and “Miami Vice,” and access to exclusive parties. She was 74.`\
 https://www.nytimes.com/2026/11/16/arts/television/toukie-smith-dead.html
-
-**Influencer University**\
-`We look inside the life of a sorority influencer.`\
-https://www.nytimes.com/2026/11/16/briefing/influencer-university.html
-
-**Do You Recognize These Characters Who Have Appeared in Multiple Novels?**\
-`Certain authors are adept at slipping familiar names into different books. See how many you know in this short quiz.`\
-https://www.nytimes.com/quiz/2026/11/16/bookreview/recurring-characters-quiz.html
 

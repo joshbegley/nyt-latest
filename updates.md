@@ -1,3 +1,15 @@
+**The Walks That Fire Their Imaginations**\
+`Philip Lim, Kengo Kuma, Joy Harjo and others on their favorite places to amble, from Reykjavík to the Rio Grande.`\
+https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
+
+**Trump Administration Aims to Clamp Down on A.I. Chip Loophole**\
+`Also, new data paves the way for weight-loss drugs for children. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
+
+**10 Days That Changed the World**\
+`There have been 63,977 days since the New York Times began publishing. We chose the most important ones.`\
+https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
+
 **United Halts Flights as It Addresses ‘Widespread System Outage’**\
 `The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
