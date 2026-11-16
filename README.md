@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/16/dining/restaurant-bouncers.html
 https://www.nytimes.com/2026/11/16/upshot/progressives-moderates-democrats-elections.html
 
 **Elon Musk Wants to Merge Tesla and SpaceX. Their Businesses Already Overlap.**\
-`For years, engineers have shuffled between Tesla and SpaceX and the companies have worked on major projects together.`\
+`For years, engineers have shuffled between Tesla and SpaceX, and the companies have worked on major projects together.`\
 https://www.nytimes.com/2026/11/16/business/elon-musk-tesla-spacex.html
 
 **Elon Musk Dreams of Merging Tesla and SpaceX in Move Toward Tech Supremacy**\

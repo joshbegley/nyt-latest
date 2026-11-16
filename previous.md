@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/11/16/movies/james-bond-actors-reviews.html
 `The announcement ends years of speculation over who would take over the role after Daniel Craig’s five-film run.`\
 https://www.nytimes.com/2026/11/16/movies/james-bond-robert-pattinson.html
 
-**New Data Paves the Way for Weight-Loss Drugs in Children as Young as 6**\
+**New Data Paves the Way for Weight-Loss Drugs for Young Children, but Questions Remain**\
 `Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
 https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
 

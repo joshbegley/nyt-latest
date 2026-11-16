@@ -1,3 +1,7 @@
+**New Data Paves the Way for Weight-Loss Drugs for Young Children, but Questions Remain**\
+`Doctors agree that more needs to be done to address childhood obesity, but are divided over the use of powerful GLP-1 drugs.`\
+https://www.nytimes.com/2026/11/16/well/weight-loss-drugs-children.html
+
 **Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
 `Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
 https://www.nytimes.com/2026/11/16/world/middleeast/iran-dams-missile-sites-environmentalists.html
