@@ -1,3 +1,7 @@
+**Raye, Rosalía and Ella Langley Top a Women-Led 2027 Grammys Field**\
+`Langley is the first straight-up country artist to contend for the top album prize in eight years, and Raye’s 11 nods lead all nominees.`\
+https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-ella-langley-raye-rosalia.html
+
 **Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
 `The rules, a topic of fierce debate in the administration, could cut back on Nvidia’s sales to foreign data centers serving Chinese companies.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
