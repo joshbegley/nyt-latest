@@ -1,3 +1,11 @@
+**Tucked in a Closet, Hidden by a Coat, a Lost Work by Georgia O’Keeffe**\
+`A piece by the famed painter had been squirreled away for decades. Now it’s been found — and may sell for millions.`\
+https://www.nytimes.com/2026/11/16/nyregion/found-georgia-okeeffe-painting.html
+
+**Student News Quiz: Mississippi Senate Race, Airline Disruption, James Bond**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/11/16/learning/16studentnewsquiz-ln.html
+
 **United Airlines Grounds Flights as It Reports ‘Widespread System Outage’**\
 `The disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
 https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
