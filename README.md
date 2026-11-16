@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/11/16/arts/television/the-altruists-and-8-more-show
 `Quotation of the Day for Monday, November 16, 2026.`\
 https://www.nytimes.com/2026/11/16/pageoneplus/quote-of-the-day-ai-can-help-judges-score-more-precisely-but-it-fails-on-artistry.html
 
-**A Year On, Mark Carney of Canada Returns to China a Political Star**\
-`Canada’s leader is courting Europe, but the bigger payoff might be in Asia, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
+**A Year On, Mark Carney of Canada Returns to Asia a Political Star**\
+`Canada’s leader is courting Europe, but the bigger payoff might be in China, where he will share summit stages with Xi Jinping, Vladimir Putin and President Trump.`\
 https://www.nytimes.com/2026/11/16/world/canada/carney-china-xi-trump-putin-trade.html
 
 **Searching for the Last Stoats of Waiheke Island**\
