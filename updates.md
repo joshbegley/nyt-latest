@@ -1,3 +1,7 @@
+**How Could a Router Lead to a Nationwide Ground Stop?**\
+`Aviation experts and federal officials said the network outage began after a new piece of networking equipment began flooding the rest of the system with data. The underlying cause is unclear.`\
+https://www.nytimes.com/2026/11/15/us/router-network-faa-airline-ground-stop.html
+
 **Miguel Ángel Félix Gallardo, Mexican Drug Lord, Dies in Prison**\
 `Miguel Ángel Félix Gallardo, who helped build the foundations of modern-day drug empires, was the subject of a major U.S. manhunt for his role in the murder of a D.E.A. agent.`\
 https://www.nytimes.com/2026/11/15/world/americas/felix-gallardo-mexico-dead.html
