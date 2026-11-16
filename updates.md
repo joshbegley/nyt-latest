@@ -1,3 +1,11 @@
+**Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
+`President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
+https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
+
+**Person in Custody in Illinois Bomb Case, Officials Say**\
+`Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
+https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
+
 **John H. Powers III to Lead NIAID Amid Turmoil**\
 `Dr. John H. Powers III was appointed director of the National Institute of Allergy and Infectious Diseases, a powerful post held for decades by Dr. Anthony Fauci.`\
 https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html

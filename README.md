@@ -1,3 +1,11 @@
+**Chase Bank Reports Technical Issue Disrupting Transactions**\
+`Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
+https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
+
+**At a Roman Palazzo, a U.S. Cultural Agency Defends the Western Tradition**\
+`A gathering organized by the National Endowment for the Humanities brought Italian intellectuals together with American conservatives who warn of cultural decay.`\
+https://www.nytimes.com/2026/11/16/arts/national-endowment-humanities-rome-conference.html
+
 **Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
 `President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
 https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
 **South Korea to Examine How K-Pop Industry Treats Underage Performers**\
 `The announcement came after a New York Times investigation about the restrictive contracts of the group NewJeans, signed when its members were 14 to 17.`\
 https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html
-
-**NYT Connections Answers for November 17, 2026**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 17, 2026`\
-https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
-
-**What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
-`Plus, why “birdbrain” is a misnomer.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
 
