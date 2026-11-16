@@ -1,3 +1,7 @@
+**‘Downstate’ Review: How Much Should Sex Offenders Be Punished?**\
+`The nausea-inducing, adrenaline-pumping moral drama is revived by the director Joe Mantello at the Booth Theater.`\
+https://www.nytimes.com/2026/11/15/theater/downstate-review-broadway-freeman-sadoski.html
+
 **Who Maintains MoMA’s Paintings?**\
 `Yes, she was allowed to touch the art. Very carefully.`\
 https://www.nytimes.com/interactive/2026/11/15/nyregion/moma-art-conservator.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/us/politics/democrats-2028-presidential-candi
 **The Reward for Black Women’s Work in Georgia: Leaders Who Look Like Them**\
 `Diligent ground-level efforts by Black women helped make Democrats competitive again in Georgia. Now they’ll hold seven of the top eight elected leadership roles in the state.`\
 https://www.nytimes.com/2026/11/15/us/black-women-georgia-leaders.html
-
-**Behind the All-American Ralph Lauren Brand Is a French C.E.O.**\
-`Patrice Louvet on working with Ralph Lauren, the man, winning over Generation Z and striking a balance between magic and logic.`\
-https://www.nytimes.com/2026/11/15/business/ralph-lauren-patrice-louvet.html
 

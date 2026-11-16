@@ -1,3 +1,7 @@
+**‘Downstate’ Review: How Much Should Sex Offenders Be Punished?**\
+`The nausea-inducing, adrenaline-pumping moral drama is revived by the director Joe Mantello at the Booth Theater.`\
+https://www.nytimes.com/2026/11/15/theater/downstate-review-broadway-freeman-sadoski.html
+
 **Who Maintains MoMA’s Paintings?**\
 `Yes, she was allowed to touch the art. Very carefully.`\
 https://www.nytimes.com/interactive/2026/11/15/nyregion/moma-art-conservator.html
