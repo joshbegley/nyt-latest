@@ -1,3 +1,7 @@
+**What to Know About Trump’s Trip to Asia**\
+`President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
+https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
+
 **Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
 `Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
 https://www.nytimes.com/2026/11/16/world/europe/iran-dams-missile-sites-environmentalists.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/world/australia/new-zealand-stoats.html
 **They Defeated a Strongman. But Can They Run a Country?**\
 `Serbia’s student movement was deliberately leaderless and made group decisions to unseat Aleksandar Vucic. Now no one seems quite sure what happens next.`\
 https://www.nytimes.com/2026/11/16/world/europe/serbia-students-vucic-election.html
-
-**International Students Are Turning Away From U.S. Universities**\
-`For a second year, Trump administration policies appear to be scaring away international students, disrupting the finances of the American colleges that depend on them.`\
-https://www.nytimes.com/2026/11/16/us/international-student-college-enrollment-declines.html
 
