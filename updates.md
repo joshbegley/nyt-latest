@@ -1,3 +1,11 @@
+**At the 2026 Governors Awards, Glenn Close and Ridley Scott Get Honorary Oscars**\
+`The co-director of “You Can See Everything” was the man of the hour at the honorary Oscars. The actual recipients included Glenn Close and Ridley Scott.`\
+https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ridley-scott.html
+
+**Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
+`The defendants were accused of colluding with Iran. Rights groups said the case was marred by torture allegations and raised concerns about religious persecution.`\
+https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
+
 **What Nithya Raman Plans to Do First as L.A. Mayor**\
 `Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html

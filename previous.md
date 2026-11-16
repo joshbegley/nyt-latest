@@ -1,3 +1,7 @@
+**At the 2026 Governors Awards, Glenn Close and Ridley Scott Get Honorary Oscars**\
+`The co-director of “You Can See Everything” was the man of the hour at the honorary Oscars. The actual recipients included Glenn Close and Ridley Scott.`\
+https://www.nytimes.com/2026/11/16/movies/governors-awards-oscars-glenn-close-ridley-scott.html
+
 **Book Review: ‘Nanny Nanny,’ by K. Chiucarello**\
 `A single, traumatized 35-year-old decides she wants to have a baby. How hard can it be?`\
 https://www.nytimes.com/2026/11/16/books/review/nanny-nanny-k-chiucarello.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/11/16/arts/music/grammy-nominations-ella-langley-ra
 https://www.nytimes.com/2026/11/16/theater/bryan-cranston-all-my-sons-broadway.html
 
 **Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
-`The defendants were accused of colluding with Iran. Rights groups said the case raised concerns about religious persecution in Bahrain, which is ruled by a Sunni monarchy.`\
+`The defendants were accused of colluding with Iran. Rights groups said the case was marred by torture allegations and raised concerns about religious persecution.`\
 https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
 
 **Grammy Nominations 2027: See the Full List**\
@@ -114,13 +118,13 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
-`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
-https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
-
 **What Nithya Raman Plans to Do First as L.A. Mayor**\
 `Once she takes office, she pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. But budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
+
+**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
+`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
+https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/us/pokemon-cards-value-investors.html
 **Billions in Insurance Money Is Being Bet on AI Debt, and Analyst Are Nervous**\
 `Insurance companies are investing billions of their customers’ money into A.I. deals as analysts warn of mounting risks.`\
 https://www.nytimes.com/2026/11/16/business/insurance-ai-debt.html
-
-**Trump’s Plan for A.I. Supremacy Fuels Resistance in the Philippines**\
-`A planned American-led artificial intelligence hub in the Philippines has sparked fierce opposition over concerns about displacement, resources and threats to national sovereignty.`\
-https://www.nytimes.com/2026/11/16/business/trump-paxsilica-philippines-ai.html
 
