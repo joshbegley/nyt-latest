@@ -1,3 +1,7 @@
+**Taking Credit**\
+`My colleagues look at the debate inside the Democratic Party about which faction can take credit for the midterm romp.`\
+https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
+
 **South Korea to Examine How K-Pop Industry Treats Underage Performers**\
 `The announcement came after a New York Times investigation about the restrictive contracts of the group NewJeans, signed when its members were 14 to 17.`\
 https://www.nytimes.com/2026/11/16/world/asia/kpop-underage-idols-survey.html

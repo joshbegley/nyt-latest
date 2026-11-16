@@ -1,3 +1,7 @@
+**‘Steering Failure’ Likely Caused Tanker’s Collision With Riverboat, N.T.S.B. Says**\
+`A tanker struck a docked passenger ship in New Orleans on Friday, causing it to capsize. Investigators emphasized that their findings were preliminary.`\
+https://www.nytimes.com/2026/11/16/us/new-orleans-cruise-ship-steering-failure.html
+
 **Taking Credit**\
 `My colleagues look at the debate inside the Democratic Party about which faction can take credit for the midterm romp.`\
 https://www.nytimes.com/2026/11/16/briefing/taking-credit.html
@@ -74,13 +78,13 @@ https://www.nytimes.com/2026/11/16/opinion/foer-roth-nyt-175.html
 `Sonnie Brown has collected dozens of acting credits each year for the last two decades, but makes money on the side by running a cafe.`\
 https://www.nytimes.com/interactive/2026/11/16/nyregion/nyc-budgeting-affordability-brown.html
 
-**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
-`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
-https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
-
 **Raman Has Lots of Plans. Los Angeles Has Lots of Obstacles.**\
 `Mayor-elect Nithya Raman pledges to use metrics to deliver “a city that works” after a pandemic, wildfires and clashes with Trump. Budget constraints and more stand in the way.`\
 https://www.nytimes.com/2026/11/16/us/raman-la-mayor-priorities.html
+
+**Trump Has Eased Up on Russia, but Russia Hasn’t Eased Up on Ukraine**\
+`As the White House repeatedly reached out to Russia this fall, Russian attacks caused some of the darkest days in Ukraine since the beginning of the war.`\
+https://www.nytimes.com/interactive/2026/11/16/world/europe/trump-ukraine-russia-war.html
 
 **Book Review: ‘Anita Brookner: Art and Life,’ by Hermione Lee**\
 `Relatively little is known about the writer’s private life, but Hermione Lee combats some public perceptions in a new book.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/world/europe/pope-leo-peru-health.html
 **How a Pennsylvania Teacher Builds Skills With Our Student Opinion Feature**\
 `By responding to online forums, students practice narrative and argumentative writing; participate in civic discourse; and find an international audience for their work.`\
 https://www.nytimes.com/2026/11/16/learning/how-a-pennsylvania-teacher-builds-skills-with-our-student-opinion-feature.html
-
-**Attacks on Ukraine’s Power Grid Leave Cities in Darkness**\
-`Russia has opened a bombing campaign aimed at stripping cities in Ukraine of heat, running water and sanitation this winter.`\
-https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attacks-power-grid.html
 
