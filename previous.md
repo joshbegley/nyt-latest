@@ -1,3 +1,7 @@
+**10 Numbers That Might Change How You See Asia**\
+`From semiconductor dominance to new power grids, defense deals and K-pop, the region — beyond China — is becoming increasingly interconnected and self-reliant.`\
+https://www.nytimes.com/2026/11/16/world/asia/asean-trade-security-technology.html
+
 **Republicans Can’t Rely on Trump Voters Anymore**\
 `Tim Carney, a senior political columnist at The Washington Examiner, argues that Trump’s voters never became reliably conservative and Republican. On “The Opinions,” he explains why “there’s no juice left to squeeze from MAGA” as Trump’s second term comes to an end.`\
 https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-trump-voters-anymore.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convi
 **Grammy Nominations 2027: See the Full List**\
 `The artists, albums and songs up for honors at the 69th annual ceremony were announced Monday. The show will be held on Feb. 7 in Los Angeles and air on ABC and Disney+ after decades on CBS.`\
 https://www.nytimes.com/2026/11/16/arts/music/grammy-nominee-list-2027.html
-
-**Is Jensen Huang Plotting a Comeback?**\
-`Prominent figures in Silicon Valley want to see Jensen Huang reinstalled as Nvidia’s boss. Some in the Trump administration don’t want him to return.`\
-https://www.nytimes.com/2026/11/16/business/dealbook/huang-comeback-nvidia.html
 
