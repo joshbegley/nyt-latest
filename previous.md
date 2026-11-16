@@ -1,3 +1,7 @@
+**Pipeline Executive Worked for Alan Armstrong During Permitting Push**\
+`Senator Alan Armstrong hired his former company’s top lawyer temporarily, while the chamber drafted a sweeping energy bill. Ethics officials signed off on the unusual arrangement.`\
+https://www.nytimes.com/2026/11/16/climate/alan-armstrong-oklahoma.html
+
 **Pilots Kept Contact With Controllers During Nationwide Halt to Flights**\
 `Pilots were generally able to maintain contact with air traffic controllers and airline staff on the ground despite an outage that caused a nearly five-hour halt to departures.`\
 https://www.nytimes.com/2026/11/16/business/faa-ground-stop-pilots-radio-controllers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/technology/california-openai-ai-safety.html
 **Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
 `Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
 https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
-
-**Flights Grounded: Who Is to Blame?**\
-`Readers cite mismanagement and ill-advised cuts by the Trump administration for the air travel breakdown on Friday.`\
-https://www.nytimes.com/2026/11/16/opinion/airlines-travel-grounding.html
 

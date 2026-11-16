@@ -1,3 +1,7 @@
+**Pipeline Executive Worked for Alan Armstrong During Permitting Push**\
+`Senator Alan Armstrong hired his former company’s top lawyer temporarily, while the chamber drafted a sweeping energy bill. Ethics officials signed off on the unusual arrangement.`\
+https://www.nytimes.com/2026/11/16/climate/alan-armstrong-oklahoma.html
+
 **Pilots Kept Contact With Controllers During Nationwide Halt to Flights**\
 `Pilots were generally able to maintain contact with air traffic controllers and airline staff on the ground despite an outage that caused a nearly five-hour halt to departures.`\
 https://www.nytimes.com/2026/11/16/business/faa-ground-stop-pilots-radio-controllers.html
