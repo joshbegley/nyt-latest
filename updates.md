@@ -1,3 +1,11 @@
+**The Local: Why Minnesota is a literary hotbed**\
+`Also, “A Christmas Carol” opens at the Guthrie.`\
+https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
+
+**Austria May Strip Former Foreign Minister Karin Kneissl of Citizenship**\
+`The onetime foreign minister, Karin Kneissl, has lauded her new home for its “genuine freedom” and used it as a perch to attack her old one.`\
+https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenship.html
+
 **Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
 `A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
 https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
