@@ -1,3 +1,7 @@
+**Who Maintains MoMA’s Paintings?**\
+`Yes, she was allowed to touch the art. Very carefully.`\
+https://www.nytimes.com/interactive/2026/11/15/nyregion/moma-art-conservator.html
+
 **How Could a Router Lead to a Nationwide Ground Stop?**\
 `Aviation experts and federal officials said the network outage began after a new piece of networking equipment began flooding the rest of the system with data. The underlying cause is unclear.`\
 https://www.nytimes.com/2026/11/15/us/router-network-faa-airline-ground-stop.html

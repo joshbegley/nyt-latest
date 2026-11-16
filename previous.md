@@ -1,3 +1,7 @@
+**Who Maintains MoMA’s Paintings?**\
+`Yes, she was allowed to touch the art. Very carefully.`\
+https://www.nytimes.com/interactive/2026/11/15/nyregion/moma-art-conservator.html
+
 **How Could a Router Lead to a Nationwide Ground Stop?**\
 `Aviation experts and federal officials said the network outage began after a new piece of networking equipment began flooding the rest of the system with data. The underlying cause is unclear.`\
 https://www.nytimes.com/2026/11/15/us/router-network-faa-airline-ground-stop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/us/black-women-georgia-leaders.html
 **Behind the All-American Ralph Lauren Brand Is a French C.E.O.**\
 `Patrice Louvet on working with Ralph Lauren, the man, winning over Generation Z and striking a balance between magic and logic.`\
 https://www.nytimes.com/2026/11/15/business/ralph-lauren-patrice-louvet.html
-
-**How Adam Driver, Scarlett Johansson and Miles Teller Built a Family in ‘Paper Tiger’**\
-`James Gray’s latest autobiographical film, set in a crime-ridden ’80s New York, centers on what one of its stars jokingly calls “a throuple.”`\
-https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-miles-teller-interview-paper-tiger.html
 
