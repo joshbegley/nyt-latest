@@ -1,3 +1,7 @@
+**Attacks on Ukraine’s Power Grid Leave Cities in Darkness**\
+`Russia has opened a bombing campaign aimed at stripping cities in Ukraine of heat, running water and sanitation this winter.`\
+https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attacks-power-grid.html
+
 **NYT Spelling Bee Answers for November 16, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/16/crosswords/spelling-bee-forum.html

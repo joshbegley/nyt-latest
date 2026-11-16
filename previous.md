@@ -1,3 +1,7 @@
+**Attacks on Ukraine’s Power Grid Leave Cities in Darkness**\
+`Russia has opened a bombing campaign aimed at stripping cities in Ukraine of heat, running water and sanitation this winter.`\
+https://www.nytimes.com/video/world/europe/100000011286553/ukraine-russia-attacks-power-grid.html
+
 **NYT Spelling Bee Answers for November 16, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/16/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/crosswords/strands-sidekick-988.html
 **Today’s Wordle Hints for November 16, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 16, 2026.`\
 https://www.nytimes.com/2026/11/15/crosswords/wordle-review-1976.html
-
-**The Flaw at the Heart of Anthropic’s I.P.O.**\
-`Natasha Sarin read the A.I. company’s 300-page I.P.O. filing. Here’s what worries her.`\
-https://www.nytimes.com/video/opinion/100000011276375/the-flaw-at-the-heart-of-anthropics-ipo.html
 
