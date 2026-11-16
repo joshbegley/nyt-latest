@@ -1,3 +1,7 @@
+**Miguel Ángel Félix Gallardo, Mexican Drug Lord, Dies in Prison**\
+`Miguel Ángel Félix Gallardo, who helped build the foundations of modern-day drug empires, was the subject of a major U.S. manhunt for his role in the murder of a D.E.A. agent.`\
+https://www.nytimes.com/2026/11/15/world/americas/felix-gallardo-mexico-dead.html
+
 **The Joyful Nerdiness of a 66-Hour, Nonstop Reading of ‘The Power Broker’**\
 `New Yorkers read the 1,162-page book around the clock for four days, reflecting on the legacy of Robert Moses and celebrating its author, Robert Caro, who read the final pages.`\
 https://www.nytimes.com/2026/11/15/nyregion/power-broker-marathon-reading-robert-moses-caro.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/15/movies/adam-driver-scarlett-johansson-miles-t
 **A Campus Sexual Assault Lawsuit Tests an Unusual Legal Strategy**\
 `Frustrated by Texas Christian University’s handling of her sexual assault case, a former student from Virginia is suing under her home state’s consumer protection laws.`\
 https://www.nytimes.com/2026/11/15/us/sexual-assault-lawsuit-texas-christian-university-consumer-protection.html
-
-**Book Review: ‘Stations,’ by Louise Kennedy**\
-`A young Irishwoman in London tests the limits of commitment in Louise Kennedy’s “Stations.”`\
-https://www.nytimes.com/2026/11/15/books/review/stations-louise-kennedy.html
 
