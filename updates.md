@@ -1,3 +1,7 @@
+**Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
+`Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
+https://www.nytimes.com/2026/11/16/world/middleeast/iran-dams-missile-sites-environmentalists.html
+
 **The Philharmonic and Met Opera Duel With Back-to-Back ‘Toscas’**\
 `Puccini’s breakneck tragedy has always been popular in New York: so much that you could hear two versions in 24 hours last weekend.`\
 https://www.nytimes.com/2026/11/16/arts/music/tosca-met-opera-new-york-philharmonic.html
