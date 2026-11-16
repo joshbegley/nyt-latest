@@ -99,7 +99,7 @@ https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenshi
 https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
 
 **Chase Bank Transactions Disrupted by ‘Technical Issue’ Amid Outage Reports**\
-`Chase was among several U.S. banks whose customers reported technical issues on Monday.`\
+`After technical problems grounded flights nationwide and Microsoft products failed, the banking issues added to a sense of doom about the systems underpinning daily life.`\
 https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
 
 **At a Roman Palazzo, a U.S. Cultural Agency Defends the Western Tradition**\
