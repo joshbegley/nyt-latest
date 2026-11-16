@@ -1,3 +1,15 @@
+**Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
+`The rules, a topic of fierce debate in the administration, could cut back on Nvidia’s sales to foreign data centers serving Chinese companies.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
+
+**Raye, Rosalía and Ella Langley Top a Women-Led 2027 Grammys Field**\
+`Langley is the first straight-up country artist to contend for the top album prize in eight years, and Raye’s 11 nods lead all nominees.`\
+https://www.nytimes.com/2026/11/16/arts/music/ella-langley-raye-2027-grammy-nominations.html
+
+**Bryan Cranston to Star in ‘All My Sons’ on Broadway Next Spring**\
+`The production, also starring Marianne Jean-Baptiste, is directed by Ivo van Hove and had an Olivier-winning run in London.`\
+https://www.nytimes.com/2026/11/16/theater/bryan-cranston-all-my-sons-broadway.html
+
 **Bahrain Convicts Dozens of Shiite Clerics in Sweeping Terrorism Trial**\
 `The defendants were accused of colluding with Iran. Rights groups said the case raised concerns about religious persecution in Bahrain, which is ruled by a Sunni monarchy.`\
 https://www.nytimes.com/2026/11/16/world/middleeast/bahrain-shiite-clerics-convicted.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/16/business/trump-paxsilica-philippines-ai.html
 **Book Review: ‘The Sensualist,’ by Gary Shteyngart**\
 `Gary Shteyngart swills martinis, calls on famous capybaras and buys a life-changing bespoke suit in a new essay collection.`\
 https://www.nytimes.com/2026/11/16/books/review/gary-shteyngart-sensualist-pure-pleasure.html
-
-**American Global Health Aid Isn’t Dead. It’s Changing.**\
-`The Trump administration promised to make aid programs more “America First.” Some countries are balking.`\
-https://www.nytimes.com/2026/11/16/world/american-global-health-aid-isnt-dead-its-changing.html
-
-**Wall Street Moved Into Insurance. Can State Regulators Keep Up?**\
-`Analysts are questioning how regulators missed billions of improperly reported investments at the heart of an investigation into Mark Walter’s companies.`\
-https://www.nytimes.com/2026/11/16/business/insurance-regulators-wall-street.html
-
-**Word of the Day: lackadaisically**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/16/learning/word-of-the-day-lackadaisically.html
 

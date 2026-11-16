@@ -1,3 +1,15 @@
+**Trump Administration Moves to Close A.I. Chip Loophole Ahead of China Trip**\
+`The rules, a topic of fierce debate in the administration, could cut back on Nvidia’s sales to foreign data centers serving Chinese companies.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-loophole.html
+
+**Raye, Rosalía and Ella Langley Top a Women-Led 2027 Grammys Field**\
+`Langley is the first straight-up country artist to contend for the top album prize in eight years, and Raye’s 11 nods lead all nominees.`\
+https://www.nytimes.com/2026/11/16/arts/music/ella-langley-raye-2027-grammy-nominations.html
+
+**Bryan Cranston to Star in ‘All My Sons’ on Broadway Next Spring**\
+`The production, also starring Marianne Jean-Baptiste, is directed by Ivo van Hove and had an Olivier-winning run in London.`\
+https://www.nytimes.com/2026/11/16/theater/bryan-cranston-all-my-sons-broadway.html
+
 **Apple Was Late to the Video Podcast Boom. Now It’s Trying to Catch Up.**\
 `They will soon be free to all Apple TV users and will appear on more than one billion devices that have the app, including Rokus and smart TVs.`\
 https://www.nytimes.com/2026/11/16/business/media/apple-tv-podcasts-youtube.html
