@@ -1,3 +1,7 @@
+**What to Know About Trump’s Trip to Asia**\
+`President Trump will also meet with regional leaders, including Australia’s prime minister, who said “we want to see a de-escalation in the conflicts.”`\
+https://www.nytimes.com/2026/11/16/world/asia/trump-asia-china-xi-putin.html
+
 **Airstrikes on Iran Missile Sites May Shed Light on Justification for Dams**\
 `Environmentalists have long puzzled over a wide network of water projects lacking any obvious justification. Then their areas were targeted in airstrikes.`\
 https://www.nytimes.com/2026/11/16/world/europe/iran-dams-missile-sites-environmentalists.html
