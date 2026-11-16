@@ -1,3 +1,7 @@
+**Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
+`President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
+https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
+
 **Supreme Court Rejects Trump Bid to Revive University Research Cuts**\
 `The justices left in place a lower-court decision to block the administration from cutting millions in grants to University of California researchers over perceived ties to diversity initiatives.`\
 https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of-california.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/11/16/world/europe/deport-rwanda-asylum-migration.h
 `The handmade decoration can brighten up a door or be used as a centerpiece on a holiday table.`\
 https://www.nytimes.com/2026/11/16/t-magazine/foraged-wreath-holidays.html
 
-**Person Detained in Illinois Bomb Case, Official Says**\
+**Person in Custody in Illinois Bomb Case, Officials Say**\
 `Significant portions of Peoria and East Peoria were evacuated on Friday night after officials found and deactivated an explosive at an ethanol plant.`\
 https://www.nytimes.com/2026/11/16/us/peoria-bomb-threat-arrest.html
 
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/16/crosswords/connections-companion-1255.html
 **What’s Behind Back-to-Back Meltdowns at the F.A.A. and Microsoft**\
 `Plus, why “birdbrain” is a misnomer.`\
 https://www.nytimes.com/2026/11/16/podcasts/the-headlines/faa-microsoft-outage.html
-
-**Finally, a Vaccine for Cancer**\
-`An experimental vaccine has been found to prevent recurrence of melanoma. Scientists hope it won’t be the last.`\
-https://www.nytimes.com/2026/11/16/podcasts/the-daily/vaccine-cancer-melanoma.html
 
