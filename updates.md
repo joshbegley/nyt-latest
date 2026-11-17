@@ -1,3 +1,15 @@
+**Grand Theft Auto VI Set to Make Billions**\
+`The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
+https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
+
+**Rob Sand Thinks Political Parties Are the Problem**\
+`“When I look at the two-choice political system, all I see is temptation.” Rob Sand, the Democratic governor-elect in Iowa, explains his critique of political parties on “The Ezra Klein Show.”`\
+https://www.nytimes.com/video/opinion/100000011286752/rob-sand-thinks-political-parties-are-the-problem.html
+
+**Duffy Outlines Request for $50 Billion for Air Traffic Improvements**\
+`The one-page explanation, which will be laid out for Republican members of Congress Tuesday, was thin on specifics.`\
+https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
+
 **Jensen Huang Says He Would Return as Nvidia CEO if Asked**\
 `Mr. Huang resigned as chief executive of the company last week after revelations that he had affairs with an employee and a woman linked to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
