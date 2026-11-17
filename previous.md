@@ -1,3 +1,7 @@
+**Classified N.S.A. Network Goes Down, Causing Work Disruptions**\
+`There are currently no signs that the outage is the result of a cyberattack or other nefarious activity, according to people familiar with the matter.`\
+https://www.nytimes.com/2026/11/17/us/politics/nsa-down-network-outage-nsanet.html
+
 **The U.S. Lost Its Measles Elimination Status. Here’s What That Means.**\
 `The U.S. has lost its measles elimination status in a historic setback. Apoorva Mandavilli, a science and global health reporter, outlines the ways that the health system will have to adapt to confront the disease.`\
 https://www.nytimes.com/video/us/100000011273308/the-us-lost-its-measles-elimination-status-heres-what-that-means.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/us/politics/trump-china-ai-tensions.html
 **As Trump and Xi Mingle, Their Governments Are Arming Up**\
 `Public displays of friendship contrast with mounting trade and investment restrictions, highlighting the widening rift between the two economies.`\
 https://www.nytimes.com/2026/11/17/business/trump-xi-meeting-tensions.html
-
-**After ‘Boston,’ Where Does Stella Lefty Go?**\
-`The pop-country upstart workshopped a song on TikTok that became one of the year’s biggest hits. But crowdsourcing can only take a live show so far.`\
-https://www.nytimes.com/2026/11/17/arts/music/stella-lefty-boston-tour.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

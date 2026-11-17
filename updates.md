@@ -1,3 +1,7 @@
+**Classified N.S.A. Network Goes Down, Causing Work Disruptions**\
+`There are currently no signs that the outage is the result of a cyberattack or other nefarious activity, according to people familiar with the matter.`\
+https://www.nytimes.com/2026/11/17/us/politics/nsa-down-network-outage-nsanet.html
+
 **The U.S. Lost Its Measles Elimination Status. Here’s What That Means.**\
 `The U.S. has lost its measles elimination status in a historic setback. Apoorva Mandavilli, a science and global health reporter, outlines the ways that the health system will have to adapt to confront the disease.`\
 https://www.nytimes.com/video/us/100000011273308/the-us-lost-its-measles-elimination-status-heres-what-that-means.html
