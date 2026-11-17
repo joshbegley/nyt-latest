@@ -1,3 +1,7 @@
+**Disney Plans to Finance Growth With $3 Billion in Cost Savings**\
+`The company reported a surge in quarterly profit and, in a surprise, said it would stop disclosing how much money its streaming business makes.`\
+https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
+
 **Tracking China’s War of Words Against Japan**\
 `Beijing is running a concerted campaign to paint Japan as an aggressor and resurgent military threat, according to a Times analysis.`\
 https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html

@@ -1,3 +1,7 @@
+**Disney Plans to Finance Growth With $3 Billion in Cost Savings**\
+`The company reported a surge in quarterly profit and, in a surprise, said it would stop disclosing how much money its streaming business makes.`\
+https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
+
 **Tracking China’s War of Words Against Japan**\
 `Beijing is running a concerted campaign to paint Japan as an aggressor and resurgent military threat, according to a Times analysis.`\
 https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/movies/100000011173613/will-ai-make-this-tedious-h
 **A New, Bold Antarctic Rescue: Bringing Shackleton’s Outpost Back to Life**\
 `An abandoned station manager’s villa — the site of a historic effort to save the explorer’s marooned crew — has now been restored. Take a tour inside.`\
 https://www.nytimes.com/2026/11/17/science/a-new-bold-antarctic-rescue-bringing-shackletons-outpost-back-to-life.html
-
-**Watches That Come Inside Doughnut (Cases)**\
-`The Donut Watch Company, in Kuala Lumpur, says its focus is horology and fun.`\
-https://www.nytimes.com/2026/11/17/fashion/donut-watch-company-malaysia.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

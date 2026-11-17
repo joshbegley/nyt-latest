@@ -1,3 +1,7 @@
+**Born Sick**\
+`We look at the consequences of measles in pregnancy.`\
+https://www.nytimes.com/2026/11/17/briefing/born-with-measles.html
+
 **Disney Plans to Finance Growth With $3 Billion in Cost Savings**\
 `The company reported a surge in quarterly profit and, in a surprise, said it would stop disclosing how much money its streaming business makes.`\
 https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/17/fashion/8-myths-about-watches.html
 **Will A.I. Make This Tedious Hollywood Job Easier?**\
 `A.I. tools are promising to speed up one of the most-time intensive and boring jobs in Hollywood. Matt Stevens, a New York Times culture reporter, unpacks one of the first concrete uses of A.I. in the industry with visual effects artists.`\
 https://www.nytimes.com/video/movies/100000011173613/will-ai-make-this-tedious-hollywood-job-easier.html
-
-**A New, Bold Antarctic Rescue: Bringing Shackleton’s Outpost Back to Life**\
-`An abandoned station manager’s villa — the site of a historic effort to save the explorer’s marooned crew — has now been restored. Take a tour inside.`\
-https://www.nytimes.com/2026/11/17/science/a-new-bold-antarctic-rescue-bringing-shackletons-outpost-back-to-life.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
