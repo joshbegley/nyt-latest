@@ -1,3 +1,11 @@
+**El Niño Draws Sea Turtles to California’s Coast for the First Time**\
+`The California coast has seen an influx of olive ridley sea turtles, which are the smallest such reptiles and are normally found in tropical waters.`\
+https://www.nytimes.com/2026/11/16/us/sea-turtles-california.html
+
+**Baby Sea Turtles Swim Into Ocean Off California Coast**\
+`Fifty-four newborn olive ridley sea turtles, each roughly the size of a large strawberry and not weighing much more, made history this week.`\
+https://www.nytimes.com/video/us/100000011288147/sea-turtles-california-animal-rescue.html
+
 **The Nvidia Scandal Reveals an Administration Willing to Sell America Out**\
 `It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
 https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenshi
 **Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
 `A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
 https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
-
-**Chase Bank Transactions Disrupted by ‘Technical Issue’ Amid Outage Reports**\
-`After technical problems grounded flights nationwide and Microsoft products failed, the banking issues added to a sense of doom about the systems underpinning daily life.`\
-https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
-
-**At a Roman Palazzo, a U.S. Cultural Agency Defends the Western Tradition**\
-`A gathering organized by the National Endowment for the Humanities brought Italian intellectuals together with American conservatives who warn of cultural decay.`\
-https://www.nytimes.com/2026/11/16/arts/national-endowment-humanities-rome-conference.html
 
