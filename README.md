@@ -1,3 +1,7 @@
+**‘When a Witness Recants’ Review: Wrongfully Imprisoned for 36 Years**\
+`With author Ta-Nehisi Coates as a guide, this documentary deepens a story of injustice and exoneration for three men in Baltimore.`\
+https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
+
 **Cabbage, Apple and Date Salad With Lemon Tahini**\
 `This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
 https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
 **Nvidia’s Earnings Call Is a High-Stakes Moment**\
 `Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
 https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
-
-**A Kalshi Ad With Martha Stewart Warns Against Insider Trading**\
-`The lifestyle guru appears in a new ad by the prediction market Kalshi as it announces changes to how it polices illicit trading on its platform.`\
-https://www.nytimes.com/2026/11/17/business/dealbook/kalshi-martha-stewart-ad.html
 

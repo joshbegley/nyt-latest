@@ -1,3 +1,15 @@
+**Cabbage, Apple and Date Salad With Lemon Tahini**\
+`This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
+https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
+
+**Fall Squash Galette**\
+`This autumnal vegetarian centerpiece is here to make the most out of a bevy of squash — both sweet winter squash and tender zucchini.`\
+https://www.nytimes.com/video/dining/100000011288714/fall-squash-galette.html
+
+**Sticky Apple and Miso Spiral**\
+`Thanksgiving desserts aren’t just about comfort and nostalgia — they require a wow factor, too. This coiled, flaky apple tart looks mesmerizing but is surprisingly easy to build.`\
+https://www.nytimes.com/video/dining/100000011288564/sticky-apple-and-miso-spiral.html
+
 **Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
 `President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
 https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
@@ -107,7 +119,7 @@ https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 
 **A San Francisco Artist Nearly Died. Strangers Helped Him Learn How to Draw Again.**\
-`Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+`Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
 **President Trump Starts Asia Trip in Manila by Shrugging Off U.S. Concerns**\
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.ht
 **A Kalshi Ad With Martha Stewart Warns Against Insider Trading**\
 `The lifestyle guru appears in a new ad by the prediction market Kalshi as it announces changes to how it polices illicit trading on its platform.`\
 https://www.nytimes.com/2026/11/17/business/dealbook/kalshi-martha-stewart-ad.html
-
-**Welcome Back, America! It’s Your Turn to Be Sorry.**\
-`This month, the world’s most unreliable boyfriend began to redeem himself.`\
-https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
-
-**Trump’s New A.I. Chip Rules Rattle Southeast Asia**\
-`New U.S. restrictions could jeopardize billions in investment and force countries in the region to strike an increasingly difficult balance between Washington and Beijing.`\
-https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
-
-**Trump’s Whirlwind Asia Trip Begins in the Philippines**\
-`President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
-https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 

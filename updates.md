@@ -1,3 +1,19 @@
+**Cabbage, Apple and Date Salad With Lemon Tahini**\
+`This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
+https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
+
+**Fall Squash Galette**\
+`This autumnal vegetarian centerpiece is here to make the most out of a bevy of squash — both sweet winter squash and tender zucchini.`\
+https://www.nytimes.com/video/dining/100000011288714/fall-squash-galette.html
+
+**Sticky Apple and Miso Spiral**\
+`Thanksgiving desserts aren’t just about comfort and nostalgia — they require a wow factor, too. This coiled, flaky apple tart looks mesmerizing but is surprisingly easy to build.`\
+https://www.nytimes.com/video/dining/100000011288564/sticky-apple-and-miso-spiral.html
+
+**A San Francisco Artist Nearly Died. Strangers Helped Him Learn How to Draw Again.**\
+`Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
+
 **Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
 `President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
 https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
