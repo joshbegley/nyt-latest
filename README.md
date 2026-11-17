@@ -1,3 +1,7 @@
+**Another**\
+`This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
+https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
+
 **Annette Green, ‘High Priestess’ of the Perfume World, Has Died at 102**\
 `She turned the nonprofit Fragrance Foundation into a P.R. powerhouse, predicting the home-fragrance boom and overseeing the rise of designer perfumes.`\
 https://www.nytimes.com/2026/11/17/style/annette-green-dead.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philipp
 **Street Style Look of the Week: ‘Old Man’ Style and ‘Subliminal Messaging’**\
 `A married couple in London manage to complement each other’s vibe without exactly matching.`\
 https://www.nytimes.com/2026/11/17/style/street-style-look-grandpa-style.html
-
-**An Elegy for Americans Dying of Measles**\
-`America has officially lost its measles elimination status.`\
-https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
 
