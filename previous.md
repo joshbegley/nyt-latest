@@ -1,3 +1,7 @@
+**Annette Green, ‘High Priestess’ of the Perfume World, Has Died at 102**\
+`She turned the nonprofit Fragrance Foundation into a P.R. powerhouse, predicting the home-fragrance boom and overseeing the rise of designer perfumes.`\
+https://www.nytimes.com/2026/11/17/style/annette-green-dead.html
+
 **Shock and Dread in the Gulf**\
 `Gulf countries talk about the consequences of a war against Iran not of their making.`\
 https://www.nytimes.com/2026/11/17/opinion/gulf-iran-israel-war.html
@@ -47,7 +51,7 @@ https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-question
 https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
 **Live Updates: Nvidia Earnings and Profits Beat Expectations**\
-`Tuesday’s earnings report covered a period before the resignation of its chief executive Jensen Huang. The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier.`\
+`The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.h
 **Classified N.S.A. Network Goes Down, Causing Work Disruptions**\
 `There are currently no signs that the outage is the result of a cyberattack or other nefarious activity, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/11/17/us/politics/nsa-down-network-outage-nsanet.html
-
-**The U.S. Lost Its Measles Elimination Status. Here’s What That Means.**\
-`The U.S. has lost its measles elimination status in a historic setback. Apoorva Mandavilli, a science and global health reporter, outlines the ways that the health system will have to adapt to confront the disease.`\
-https://www.nytimes.com/video/us/100000011273308/the-us-lost-its-measles-elimination-status-heres-what-that-means.html
 
