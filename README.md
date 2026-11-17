@@ -1,3 +1,11 @@
+**Schools Are Closing Nationwide as Enrollment Drops. Parents Are Livid.**\
+`With fewer babies being born and more school choice, districts across the country have concluded they must downsize. Families are trying to push back.`\
+https://www.nytimes.com/2026/11/17/us/public-schools-closing-birth-rate-enrollment.html
+
+**Jensen Huang Says He Would Return to Nvidia if Asked**\
+`Mr. Huang resigned as chief executive of the company last week after revelations that he had affairs with an employee and a woman linked to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
+
 **Measles Is Officially Back in the United States. What Now?**\
 `It will take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/video/business/100000011281784/how-democrats-winning-in-
 **Queens Libraries Still Contending With Ransomware Attack**\
 `The Nov. 4 attack has left the library website and app down, and computers are down at most branches. The libraries are still functioning using old-school techniques.`\
 https://www.nytimes.com/2026/11/17/nyregion/queens-libraries-ransomware-attack.html
-
-**Birthplace of Many Marvel Superheroes? The Mind of a Lower East Side Boy.**\
-`Jack Kirby helped create Iron Man, the Hulk and many other superheroes who went on to great crime-fighting careers and starring roles in movies and TV shows.`\
-https://www.nytimes.com/2026/11/17/arts/design/jack-kirby-comics.html
-
-**Restaurant Review: At Faux, the Scene-y NYC Bistro Enters Its Next Generation**\
-`The son of Keith McNally, the man who defined the genre at Balthazar and the Odeon, follows up with another restaurant where the food is not the point.`\
-https://www.nytimes.com/2026/11/17/dining/faux-restaurant-review.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

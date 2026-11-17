@@ -1,3 +1,15 @@
+**Measles Is Officially Back in the United States. What Now?**\
+`It will take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
+https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
+
+**An Artist Nearly Died in a Crash. Strangers Helped Him Draw Again.**\
+`Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
+
+**President Trump Starts Asia Trip With Quick Manila Stopover**\
+`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. ‘It’s life,’ he said.`\
+https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
+
 **U.S. Loses Its Measles Elimination Status, a Historic Setback for American Health**\
 `The nation was once regarded as a global leader for reining in the highly contagious virus. Now, large outbreaks that sicken thousands could become routine.`\
 https://www.nytimes.com/2026/11/17/well/us-measles-elimination-status.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/17/arts/design/jack-kirby-comics.html
 **Restaurant Review: At Faux, the Scene-y NYC Bistro Enters Its Next Generation**\
 `The son of Keith McNally, the man who defined the genre at Balthazar and the Odeon, follows up with another restaurant where the food is not the point.`\
 https://www.nytimes.com/2026/11/17/dining/faux-restaurant-review.html
-
-**Trump’s Culture War, Amid Setbacks, Will Soon Face a Hostile Congress**\
-`The White House campaign to make major changes at the Smithsonian and the Kennedy Center has fallen short of its goals. Will it be further disrupted by a Democrat-led Congress?`\
-https://www.nytimes.com/2026/11/17/arts/design/trump-congress-smithsonian-kennedy-center.html
-
-**Elon Musk’s Texas GOP Allies, Who Gave Him $1.7 Billion, Have Been Voted Out. What Now?**\
-`SpaceX and Tesla are more embedded across Texas than they ever were in California, which Mr. Musk left in 2020 to escape Democratic policies.`\
-https://www.nytimes.com/2026/11/17/business/elon-musk-texas-republicans.html
-
-**Book Review: ‘The Imperfect City,’ by Paul Goldberger**\
-`In his latest book, the architecture critic Paul Goldberger celebrates urban spaces that combine laissez-faire energy with the wisdom of the plan.`\
-https://www.nytimes.com/2026/11/17/books/review/the-imperfect-city-paul-goldberger.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
