@@ -1,3 +1,7 @@
+**Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
+`Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
+https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
+
 **Anne Thurston Has Died. She Revealed Salacious Details of Mao’s Life.**\
 `Dr. Thurston’s works documented Mao Zedong’s personal life and the traumas of the Cultural Revolution, earning scholarly accolades — and scorn from Beijing.`\
 https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html

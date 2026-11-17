@@ -191,6 +191,6 @@ https://www.nytimes.com/2026/11/17/realestate/gilded-age-vanderbilt-mansion-demo
 https://www.nytimes.com/2026/11/17/well/move/exercise-fitness-break.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
-`President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+`President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 

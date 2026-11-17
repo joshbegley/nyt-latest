@@ -1,3 +1,7 @@
+**Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
+`Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
+https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
+
 **Anne Thurston Has Died. She Revealed Salacious Details of Mao’s Life.**\
 `Dr. Thurston’s works documented Mao Zedong’s personal life and the traumas of the Cultural Revolution, earning scholarly accolades — and scorn from Beijing.`\
 https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/realestate/gilded-age-vanderbilt-mansion-demo
 **How Much Does My Fitness Decline After a Break From Exercise?**\
 `Everyone misses workouts here and there. We asked experts what to expect after a break.`\
 https://www.nytimes.com/2026/11/17/well/move/exercise-fitness-break.html
-
-**This Architect Is Transforming a New House Into One That Looks Centuries-Old**\
-`Can an architect turn his family’s new build into a dwelling that looks centuries-old? He’s getting there.`\
-https://www.nytimes.com/2026/11/17/realestate/stone-house-upstate-ny.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
