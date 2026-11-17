@@ -1,3 +1,11 @@
+**The Difference Between ‘Right-Wing’ and ‘Conservative’**\
+`How the internet left Ben Shapiro behind.`\
+https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-and-conservative.html
+
+**Anne Teresa De Keersmaeker Comes Full Circle, Spinning to Philip Glass**\
+`In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
+https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
+
 **Student Opinion: Have Roller Coasters Become Too Extreme?**\
 `After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
 https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
@@ -27,7 +35,7 @@ https://www.nytimes.com/2026/11/17/opinion/mayor-mamdani-rikers-island.html
 https://www.nytimes.com/2026/11/17/climate/cop31-turkey-electrification.html
 
 **As Trump Goes to China, A.I. Tensions Surge Amid Spying and Safety Fears**\
-`The spying concerns that led to Jensen Huang’s ouster at Nvidia highlight a core challenge to diplomacy between Washington and Beijing on A.I. advancement.`\
+`The espionage concerns that led to Jensen Huang’s ouster at Nvidia highlight a core challenge to diplomacy between Washington and Beijing on A.I. advancement.`\
 https://www.nytimes.com/2026/11/17/us/politics/trump-china-ai-tensions.html
 
 **As Trump and Xi Mingle, Their Governments Are Arming Up**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html
 **Live Updates: Trump’s Whirlwind Asia Trip Starts in the Philippines**\
 `President Trump’s 48-hour trip will begin with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
-
-**Trump Has Praised Marcos’s Family Legacy. His Father Was a Dictator.**\
-`President Trump’s well-known affinity for autocratic leaders was on display the last time he met with President Ferdinand R. Marcos Jr. of the Philippines.`\
-https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-meeting-philippines.html
-
-**15-Minute Lesson Plan: Learn History With This Historic Headlines Quiz**\
-`What can we learn about the past from front-page headlines?`\
-https://www.nytimes.com/2026/11/17/learning/15-minute-lesson-plan-learn-history-with-this-historic-headlines-quiz.html
 

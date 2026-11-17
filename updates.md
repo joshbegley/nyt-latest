@@ -1,3 +1,15 @@
+**The Difference Between ‘Right-Wing’ and ‘Conservative’**\
+`How the internet left Ben Shapiro behind.`\
+https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-and-conservative.html
+
+**Anne Teresa De Keersmaeker Comes Full Circle, Spinning to Philip Glass**\
+`In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
+https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
+
+**As Trump Goes to China, A.I. Tensions Surge Amid Spying and Safety Fears**\
+`The espionage concerns that led to Jensen Huang’s ouster at Nvidia highlight a core challenge to diplomacy between Washington and Beijing on A.I. advancement.`\
+https://www.nytimes.com/2026/11/17/us/politics/trump-china-ai-tensions.html
+
 **Student Opinion: Have Roller Coasters Become Too Extreme?**\
 `After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
 https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
