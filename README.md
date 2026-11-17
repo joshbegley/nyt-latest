@@ -1,3 +1,7 @@
+**Sisters Open a Homey Spot for Comfort Food**\
+`Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
+https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html
+
 **At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
 `Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
 https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-chin
 **‘The Hunger Games: Sunrise on the Reaping’ Review: Another Tribute**\
 `This prequel, following the early years of a character originally played by Woody Harrelson, is both bloated and limited.`\
 https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reaping-review.html
-
-**Fed Governor Cook Won’t Attend White House Hearing Without Changes**\
-`Lawyers for Lisa Cook, the Federal Reserve governor President Trump is trying to fire, called the hearing process a “facade.”`\
-https://www.nytimes.com/2026/11/17/business/economy/fed-governor-lisa-cook-trump-white-house-hearing.html
 
