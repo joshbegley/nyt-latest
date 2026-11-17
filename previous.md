@@ -1,3 +1,11 @@
+**Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
+`President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
+https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
+
+**A.I.’s People-Pleasing Problem**\
+`A new report found that popular chatbots often abandon scientific facts to affirm users’ beliefs.`\
+https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
+
 **Songs I’ve Been Digging Lately**\
 `Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
 https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
@@ -98,7 +106,7 @@ https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 `It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 
-**An Artist Nearly Died in a Crash. Strangers Helped Him Draw Again.**\
+**A San Francisco Artist Nearly Died. Strangers Helped Him Learn How to Draw Again.**\
 `Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
 **Trump’s New A.I. Chip Rules Rattle Southeast Asia**\
 `New U.S. restrictions could jeopardize billions in investment and force countries in the region to strike an increasingly difficult balance between Washington and Beijing.`\
 https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
-
-**Born Sick**\
-`We look at the consequences of measles in pregnancy.`\
-https://www.nytimes.com/2026/11/17/briefing/born-with-measles.html
-
-**Disney Doubles Down on New Shows and Movies Amid Industry Upheaval**\
-`The company plans to finance growth with $3 billion in cost savings and, in a surprise move, said it would stop disclosing how much money its streaming business makes.`\
-https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

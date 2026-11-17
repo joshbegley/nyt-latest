@@ -1,3 +1,15 @@
+**Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
+`President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
+https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
+
+**A.I.’s People-Pleasing Problem**\
+`A new report found that popular chatbots often abandon scientific facts to affirm users’ beliefs.`\
+https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
+
+**A San Francisco Artist Nearly Died. Strangers Helped Him Learn How to Draw Again.**\
+`Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
+
 **An Elegy for Americans Dying of Measles**\
 `America has officially lost its measles elimination status.`\
 https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
