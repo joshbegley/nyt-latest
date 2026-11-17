@@ -1,3 +1,11 @@
+**Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
+`The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
+https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
+
+**Waymo Pulls Its Driverless Taxis From All U.S. Highways Temporarily**\
+`The move came after California’s Department of Motor Vehicles ordered the cars off their highways, citing an “imminent hazard to public safety.”`\
+https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
+
 **How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
 `The show’s 29th season has had a long-running reference to the hit game that’s meant to poke fun at our collective fervor over the midterms.`\
 https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 **His Body Was Crushed in a Car Accident. His Artistry Brought Him Back.**\
 `Paul Madonna, known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after nearly dying in a head-on collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
-
-**President Trump Starts Asia Trip in Manila by Shrugging Off U.S. Concerns**\
-`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
-https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
-
-**U.S. Loses Its Measles Elimination Status, a Historic Setback for American Health**\
-`The nation was once regarded as a global leader for reining in the highly contagious virus. Now, large outbreaks that sicken thousands could become routine.`\
-https://www.nytimes.com/2026/11/17/well/us-measles-elimination-status.html
 
