@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/11/17/fashion/optical-atomic-clocks-rolex.html
 `The potential for artificial intelligence to ease the slog of a key process known as rotoscoping has intrigued an industry otherwise wary of the technology.`\
 https://www.nytimes.com/2026/11/17/movies/aritifical-intelligence-hollywood-visual-effects.html
 
-**These Ukrainians Aren’t in Combat. But They Deal With War Every Day.**\
-`A doctor, a gravedigger, a therapist and a pathologist share their war experiences.`\
-https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html
-
 **A Hot Springs Road Trip in Southern California**\
 `Hot springs, outsider art and desert landscapes were the highlights of a four-day drive from Los Angeles to a Mexican border town and back.`\
 https://www.nytimes.com/2026/11/17/travel/southern-california-road-trip-hot-springs.html
+
+**These Ukrainians Aren’t in Combat. But They Deal With War Every Day.**\
+`A doctor, a gravedigger, a therapist and a pathologist share their war experiences.`\
+https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html
 
 **The Winning Democrat Who Wants to Break Up Political Parties**\
 `Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
