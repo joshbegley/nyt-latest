@@ -1,3 +1,11 @@
+**What Can Genes Reveal About Chronic Pain?**\
+`The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
+https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
+
+**President Trump Starts Asia Trip in Manila by Shrugging Off U.S. Concerns**\
+`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
+https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
+
 **Nabeel Rajab, Bahraini Human Rights Activist, Dies at 62**\
 `Mr. Rajab spent his life fighting for greater political freedoms in his home country, undeterred by years in prison. He died in exile.`\
 https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
