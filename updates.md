@@ -1,3 +1,7 @@
+**America Lost Its Measles Elimination Status. It’s a Tragedy.**\
+`America has officially lost its measles elimination status.`\
+https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
+
 **Classified N.S.A. Network Goes Down, Causing Work Disruptions**\
 `There are currently no signs that the outage is the result of a cyberattack or other nefarious activity, according to people familiar with the matter.`\
 https://www.nytimes.com/2026/11/17/us/politics/nsa-down-network-outage-nsanet.html
