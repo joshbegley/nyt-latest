@@ -1,3 +1,11 @@
+**Nabeel Rajab, Bahraini Human Rights Activist, Dies at 62**\
+`Mr. Rajab spent his life fighting for greater political freedoms in his home country, undeterred by years in prison. He died in exile.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
+
+**A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
+`A 62-year-old man was found drowned in a cove  this month, evoking the lake’s stormy history.`\
+https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
+
 **Grand Theft Auto VI Set to Make Billions**\
 `The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
 https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
@@ -181,18 +189,6 @@ https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi
 **NYT Connections Answers for November 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18. 2026.`\
 https://www.nytimes.com/2026/11/17/crosswords/connections-companion-1256.html
-
-**Democrats Promised Lower Prices. What Can They Actually Do?**\
-`Three reporters talk about what options the party really has to try to bring down the cost of living.`\
-https://www.nytimes.com/2026/11/17/podcasts/the-daily/democrats-promised-lower-prices-what-can-they-actually-do.html
-
-**The A.I. Fight Dividing the Trump Administration, and the Next James Bond**\
-`Plus, a new study on phone bans in schools.`\
-https://www.nytimes.com/2026/11/17/podcasts/the-headlines/ai-fight-trump-administration-new-james-bond-megaspeed.html
-
-**NYT Strands Hints for November 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18, 2026.`\
-https://www.nytimes.com/2026/11/17/crosswords/strands-sidekick-990.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

@@ -1,3 +1,7 @@
+**What Can Genes Reveal About Chronic Pain?**\
+`The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
+https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
+
 **Nabeel Rajab, Bahraini Human Rights Activist, Dies at 62**\
 `Mr. Rajab spent his life fighting for greater political freedoms in his home country, undeterred by years in prison. He died in exile.`\
 https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 `Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
-**President Trump Starts Asia Trip With Quick Manila Stopover**\
+**President Trump Starts Asia Trip in Manila by Shrugging Off U.S. Concerns**\
 `Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
 https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
 
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.htm
 **Tracking China’s War of Words Against Japan**\
 `Beijing is running a concerted campaign to paint Japan as an aggressor and resurgent military threat, according to a Times analysis.`\
 https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html
-
-**NYT Connections Answers for November 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18. 2026.`\
-https://www.nytimes.com/2026/11/17/crosswords/connections-companion-1256.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

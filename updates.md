@@ -1,3 +1,11 @@
+**Nabeel Rajab, Bahraini Human Rights Activist, Dies at 62**\
+`Mr. Rajab spent his life fighting for greater political freedoms in his home country, undeterred by years in prison. He died in exile.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
+
+**A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
+`A 62-year-old man was found drowned in a cove  this month, evoking the lake’s stormy history.`\
+https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
+
 **Grand Theft Auto VI Set to Make Billions**\
 `The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
 https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
