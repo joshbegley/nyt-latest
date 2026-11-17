@@ -1,3 +1,11 @@
+**Frieze Abu Dhabi Opens Its Doors for the First time**\
+`Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
+
+**Stocks Down Just Ahead of Nvidia’s Earnings Report**\
+`The chipmaker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
+https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
+
 **Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
 `At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
 https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-
 **Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
 `The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
 https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
-
-**New Study Makes GLP-1s Likely for Kids**\
-`In this episode of “The Call,” The New York Times health reporter Dani Blum joins our host Natalie Kitroeff from this year’s Obesity Week Conference to break down a new study supporting the use of GLP-1s for children as young as 6.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011288829/new-study-makes-glp-1s-likely-for-kids.html
-
-**Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
-`President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
-https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html
 

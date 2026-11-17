@@ -1,9 +1,13 @@
+**Live Updates: Nvidia to Release First Earnings Report Since Leadership Turmoil**\
+`The earnings report being released today covers a period before the chief executive Jensen Huang resigned last week. Still, it will provide the most up-to-date look available about the health of the A.I. industry.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
 `Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
 https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
 
 **Stocks Down Just Ahead of Nvidia’s Earnings Report**\
-`The chipmaker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
+`The chip maker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
 https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
 
 **Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html
 **Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
 `The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
 https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
-
-**Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
-`The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
-https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
 

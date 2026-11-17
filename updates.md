@@ -1,3 +1,11 @@
+**Frieze Abu Dhabi Opens Its Doors for the First time**\
+`Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
+
+**Stocks Down Just Ahead of Nvidia’s Earnings Report**\
+`The chipmaker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
+https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
+
 **Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
 `At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
 https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
