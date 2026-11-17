@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carol
 https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public-closure.html
 
 **A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
-`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw could affect systems used by nearly all Fortune 500 companies.`\
+`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
 https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
 
 **Ask The Morning: Your Nvidia Questions**\
@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-question
 `Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
 https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
-**Live Updates: Nvidia Reports $116 Billion in Revenue in First Earnings Since Leadership Turmoil**\
-`The report covers a period before the chief executive Jensen Huang resigned last week. Still, it provided the most up-to-date look available about the health of the A.I. industry.`\
+**Live Updates: Nvidia Beats Expectations in First Earnings Since Jensen Huang Resignation**\
+`The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier, and projected higher revenue in the current quarter.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
@@ -178,8 +178,8 @@ https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 `It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 
-**After an Artist Nearly Died, Strangers Helped Him Learn How to Draw Again**\
-`Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+**His Body Was Crushed in a Car Accident. His Artistry Brought Him Back.**\
+`Paul Madonna, known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after nearly dying in a head-on collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
 **President Trump Starts Asia Trip in Manila by Shrugging Off U.S. Concerns**\
