@@ -1,3 +1,19 @@
+**Dozens of Baby Sea Turtles Hatch Along California’s Coast**\
+`Fifty-four olive ridley sea turtles emerged from eggs laid in September in Seal Beach, Calif., becoming the first of their species known to be born in the state.`\
+https://www.nytimes.com/video/us/100000011289074/california-sea-turtle-hatch.html
+
+**Will New York Raise Taxes on the Rich? Free Child Care May Depend on It.**\
+`With Gov. Kathy Hochul and Mayor Zohran Mamdani pushing to expand free child care, a tax-the-rich campaign may fare better next year in a more left-leaning environment.`\
+https://www.nytimes.com/2026/11/17/nyregion/child-care-tax-the-rich-ny.html
+
+**NYT Spelling Bee Answers for November 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/17/crosswords/spelling-bee-forum.html
+
+**What if There Is No A.I. Bubble?**\
+`The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
+https://www.nytimes.com/2026/11/17/opinion/ai-bubble-workers.html
+
 **Japan’s Suica Penguin Mascot Is Retiring. Fans Are Taking It Hard.**\
 `The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
 https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
