@@ -1,3 +1,15 @@
+**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
+`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
+https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oliagarchs-leaked-documents.html
+
+**Trump’s Ego Trip With Xi and Putin Will End Badly**\
+`Nothing good can come from sucking up to authoritarians.`\
+https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
+
+**What If There Is No A.I. Bubble?**\
+`The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
+https://www.nytimes.com/2026/11/17/opinion/ai-bubble-workers.html
+
 **Facing Criticism, Trump Administration Says It’s Investigating Megaspeed**\
 `The announcement appeared to be a response to recent criticism that the Commerce Department has moved too slowly on the alleged chip smuggling case.`\
 https://www.nytimes.com/2026/11/17/business/economy/megaspeed-investigation-trump-doj.html

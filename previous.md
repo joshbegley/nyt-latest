@@ -1,3 +1,15 @@
+**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
+`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
+https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oliagarchs-leaked-documents.html
+
+**Trump’s Ego Trip With Xi and Putin Will End Badly**\
+`Nothing good can come from sucking up to authoritarians.`\
+https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
+
+**What If There Is No A.I. Bubble?**\
+`The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
+https://www.nytimes.com/2026/11/17/opinion/ai-bubble-workers.html
+
 **Facing Criticism, Trump Administration Says It’s Investigating Megaspeed**\
 `The announcement appeared to be a response to recent criticism that the Commerce Department has moved too slowly on the alleged chip smuggling case.`\
 https://www.nytimes.com/2026/11/17/business/economy/megaspeed-investigation-trump-doj.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/birth-control-pill-women
 **Quiz. James Bond Quiz.**\
 `Robert Pattinson will be the next to don 007’s tuxedo. Let’s test your knowledge about the James Bond series.`\
 https://www.nytimes.com/quiz/2026/11/16/arts/james-bond-quiz.html
-
-**How the Atomic Bomb on Hiroshima Changed the World**\
-`The day the U.S. dropped an atomic bomb on Hiroshima, a new era of existential dread was born in the ashes.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/hiroshima-atomic-bomb-nuclear-war.html
-
-**How the Bolshevik Revolution Changed the World**\
-`The Bolshevik Revolution set the terms for a century-long conflict between capitalism and socialism.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/bolshevik-revolution-russia-communism-cold-war.html
-
-**Bessent Takes Hawkish Turn in White House Debate on China**\
-`The Treasury secretary who sought to de-escalate tariff wars is taking a tougher approach to exports of sensitive U.S. technology.`\
-https://www.nytimes.com/2026/11/16/us/politics/bessent-lutnick-china.html
 
