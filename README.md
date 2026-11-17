@@ -1,3 +1,7 @@
+**OK, America, We Can Still Be Friends**\
+`This month, the world’s most unreliable boyfriend began to redeem himself.`\
+https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
+
 **Trump’s New A.I. Chip Rules Rattle Southeast Asia**\
 `New U.S. restrictions could jeopardize billions in investment and force countries in the region to strike an increasingly difficult balance between Washington and Beijing.`\
 https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/fashion/watches-beaumarchais-opera-merci-pari
 **Is There No End to the Allure of Independent Watchmaking?**\
 `Two retailers discuss what drives creativity and why it’s so appealing to watch fans.`\
 https://www.nytimes.com/2026/11/17/fashion/the-allure-of-independent-watchmaking.html
-
-**He Is Training the Next Gen of Watch Repair Specialists**\
-`Running the Moi Watch academy is just one of Hanmoi Kim’s responsibilities, but he said it is an important one.`\
-https://www.nytimes.com/2026/11/17/fashion/watch-repairs-moi-academy-seoul.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
