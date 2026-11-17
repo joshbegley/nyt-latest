@@ -1,3 +1,7 @@
+**How the Measles Virus Makes Your Immune System Forget**\
+`The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
+https://www.nytimes.com/2026/11/17/science/measles-virus-immune-system.html
+
 **OK, America, We Can Still Be Friends**\
 `This month, the world’s most unreliable boyfriend began to redeem himself.`\
 https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html

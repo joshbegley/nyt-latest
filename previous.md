@@ -152,7 +152,7 @@ https://www.nytimes.com/2026/11/17/books/review/mario-vargas-llosa-gerald-martin
 
 **How the Measles Virus Makes Your Immune System Forget**\
 `The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
-https://www.nytimes.com/2026/11/17/science/the-virus-that-makes-your-immune-system-forget.html
+https://www.nytimes.com/2026/11/17/science/measles-virus-immune-system.html
 
 **Grand Theft Auto VI Revs Up for a Worldwide Takeover**\
 `More than a decade in the making, the newest installment of the video game franchise is set to bring in billions and set a new standard for the industry.`\
