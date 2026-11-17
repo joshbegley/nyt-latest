@@ -1,3 +1,15 @@
+**Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
+`The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
+https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
+
+**New Study Makes GLP-1s Likely for Kids**\
+`In this episode of “The Call,” The New York Times health reporter Dani Blum joins our host Natalie Kitroeff from this year’s Obesity Week Conference to break down a new study supporting the use of GLP-1s for children as young as 6.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011288829/new-study-makes-glp-1s-likely-for-kids.html
+
+**School Phone Bans Are Gradually Improving Test Scores, New Evidence Shows**\
+`Previous results were mixed, but the first national study to track individual students’ growth shows bans may help reverse declines.`\
+https://www.nytimes.com/2026/11/17/upshot/school-phone-bans-study-scores.html
+
 **Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
 `President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
 https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html

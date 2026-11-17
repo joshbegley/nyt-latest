@@ -1,3 +1,11 @@
+**Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
+`The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
+https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
+
+**New Study Makes GLP-1s Likely for Kids**\
+`In this episode of “The Call,” The New York Times health reporter Dani Blum joins our host Natalie Kitroeff from this year’s Obesity Week Conference to break down a new study supporting the use of GLP-1s for children as young as 6.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011288829/new-study-makes-glp-1s-likely-for-kids.html
+
 **Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
 `President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
 https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html
@@ -98,7 +106,7 @@ https://www.nytimes.com/2026/11/17/pageoneplus/corrections-nov-17-2026.html
 `Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
 https://www.nytimes.com/2026/11/17/opinion/ezra-klein-podcast-rob-sand.html
 
-**New Evidence Shows School Phone Bans Are Gradually Improving Test Scores**\
+**School Phone Bans Are Gradually Improving Test Scores, New Evidence Shows**\
 `Previous results were mixed, but the first national study to track individual students’ growth shows bans may help reverse declines.`\
 https://www.nytimes.com/2026/11/17/upshot/school-phone-bans-study-scores.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/books/review/mario-vargas-llosa-gerald-martin
 **How the Measles Virus Makes Your Immune System Forget**\
 `The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
 https://www.nytimes.com/2026/11/17/science/measles-virus-immune-system.html
-
-**Grand Theft Auto VI Revs Up for a Worldwide Takeover**\
-`More than a decade in the making, the newest installment of the video game franchise is set to bring in billions and set a new standard for the industry.`\
-https://www.nytimes.com/2026/11/17/arts/grand-theft-auto-vi-hype-success.html
-
-**Word of the Day: paraphrase**\
-`This word has appeared in 167 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/17/learning/word-of-the-day-paraphrase.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
