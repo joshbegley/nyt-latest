@@ -1,3 +1,7 @@
+**After an Artist Nearly Died, Strangers Helped Him Learn How to Draw Again**\
+`Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
+https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
+
 **Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
 `The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
 https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
