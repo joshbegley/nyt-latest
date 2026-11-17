@@ -1,4 +1,8 @@
-**Live Updates: Trump’s Whirlwind Asia Trip to Start in the Philippines**\
+**Carney and Xi Announce Canada-China Trade Pact**\
+`The agreement between Canada and China and the cordial relations on display by their leaders contrast with the current Canada-U.S. relationship.`\
+https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html
+
+**Live Updates: Trump’s Whirlwind Asia Trip Starts in the Philippines**\
 `President Trump’s 48-hour trip will begin with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/us/politics/trump-linkedin-data-nyt-sources.h
 **Why Robert Pattinson Could Be a Great James Bond**\
 `Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
 https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
-
-**Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
-`The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html
 
