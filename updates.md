@@ -1,3 +1,15 @@
+**Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
+`His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
+https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
+
+**Transportation Secretary Details Request for $50 Billion for Air Traffic Improvements**\
+`The one-page explanation, which will be laid out for Republican members of Congress Tuesday, was thin on specifics.`\
+https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
+
+**Review: Asmik Grigorian Stars in a New Met Opera ‘Jenufa’**\
+`The soprano Asmik Grigorian and the tenor Sean Panikkar anchor a production by Claus Guth that allows room for its stars’ thrilling performances.`\
+https://www.nytimes.com/2026/11/17/arts/music/review-jenufa-metropolitan-opera-asmik-grigorian.html
+
 **Trump Begins Asia Trip in the Philippines**\
 `President Trump landed in Manila on Tuesday, beginning his 48-hour Asia trip with a gathering of Southeast Asian leaders. He will later meet with President Xi Jinping of China and President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philippines-putin-xi-china.html
