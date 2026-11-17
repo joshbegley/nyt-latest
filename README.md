@@ -70,7 +70,7 @@ https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philipp
 `A married couple in London manage to complement each other’s vibe without exactly matching.`\
 https://www.nytimes.com/2026/11/17/style/street-style-look-grandpa-style.html
 
-**America Lost Its Measles Elimination Status. It’s a Tragedy.**\
+**An Elegy for Americans Dying of Measles**\
 `America has officially lost its measles elimination status.`\
 https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
 
