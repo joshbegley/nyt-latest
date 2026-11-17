@@ -1,3 +1,7 @@
+**Democrats Assail RFK Jr. After U.S. Loses Measles Elimination Status**\
+`Incoming senators and prospective presidential candidates blamed the health secretary’s history of vaccine skepticism for the rise of measles in the country.`\
+https://www.nytimes.com/2026/11/17/us/politics/rfk-jr-measles-democrats.html
+
 **Measles Is Officially Back**\
 `Also, public schools are closing as enrollment drops. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/17/briefing/us-measles-surge-nvidia-profit.html

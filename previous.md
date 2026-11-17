@@ -1,3 +1,7 @@
+**Democrats Assail RFK Jr. After U.S. Loses Measles Elimination Status**\
+`Incoming senators and prospective presidential candidates blamed the health secretary’s history of vaccine skepticism for the rise of measles in the country.`\
+https://www.nytimes.com/2026/11/17/us/politics/rfk-jr-measles-democrats.html
+
 **Measles Is Officially Back**\
 `Also, public schools are closing as enrollment drops. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/17/briefing/us-measles-surge-nvidia-profit.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
 **What Was That Alert on TV and the Radio? It Was Only a Test.**\
 `A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
 https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
-
-**Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
-`His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
-https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
 
