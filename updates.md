@@ -1,3 +1,15 @@
+**A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
+`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
+https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
+
+**Live Updates: Nvidia Beats Expectations in First Earnings Since Jensen Huang Resignation**\
+`The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier, and projected higher revenue in the current quarter.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
+**His Body Was Crushed in a Car Accident. His Artistry Brought Him Back.**\
+`Paul Madonna, known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after nearly dying in a head-on collision.`\
+https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
+
 **How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
 `The show’s 29th season has had a long-running reference to the hit game that’s meant to poke fun at our collective fervor over the midterms.`\
 https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
