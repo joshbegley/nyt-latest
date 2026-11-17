@@ -194,7 +194,7 @@ https://www.nytimes.com/video/opinion/100000011286751/the-winning-democrat-who-w
 `The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
 https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
 
-**Live Updates: Trump’s Begins Whirlwind Asia Trip in the Philippines**\
+**Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 

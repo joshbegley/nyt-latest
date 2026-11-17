@@ -1,3 +1,7 @@
+**Young Filipinos Protest Trump and Marcos Before They Meet**\
+`Most demonstrators were students who said their government was more focused on its relationship with the United States than helping Filipinos.`\
+https://www.nytimes.com/2026/11/17/world/asia/philippines-protest-trump-marcos.html
+
 **What to Know About APEC, ASEAN and the Quad**\
 `President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
 https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html
 **The Winning Democrat Who Wants to Break Up Political Parties**\
 `Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
 https://www.nytimes.com/video/opinion/100000011286751/the-winning-democrat-who-wants-to-break-up-political-parties.html
-
-**Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
-`The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
-https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
