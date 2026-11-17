@@ -1,3 +1,7 @@
+**Welcome Back, America! It’s Your Turn to Be Sorry.**\
+`This month, the world’s most unreliable boyfriend began to redeem himself.`\
+https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
+
 **‘The Hunger Games: Sunrise on the Reaping’ Review: Another Tribute**\
 `This prequel, following the early years of a character originally played by Woody Harrelson, is both bloated and limited.`\
 https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reaping-review.html

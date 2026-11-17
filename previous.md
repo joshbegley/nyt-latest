@@ -22,7 +22,7 @@ https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.ht
 `The lifestyle guru appears in a new ad by the prediction market Kalshi as it announces changes to how it polices illicit trading on its platform.`\
 https://www.nytimes.com/2026/11/17/business/dealbook/kalshi-martha-stewart-ad.html
 
-**OK, America, We Can Still Be Friends**\
+**Welcome Back, America! It’s Your Turn to Be Sorry.**\
 `This month, the world’s most unreliable boyfriend began to redeem himself.`\
 https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
 
