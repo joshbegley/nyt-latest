@@ -1,3 +1,7 @@
+**Japan’s Suica Penguin Mascot Is Retiring. Fans Are Taking It Hard.**\
+`The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
+https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
+
 **Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
 `“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
 https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
