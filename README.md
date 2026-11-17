@@ -1,3 +1,7 @@
+**Victim Advocates Sue Newsom Over Attempt to Empty California’s Death Row**\
+`Gov. Gavin Newsom is trying to spare the lives of 548 prisoners on California’s death row. Prosecutors and victims’ families say that it amounts to an abuse of power.`\
+https://www.nytimes.com/2026/11/16/us/newsom-sued-death-penalty-commuations-california.html
+
 **Protesters at Rutgers Disrupt Speech by Former Trump Border Official**\
 `Gregory Bovino was the face of the Trump administration’s immigration crackdown before he retired this year.`\
 https://www.nytimes.com/2026/11/16/nyregion/bovino-rutgers-speech-protest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvi
 **Supreme Court Rejects Trump Bid to Revive University Research Cuts**\
 `The justices left in place a lower-court decision to block the administration from cutting millions in grants to University of California researchers over perceived ties to diversity initiatives.`\
 https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of-california.html
-
-**John H. Powers III to Lead NIAID Amid Turmoil**\
-`Dr. John H. Powers III was appointed director of the National Institute of Allergy and Infectious Diseases, a powerful post held for decades by Dr. Anthony Fauci.`\
-https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html
 
