@@ -1,3 +1,7 @@
+**Fans React to Robert Pattinson’s James Bond Casting**\
+`The “Twilight” and “Batman” actor will succeed Daniel Craig in the iconic British role.`\
+https://www.nytimes.com/video/movies/100000011288996/robert-pattinson-james-bond-007.html
+
 **Late Night Flies High on the F.A.A. Ground Stop**\
 `“Sometimes, it feels like maybe Elon and his DOGE bros shouldn’t have fired more than a thousand employees at the F.A.A.,” Jimmy Kimmel said.`\
 https://www.nytimes.com/2026/11/17/arts/television/late-night-faa-ground-stop.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-runner
 **How the Wannsee Conference Changed the World**\
 `At the Wannsee Conference, the Nazis planned the Final Solution.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/wannsee-conference-nazis-final-solution.html
-
-**How Thomas Edison Changed the World**\
-`When Thomas Edison first lit up the Financial District, it opened up the night and birthed the modern technological age.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/electric-grid-edison-light-power.html
 
