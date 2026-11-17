@@ -1,3 +1,7 @@
+**A Visual Tour of President Trump’s Visits to Asia**\
+`President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
+https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
+
 **Nvidia’s Earnings Call Is a High-Stakes Moment**\
 `Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
 https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
