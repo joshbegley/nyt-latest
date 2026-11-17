@@ -1,3 +1,7 @@
+**What Was That Alert on TV and the Radio? It Was Only a Test.**\
+`A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
+https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
+
 **At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
 `Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
 https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html

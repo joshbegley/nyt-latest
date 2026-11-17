@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
 `He can fill a cavity, and hunt down a rare Collezioni blouson.`\
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
 
-**FEMA Will Test Its Emergency Alert System Today**\
+**What Was That Alert on TV and the Radio? It Was Only a Test.**\
 `A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
 https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
 
