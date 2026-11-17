@@ -1,3 +1,11 @@
+**26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
+`The state has recorded over 270 cases this year, the most since a major cluster of illness caused by the virus in 2018 and 2019. More than two dozen cases were recorded this past week.`\
+https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html
+
+**Contested Frida Kahlo Painting Is Withdrawn Hours Before Auction**\
+`Christie’s withdrew the work after accusations that several of the artist’s paintings had gone missing from the Casa Azul house-museum in Mexico City.`\
+https://www.nytimes.com/2026/11/17/arts/design/frida-kahlo-painting-auction-christies.html
+
 **Markwayne Mullin Defends Flight to L.S.U.-Texas Game After Ground Stop**\
 `“We still gotta live our lives,” said the homeland security secretary, who is required to use government planes for personal travel. His department said he paid.`\
 https://www.nytimes.com/2026/11/17/us/politics/mullin-lsu-football-plane.html
