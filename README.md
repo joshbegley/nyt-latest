@@ -1,3 +1,7 @@
+**Protesters at Rutgers Disrupt Speech by Former Trump Border Official**\
+`Gregory Bovino was the face of the Trump administration’s immigration crackdown before he retired this year.`\
+https://www.nytimes.com/2026/11/16/nyregion/bovino-rutgers-speech-protest.html
+
 **Family Seeks Hate Crime Charge in Near-Fatal Attack on Somali Uber Driver**\
 `Mohamed Yusuf, a married father of five, was assaulted by a passenger early Saturday morning outside Minneapolis, according to police and his family.`\
 https://www.nytimes.com/2026/11/16/us/somali-uber-driver-assault-minnesota.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of
 **John H. Powers III to Lead NIAID Amid Turmoil**\
 `Dr. John H. Powers III was appointed director of the National Institute of Allergy and Infectious Diseases, a powerful post held for decades by Dr. Anthony Fauci.`\
 https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html
-
-**Judge Sets New March Trial Date for Lindsay Clancy**\
-`Judge William Sullivan set a new trial date of March 29 for Lindsay Clancy, whose first trial for the deaths of her three children ended in a deadlocked jury.`\
-https://www.nytimes.com/video/us/100000011287264/clancy-trial-date.html
 
