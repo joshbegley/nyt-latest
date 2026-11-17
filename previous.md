@@ -1,3 +1,11 @@
+**Nvidia’s Earnings Call Is a High-Stakes Moment**\
+`Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
+https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
+
+**A Kalshi Ad With Martha Stewart Warns Against Insider Trading**\
+`The lifestyle guru appears in a new ad by the prediction market Kalshi as it announces changes to how it polices illicit trading on its platform.`\
+https://www.nytimes.com/2026/11/17/business/dealbook/kalshi-martha-stewart-ad.html
+
 **OK, America, We Can Still Be Friends**\
 `This month, the world’s most unreliable boyfriend began to redeem himself.`\
 https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/science/fearing-chinese-rivals-us-biotech-ado
 **A Watchmaker Who Sees Things His Own Way**\
 `Vianney Halter’s steampunk aesthetic has put his designs in a class all their own.`\
 https://www.nytimes.com/2026/11/17/fashion/watches-vianney-halter-switzerland.html
-
-**The Watch World Honors One of Its Own**\
-`An opera staging and a new line of watches memorialize the horological achievements of an 18th century French polymath.`\
-https://www.nytimes.com/2026/11/17/fashion/watches-beaumarchais-opera-merci-paris.html
-
-**Is There No End to the Allure of Independent Watchmaking?**\
-`Two retailers discuss what drives creativity and why it’s so appealing to watch fans.`\
-https://www.nytimes.com/2026/11/17/fashion/the-allure-of-independent-watchmaking.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

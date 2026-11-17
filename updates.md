@@ -1,3 +1,11 @@
+**Nvidia’s Earnings Call Is a High-Stakes Moment**\
+`Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
+https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
+
+**A Kalshi Ad With Martha Stewart Warns Against Insider Trading**\
+`The lifestyle guru appears in a new ad by the prediction market Kalshi as it announces changes to how it polices illicit trading on its platform.`\
+https://www.nytimes.com/2026/11/17/business/dealbook/kalshi-martha-stewart-ad.html
+
 **How the Measles Virus Makes Your Immune System Forget**\
 `The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
 https://www.nytimes.com/2026/11/17/science/measles-virus-immune-system.html
