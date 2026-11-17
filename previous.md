@@ -1,3 +1,11 @@
+**Trump Begins Asia Trip in the Philippines**\
+`President Trump landed in Manila on Tuesday, beginning his 48-hour Asia trip with a gathering of Southeast Asian leaders. He will later meet with President Xi Jinping of China and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philippines-putin-xi-china.html
+
+**Street Style Look of the Week: ‘Old Man’ Style and ‘Subliminal Messaging’**\
+`A married couple in London manage to complement each other’s vibe without exactly matching.`\
+https://www.nytimes.com/2026/11/17/style/street-style-look-grandpa-style.html
+
 **America Lost Its Measles Elimination Status. It’s a Tragedy.**\
 `America has officially lost its measles elimination status.`\
 https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
@@ -114,8 +122,8 @@ https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
 `We look at the consequences of measles in pregnancy.`\
 https://www.nytimes.com/2026/11/17/briefing/born-with-measles.html
 
-**Disney Plans to Finance Growth With $3 Billion in Cost Savings**\
-`The company reported a surge in quarterly profit and, in a surprise, said it would stop disclosing how much money its streaming business makes.`\
+**Disney Doubles Down on New Shows and Movies Amid Industry Upheaval**\
+`The company plans to finance growth with $3 billion in cost savings and, in a surprise move, said it would stop disclosing how much money its streaming business makes.`\
 https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
 
 **Tracking China’s War of Words Against Japan**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/upshot/school-phone-bans-study-scores.html
 **‘Close Rikers’ Was a Great Slogan. It’s Bad Policy.**\
 `Clinging to the “Close Rikers” slogan will only prolong the crisis in island’s jails.`\
 https://www.nytimes.com/2026/11/17/opinion/mayor-mamdani-rikers-island.html
-
-**There’s a New Push at COP31 in Turkey: Electrification**\
-`With war squeezing global oil and gas supplies, leaders at COP31 are backing a plan that would mirror China’s rapid grid expansion.`\
-https://www.nytimes.com/2026/11/17/climate/cop31-turkey-electrification.html
-
-**As Trump Goes to China, A.I. Tensions Surge Amid Spying and Safety Fears**\
-`The espionage concerns that led to Jensen Huang’s ouster at Nvidia highlight a core challenge to diplomacy between Washington and Beijing on A.I. advancement.`\
-https://www.nytimes.com/2026/11/17/us/politics/trump-china-ai-tensions.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

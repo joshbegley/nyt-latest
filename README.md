@@ -1,3 +1,15 @@
+**Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
+`His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
+https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
+
+**Transportation Secretary Details Request for $50 Billion for Air Traffic Improvements**\
+`The one-page explanation, which will be laid out for Republican members of Congress Tuesday, was thin on specifics.`\
+https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
+
+**Review: Asmik Grigorian Stars in a New Met Opera ‘Jenufa’**\
+`The soprano Asmik Grigorian and the tenor Sean Panikkar anchor a production by Claus Guth that allows room for its stars’ thrilling performances.`\
+https://www.nytimes.com/2026/11/17/arts/music/review-jenufa-metropolitan-opera-asmik-grigorian.html
+
 **Trump Begins Asia Trip in the Philippines**\
 `President Trump landed in Manila on Tuesday, beginning his 48-hour Asia trip with a gathering of Southeast Asian leaders. He will later meet with President Xi Jinping of China and President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philippines-putin-xi-china.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extr
 **Corrections: Nov. 17, 2026**\
 `Corrections that appeared in print on Monday, Nov. 17, 2026.`\
 https://www.nytimes.com/2026/11/17/pageoneplus/corrections-nov-17-2026.html
-
-**The Winning Democrat Who Wants to Break Up Political Parties**\
-`Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
-https://www.nytimes.com/2026/11/17/opinion/ezra-klein-podcast-rob-sand.html
-
-**School Phone Bans Are Gradually Improving Test Scores, New Evidence Shows**\
-`Previous results were mixed, but the first national study to track individual students’ growth shows bans may help reverse declines.`\
-https://www.nytimes.com/2026/11/17/upshot/school-phone-bans-study-scores.html
-
-**‘Close Rikers’ Was a Great Slogan. It’s Bad Policy.**\
-`Clinging to the “Close Rikers” slogan will only prolong the crisis in island’s jails.`\
-https://www.nytimes.com/2026/11/17/opinion/mayor-mamdani-rikers-island.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

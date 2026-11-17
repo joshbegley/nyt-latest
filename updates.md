@@ -1,3 +1,15 @@
+**Trump Begins Asia Trip in the Philippines**\
+`President Trump landed in Manila on Tuesday, beginning his 48-hour Asia trip with a gathering of Southeast Asian leaders. He will later meet with President Xi Jinping of China and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philippines-putin-xi-china.html
+
+**Street Style Look of the Week: ‘Old Man’ Style and ‘Subliminal Messaging’**\
+`A married couple in London manage to complement each other’s vibe without exactly matching.`\
+https://www.nytimes.com/2026/11/17/style/street-style-look-grandpa-style.html
+
+**Disney Doubles Down on New Shows and Movies Amid Industry Upheaval**\
+`The company plans to finance growth with $3 billion in cost savings and, in a surprise move, said it would stop disclosing how much money its streaming business makes.`\
+https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
+
 **President Trump Starts Asia Trip With Quick Manila Stopover**\
 `Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
 https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
