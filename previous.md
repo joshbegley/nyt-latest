@@ -1,3 +1,7 @@
+**Trump Administration Divide on China Policy Breaks Into Public View**\
+`The airing of a fight over advanced A.I. chips shows how much the Nvidia scandal has deepened fissures inside the government, just as President Trump heads to a critical meeting with his Chinese counterpart.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-policy.html
+
 **Victim Advocates Sue Newsom Over Attempt to Empty California’s Death Row**\
 `Gov. Gavin Newsom is trying to spare the lives of 548 prisoners on California’s death row. Prosecutors and victims’ families say that it amounts to an abuse of power.`\
 https://www.nytimes.com/2026/11/16/us/newsom-sued-death-penalty-commuations-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/arts/national-endowment-humanities-rome-confe
 **Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
 `President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
 https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
-
-**Supreme Court Rejects Trump Bid to Revive University Research Cuts**\
-`The justices left in place a lower-court decision to block the administration from cutting millions in grants to University of California researchers over perceived ties to diversity initiatives.`\
-https://www.nytimes.com/2026/11/16/us/politics/supreme-court-trump-university-of-california.html
 

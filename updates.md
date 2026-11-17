@@ -1,3 +1,7 @@
+**Trump Administration Divide on China Policy Breaks Into Public View**\
+`The airing of a fight over advanced A.I. chips shows how much the Nvidia scandal has deepened fissures inside the government, just as President Trump heads to a critical meeting with his Chinese counterpart.`\
+https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-policy.html
+
 **Victim Advocates Sue Newsom Over Attempt to Empty California’s Death Row**\
 `Gov. Gavin Newsom is trying to spare the lives of 548 prisoners on California’s death row. Prosecutors and victims’ families say that it amounts to an abuse of power.`\
 https://www.nytimes.com/2026/11/16/us/newsom-sued-death-penalty-commuations-california.html
