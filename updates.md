@@ -1,3 +1,7 @@
+**Markwayne Mullin Defends Flight to L.S.U.-Texas Game After Ground Stop**\
+`“We still gotta live our lives,” said the homeland security secretary, who is required to use government planes for personal travel. His department said he paid.`\
+https://www.nytimes.com/2026/11/17/us/politics/mullin-lsu-football-plane.html
+
 **Youssef M. Ibrahim, Who Covered Iran’s Revolution for The Times, Dies at 83**\
 `The Egyptian-born correspondent wrote about the Middle East during a time of dizzying transformation, and was expelled by Iran for his coverage.`\
 https://www.nytimes.com/2026/11/17/world/middleeast/youssef-ibrahim-correspondent-obituary.html
