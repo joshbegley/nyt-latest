@@ -1,3 +1,7 @@
+**Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
+`The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
+https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
+
 **Carney and Xi Announce Canada-China Trade Pact**\
 `The agreement between Canada and China and the cordial relations on display by their leaders contrast with the current Canada-U.S. relationship.`\
 https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html
@@ -38,13 +42,13 @@ https://www.nytimes.com/2026/11/17/crosswords/spelling-bee-forum.html
 `The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
 https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
 
-**Trump’s Ego Trip With Xi and Putin Will End Badly**\
-`Nothing good can come from sucking up to authoritarians.`\
-https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
-
 **Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
 `“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
 https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
+
+**Trump’s Ego Trip With Xi and Putin Will End Badly**\
+`Nothing good can come from sucking up to authoritarians.`\
+https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
 
 **What if There Is No A.I. Bubble?**\
 `The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
 **Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
 `The court filing confirms that the Trump administration has sought on two parallel fronts to identify the sources for an article as part of one overarching investigation.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-linkedin-data-nyt-sources.html
-
-**Why Robert Pattinson Could Be a Great James Bond**\
-`Robert Pattinson’s gift for portraying petulant losers would seem at odds with the requirements for 007. But the actor may be just what the franchise needs.`\
-https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
 

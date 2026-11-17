@@ -1,3 +1,7 @@
+**Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
+`The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
+https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
+
 **Carney and Xi Announce Canada-China Trade Pact**\
 `The agreement between Canada and China and the cordial relations on display by their leaders contrast with the current Canada-U.S. relationship.`\
 https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html

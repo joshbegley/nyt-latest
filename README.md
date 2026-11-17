@@ -1,3 +1,183 @@
+**Student Opinion: Have Roller Coasters Become Too Extreme?**\
+`After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
+https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
+
+**The Best Store-Bought Thanksgiving Shortcuts**\
+`Our experts share their favorite pantry staples.`\
+https://www.nytimes.com/2026/11/17/podcasts/the-best-store-bought-thanksgiving-shortcuts.html
+
+**Corrections: Nov. 17, 2026**\
+`Corrections that appeared in print on Monday, Nov. 17, 2026.`\
+https://www.nytimes.com/2026/11/17/pageoneplus/corrections-nov-17-2026.html
+
+**The Winning Democrat Who Wants to Break Up Political Parties**\
+`Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
+https://www.nytimes.com/2026/11/17/opinion/ezra-klein-podcast-rob-sand.html
+
+**New Evidence Shows School Phone Bans Are Gradually Improving Test Scores**\
+`Previous results were mixed, but the first national study to track individual students’ growth shows bans may help reverse declines.`\
+https://www.nytimes.com/2026/11/17/upshot/school-phone-bans-study-scores.html
+
+**‘Close Rikers’ Was a Great Slogan. It’s Bad Policy.**\
+`Clinging to the “Close Rikers” slogan will only prolong the crisis in island’s jails.`\
+https://www.nytimes.com/2026/11/17/opinion/mayor-mamdani-rikers-island.html
+
+**There’s a New Push at COP31 in Turkey: Electrification**\
+`With war squeezing global oil and gas supplies, leaders at COP31 are backing a plan that would mirror China’s rapid grid expansion.`\
+https://www.nytimes.com/2026/11/17/climate/cop31-turkey-electrification.html
+
+**As Trump Goes to China, A.I. Tensions Surge Amid Spying and Safety Fears**\
+`The spying concerns that led to Jensen Huang’s ouster at Nvidia highlight a core challenge to diplomacy between Washington and Beijing on A.I. advancement.`\
+https://www.nytimes.com/2026/11/17/us/politics/trump-china-ai-tensions.html
+
+**As Trump and Xi Mingle, Their Governments Are Arming Up**\
+`Public displays of friendship contrast with mounting trade and investment restrictions, highlighting the widening rift between the two economies.`\
+https://www.nytimes.com/2026/11/17/business/trump-xi-meeting-tensions.html
+
+**After ‘Boston,’ Where Does Stella Lefty Go?**\
+`The pop-country upstart workshopped a song on TikTok that became one of the year’s biggest hits. But crowdsourcing can only take a live show so far.`\
+https://www.nytimes.com/2026/11/17/arts/music/stella-lefty-boston-tour.html
+
+**How Democrats Winning in Texas Affects Musk**\
+`Elon Musk’s companies have built a major presence in Texas, backed in part by Republicans lawmakers who offered incentives and favorable policies. Now, Democrats in power could bring new scrutiny to those policies. Kirsten Grind, a Times investigative reporter, explains.`\
+https://www.nytimes.com/video/business/100000011281784/how-democrats-winning-in-texas-affects-musk.html
+
+**Queens Libraries Still Contending With Ransomware Attack**\
+`The Nov. 4 attack has left the library website and app down, and computers are down at most branches. The libraries are still functioning using old-school techniques.`\
+https://www.nytimes.com/2026/11/17/nyregion/queens-libraries-ransomware-attack.html
+
+**Birthplace of Many Marvel Superheroes? The Mind of a Lower East Side Boy.**\
+`Jack Kirby helped create Iron Man, the Hulk and many other superheroes who went on to great crime-fighting careers and starring roles in movies and TV shows.`\
+https://www.nytimes.com/2026/11/17/arts/design/jack-kirby-comics.html
+
+**Restaurant Review: At Faux, the Scene-y NYC Bistro Enters Its Next Generation**\
+`The son of Keith McNally, the man who defined the genre at Balthazar and the Odeon, follows up with another restaurant where the food is not the point.`\
+https://www.nytimes.com/2026/11/17/dining/faux-restaurant-review.html
+
+**Trump’s Culture War, Amid Setbacks, Will Soon Face a Hostile Congress**\
+`The White House campaign to make major changes at the Smithsonian and the Kennedy Center has fallen short of its goals. Will it be further disrupted by a Democrat-led Congress?`\
+https://www.nytimes.com/2026/11/17/arts/design/trump-congress-smithsonian-kennedy-center.html
+
+**Elon Musk’s Texas GOP Allies, Who Gave Him $1.7 Billion, Have Been Voted Out. What Now?**\
+`SpaceX and Tesla are more embedded across Texas than they ever were in California, which Mr. Musk left in 2020 to escape Democratic policies.`\
+https://www.nytimes.com/2026/11/17/business/elon-musk-texas-republicans.html
+
+**Book Review: ‘The Imperfect City,’ by Paul Goldberger**\
+`In his latest book, the architecture critic Paul Goldberger celebrates urban spaces that combine laissez-faire energy with the wisdom of the plan.`\
+https://www.nytimes.com/2026/11/17/books/review/the-imperfect-city-paul-goldberger.html
+
+**Does This Man Have a Right to the Data From His Own Brain?**\
+`J. Galen Buckwalter cheerfully agreed to provide his neural data for a research study. But when he asked for a copy, things got complicated.`\
+https://www.nytimes.com/2026/11/17/business/brain-data-access-rights-buckwalter.html
+
+**A Literary Guide to the Books Mentioned in ‘The Traitors’**\
+`NBC’s campy murder mystery game show is teeming with allusions to books, poetry and theater, all hiding in plain sight.`\
+https://www.nytimes.com/2026/11/17/books/traitors-nbc-literary-books-guide.html
+
+**Jessica Craig-Martin Is Thrilled to Decline an Invitation**\
+`Jessica Craig-Martin, who for years trained her camera on the grotesque side of glamour, has a new memoir that left her briefly disinherited by one of her parents.`\
+https://www.nytimes.com/2026/11/17/style/jessica-craig-martin-book.html
+
+**When the Vanderbilts’ Gilded Age Mansion Was Razed for Retail**\
+`Just over 100 years ago, the Cornelius Vanderbilt II House was demolished to make way for Bergdorf Goodman. Today, remnants of the estate are scattered around the city.`\
+https://www.nytimes.com/2026/11/17/realestate/gilded-age-vanderbilt-mansion-demolition.html
+
+**How Much Does My Fitness Decline After a Break From Exercise?**\
+`Everyone misses workouts here and there. We asked experts what to expect after a break.`\
+https://www.nytimes.com/2026/11/17/well/move/exercise-fitness-break.html
+
+**This Architect Is Transforming a New House Into One That Looks Centuries-Old**\
+`Can an architect turn his family’s new build into a dwelling that looks centuries-old? He’s getting there.`\
+https://www.nytimes.com/2026/11/17/realestate/stone-house-upstate-ny.html
+
+**Book Review: ‘Mario Vargas Llosa,’ by Gerald Martin**\
+`A new biography of Mario Vargas Llosa traces his protean career as a novelist, public intellectual and politician.`\
+https://www.nytimes.com/2026/11/17/books/review/mario-vargas-llosa-gerald-martin.html
+
+**How the Measles Virus Makes Your Immune System Forget**\
+`The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
+https://www.nytimes.com/2026/11/17/science/the-virus-that-makes-your-immune-system-forget.html
+
+**Grand Theft Auto VI Revs Up for a Worldwide Takeover**\
+`More than a decade in the making, the newest installment of the video game franchise is set to bring in billions and set a new standard for the industry.`\
+https://www.nytimes.com/2026/11/17/arts/grand-theft-auto-vi-hype-success.html
+
+**Word of the Day: paraphrase**\
+`This word has appeared in 167 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/17/learning/word-of-the-day-paraphrase.html
+
+**Book Review: ‘Uprising,’ by Tahmima Anam**\
+`Tahmima Anam’s “Uprising” takes place in an impoverished Bangladeshi brothel.`\
+https://www.nytimes.com/2026/11/17/books/review/tahmima-anam-uprising.html
+
+**Congo Ebola Outbreak: How Fear and Mistrust Drive Community Spread**\
+`As the Ebola virus spreads in eastern Congo, health teams struggle to curb fatal delays in seeking medical care and the widespread desire to treat sick relatives at home.`\
+https://www.nytimes.com/2026/11/17/world/africa/congo-ebola-community-transmission.html
+
+**Chopard’s Happy Diamonds Design Turns 50**\
+`The watch design that allows diamonds to move freely over a dial has become a hallmark of the Swiss brand.`\
+https://www.nytimes.com/2026/11/17/fashion/watches-chopard-happy-diamonds-50th-anniversary.html
+
+**Fearing Chinese Rivals, U.S. Biotech Adopts a New Norm: Share Nothing**\
+`Concerns that well-funded Chinese companies will swoop in to grab new ideas for their own drug development are shaping an industry unaccustomed to such secrecy.`\
+https://www.nytimes.com/2026/11/17/science/fearing-chinese-rivals-us-biotech-adopts-a-new-norm-share-nothing.html
+
+**A Watchmaker Who Sees Things His Own Way**\
+`Vianney Halter’s steampunk aesthetic has put his designs in a class all their own.`\
+https://www.nytimes.com/2026/11/17/fashion/watches-vianney-halter-switzerland.html
+
+**The Watch World Honors One of Its Own**\
+`An opera staging and a new line of watches memorialize the horological achievements of an 18th century French polymath.`\
+https://www.nytimes.com/2026/11/17/fashion/watches-beaumarchais-opera-merci-paris.html
+
+**Is There No End to the Allure of Independent Watchmaking?**\
+`Two retailers discuss what drives creativity and why it’s so appealing to watch fans.`\
+https://www.nytimes.com/2026/11/17/fashion/the-allure-of-independent-watchmaking.html
+
+**He Is Training the Next Gen of Watch Repair Specialists**\
+`Running the Moi Watch academy is just one of Hanmoi Kim’s responsibilities, but he said it is an important one.`\
+https://www.nytimes.com/2026/11/17/fashion/watch-repairs-moi-academy-seoul.html
+
+**8 Myths About Watches**\
+`There is a lot of information online about timepieces. Some of it is true. A lot isn’t.`\
+https://www.nytimes.com/2026/11/17/fashion/8-myths-about-watches.html
+
+**Will A.I. Make This Tedious Hollywood Job Easier?**\
+`A.I. tools are promising to speed up one of the most-time intensive and boring jobs in Hollywood. Matt Stevens, a New York Times culture reporter, unpacks one of the first concrete uses of A.I. in the industry with visual effects artists.`\
+https://www.nytimes.com/video/movies/100000011173613/will-ai-make-this-tedious-hollywood-job-easier.html
+
+**A New, Bold Antarctic Rescue: Bringing Shackleton’s Outpost Back to Life**\
+`An abandoned station manager’s villa — the site of a historic effort to save the explorer’s marooned crew — has now been restored. Take a tour inside.`\
+https://www.nytimes.com/2026/11/17/science/a-new-bold-antarctic-rescue-bringing-shackletons-outpost-back-to-life.html
+
+**Watches That Come Inside Doughnut (Cases)**\
+`The Donut Watch Company, in Kuala Lumpur, says its focus is horology and fun.`\
+https://www.nytimes.com/2026/11/17/fashion/donut-watch-company-malaysia.html
+
+**Grand Theft Auto VI Is Part of Depraved Art’s History**\
+`Grand Theft Auto VI will be cutting-edge. We shouldn’t let that distract from the depravity its players will commit — and what it says about humanity.`\
+https://www.nytimes.com/2026/11/17/opinion/grand-theft-auto-danger-art.html
+
+**Can A.I. Take the Edge Off One of Hollywood’s Worst Jobs?**\
+`The potential for artificial intelligence to ease the slog of a key process known as rotoscoping has intrigued an industry otherwise wary of the technology.`\
+https://www.nytimes.com/2026/11/17/movies/aritifical-intelligence-hollywood-visual-effects.html
+
+**A More Precise Clock Is on Its Way**\
+`The optical atomic clock, which scientists say would be off by about a second over 14 billion years, is soon expected to become a primary reference.`\
+https://www.nytimes.com/2026/11/17/fashion/optical-atomic-clocks-rolex.html
+
+**These Ukrainians Aren’t in Combat. But They Deal With War Every Day.**\
+`A doctor, a gravedigger, a therapist and a pathologist share their war experiences.`\
+https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html
+
+**A Hot Springs Road Trip in Southern California**\
+`Hot springs, outsider art and desert landscapes were the highlights of a four-day drive from Los Angeles to a Mexican border town and back.`\
+https://www.nytimes.com/2026/11/17/travel/southern-california-road-trip-hot-springs.html
+
+**The Winning Democrat Who Wants to Break Up Political Parties**\
+`Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
+https://www.nytimes.com/video/opinion/100000011286751/the-winning-democrat-who-wants-to-break-up-political-parties.html
+
 **Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
 `The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
 https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
@@ -17,184 +197,4 @@ https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-meeting-philippines.h
 **15-Minute Lesson Plan: Learn History With This Historic Headlines Quiz**\
 `What can we learn about the past from front-page headlines?`\
 https://www.nytimes.com/2026/11/17/learning/15-minute-lesson-plan-learn-history-with-this-historic-headlines-quiz.html
-
-**Fans React to Robert Pattinson’s James Bond Casting**\
-`The “Twilight” and “Batman” actor will succeed Daniel Craig in the iconic British role.`\
-https://www.nytimes.com/video/movies/100000011288996/robert-pattinson-james-bond-007.html
-
-**Late Night Flies High on the F.A.A. Ground Stop**\
-`“Sometimes, it feels like maybe Elon and his DOGE bros shouldn’t have fired more than a thousand employees at the F.A.A.,” Jimmy Kimmel said.`\
-https://www.nytimes.com/2026/11/17/arts/television/late-night-faa-ground-stop.html
-
-**Dozens of Baby Sea Turtles Hatch Along California’s Coast**\
-`Fifty-four olive ridley sea turtles emerged from eggs laid in September in Seal Beach, Calif., becoming the first of their species known to be born in the state.`\
-https://www.nytimes.com/video/us/100000011289074/california-sea-turtle-hatch.html
-
-**Will New York Raise Taxes on the Rich? Free Child Care May Depend on It.**\
-`With Gov. Kathy Hochul and Mayor Zohran Mamdani pushing to expand free child care, a tax-the-rich campaign may fare better next year in a more left-leaning environment.`\
-https://www.nytimes.com/2026/11/17/nyregion/child-care-tax-the-rich-ny.html
-
-**NYT Spelling Bee Answers for November 17, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/17/crosswords/spelling-bee-forum.html
-
-**Japan’s Suica Penguin Mascot Is Retiring. Fans Are Taking It Hard.**\
-`The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
-https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
-
-**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
-`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
-https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
-
-**Trump’s Ego Trip With Xi and Putin Will End Badly**\
-`Nothing good can come from sucking up to authoritarians.`\
-https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
-
-**What if There Is No A.I. Bubble?**\
-`The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
-https://www.nytimes.com/2026/11/17/opinion/ai-bubble-workers.html
-
-**Facing Criticism, Trump Administration Says It’s Investigating Megaspeed**\
-`The announcement appeared to be a response to recent criticism that the Commerce Department has moved too slowly on the alleged chip smuggling case.`\
-https://www.nytimes.com/2026/11/17/business/economy/megaspeed-investigation-trump-doj.html
-
-**They’re Young, Frustrated and Want France to Change. They Disagree on How.**\
-`One is a left-wing student leader, the other a young far-right activist. Together, Soumaya Sarré and Louise Montangon reflect the polarization of France, where more protests were set for Tuesday.`\
-https://www.nytimes.com/2026/11/17/world/europe/france-sarre-montangon-protests.html
-
-**Quote of the Day: Russian Strikes Expose Ukraine to Winter Chill**\
-`Quotation of the Day for Tuesday, November 17, 2026.`\
-https://www.nytimes.com/2026/11/17/pageoneplus/quote-of-the-day-russian-strikes-expose-ukraine-to-winter-chill.html
-
-**Trump Will Miss Most of the ASEAN Summit**\
-`President Trump will arrive in Manila as the meeting is wrapping up, a sign of how U.S. policy has left the region balancing between Washington and Beijing.`\
-https://www.nytimes.com/2026/11/17/world/asia/trump-manila-asean-late.html
-
-**Shoe Prices Hit a Record High Amid Inflation and Increased Tariffs**\
-`Shoe prices hit a record high in October as brands contend with the rising cost of materials and increased tariffs.`\
-https://www.nytimes.com/2026/11/17/business/shoe-prices-inflation-tariffs.html
-
-**Debt Problems of the Richest Countries Are Trickling Down to the Poorest**\
-`The debt load of developing countries jumped to $9.4 trillion as high interest rates and other global shocks batter their economies.`\
-https://www.nytimes.com/2026/11/17/business/economy/global-debt-economy-world-bank.html
-
-**From the Front Page: The Suez Canal Opens on Nov. 17, 1869**\
-`The waterway opened in Egypt, creating a new sea route between Europe and Asia, and transforming global trade.`\
-https://www.nytimes.com/2026/11/17/learning/from-the-front-page-the-suez-canal-opens-on-nov-17-1869.html
-
-**Justice Alito Warns Court Overhaul Could Threaten Judicial Independence**\
-`The conservative justice connected proposals to alter the court’s composition to what he characterized as a campaign to intimidate the court.`\
-https://www.nytimes.com/2026/11/16/us/politics/supreme-court-alito.html
-
-**‘The Fantasticks’ Review: A Gender Swap for a Still-Tender Story**\
-`Now two men play the young lovers in this long-running musical from 1960. Its quaint nostalgia remains intact for this Broadway production.`\
-https://www.nytimes.com/2026/11/16/theater/the-fantasticks-review-broadway.html
-
-**NYT Crossword Answers for November 17, 2026**\
-`Jeffrey Martinovic and Tarun Krishnamurthy’s crossword is their first collaboration for The New York Times.`\
-https://www.nytimes.com/2026/11/16/crosswords/daily-puzzle-2026-11-17.html
-
-**Scientists Are Stumped by This Strange Object in Space**\
-`The rocky body called 1998 KY26 is moving in ways that gravity alone cannot explain. So far, no one knows why.`\
-https://www.nytimes.com/2026/11/16/science/1998-ky26-asteroid-comet.html
-
-**El Niño Draws Sea Turtles to California’s Coast for the First Time**\
-`The California coast has seen an influx of olive ridley sea turtles, which are the smallest such reptiles and are normally found in tropical waters.`\
-https://www.nytimes.com/2026/11/16/us/sea-turtles-california.html
-
-**Baby Sea Turtles Swim Into Ocean Off California Coast**\
-`Fifty-four newborn olive ridley sea turtles, each roughly the size of a large strawberry and not weighing much more, made history this week.`\
-https://www.nytimes.com/video/us/100000011288147/sea-turtles-california-animal-rescue.html
-
-**The Enraging Hypocrisy at the Heart of the Nvidia Scandal**\
-`It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
-https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
-
-**Trump Administration Divide on China Policy Breaks Into Public View**\
-`The airing of a fight over advanced A.I. chips shows how much the Nvidia scandal has deepened fissures inside the government, just as President Trump heads to a critical meeting with his Chinese counterpart.`\
-https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-policy.html
-
-**Victim Advocates Sue Newsom Over Attempt to Empty California’s Death Row**\
-`Gov. Gavin Newsom is trying to spare the lives of 548 prisoners on California’s death row. Prosecutors and victims’ families say that it amounts to an abuse of power.`\
-https://www.nytimes.com/2026/11/16/us/newsom-sued-death-penalty-commuations-california.html
-
-**Protesters at Rutgers Disrupt Speech by Former Trump Border Official**\
-`Gregory Bovino was the face of the Trump administration’s immigration crackdown before he retired this year.`\
-https://www.nytimes.com/2026/11/16/nyregion/bovino-rutgers-speech-protest.html
-
-**Family Seeks Hate Crime Charge in Near-Fatal Attack on Somali Uber Driver**\
-`Mohamed Yusuf, a married father of five, was assaulted by a passenger early Saturday morning outside Minneapolis, according to police and his family.`\
-https://www.nytimes.com/2026/11/16/us/somali-uber-driver-assault-minnesota.html
-
-**5 Takeaways From the 2027 Grammy Nominations.**\
-`Our “Popcast” hosts share their reactions across categories.`\
-https://www.nytimes.com/2026/11/16/arts/music/popcast-grammy-nomination-takeaways.html
-
-**Appeals Court Weighs Pentagon’s Media Restrictions**\
-`A three-judge panel considered the requirement that journalists be accompanied by an escort when visiting the Pentagon. The New York Times sued to block the restriction.`\
-https://www.nytimes.com/2026/11/16/business/media/pentagon-media-restrictions-court-hearing.html
-
-**Pipeline Executive Worked for Alan Armstrong During Permitting Push**\
-`Senator Alan Armstrong hired his former company’s top lawyer temporarily, while the chamber drafted a sweeping energy bill. Ethics officials signed off on the unusual arrangement.`\
-https://www.nytimes.com/2026/11/16/climate/alan-armstrong-oklahoma.html
-
-**Pilots Kept Contact With Controllers During Nationwide Halt to Flights**\
-`Pilots were generally able to maintain contact with air traffic controllers and airline staff on the ground despite an outage that caused a nearly five-hour halt to departures.`\
-https://www.nytimes.com/2026/11/16/business/faa-ground-stop-pilots-radio-controllers.html
-
-**Enrollment in N.Y.C. Schools Falls by 23,000**\
-`New York City has lost 200,000 students over the past decade, mirroring declines in districts across the United States.`\
-https://www.nytimes.com/2026/11/16/nyregion/enrollment-nyc-schools-declines.html
-
-**Madison Huang, Jensen Huang’s Daughter, Became a Powerful Force at Nvidia**\
-`Installed as her father’s de facto chief of staff, Jensen Huang’s daughter alienated top executives. Now her lingering role poses a test for interim C.E.O. Colette Kress.`\
-https://www.nytimes.com/2026/11/16/technology/nvidia-jensen-madison-huang.html
-
-**What Pete Buttigieg’s Bet in the 2026 Midterms Could Mean for 2028**\
-`No longer a fresh face, he is arguing that his party needs moderate red-state whisperers.`\
-https://www.nytimes.com/2026/11/16/us/politics/pete-buttigieg-2028.html
-
-**For Your Consideration: Animated and Documentary Short Films by Op-Docs**\
-`Watch the latest short documentaries from our award-winning series.`\
-https://www.nytimes.com/2026/11/16/opinion/for-your-consideration-opdocs-short-films.html
-
-**Raye vs. Rosalía: Do the Grammys Want Tradition or Progress?**\
-`‘Popcast’ reacts to the Grammy nominations for Album of the Year, which include music from Raye, Taylor Swift and Olivia Rodrigo.`\
-https://www.nytimes.com/video/podcasts/100000011288748/raye-vs-rosalia-do-the-grammys-want-tradition-or-progress.html
-
-**Tucked in a Closet, Hidden by a Coat, a Lost Work by Georgia O’Keeffe**\
-`A piece by the famed painter had been squirreled away for decades. Now it’s been found — and may sell for millions.`\
-https://www.nytimes.com/2026/11/16/nyregion/found-georgia-okeeffe-painting.html
-
-**Student News Quiz: Mississippi Senate Race, Airline Disruption, James Bond**\
-`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
-https://www.nytimes.com/quiz/2026/11/16/learning/16studentnewsquiz-ln.html
-
-**Eric Kim Cooks His Ideal Thanksgiving**\
-`The New York Times Cooking columnist Eric Kim shares how to cook his 2026 Thanksgiving menu, a love letter to the Southern buffet, from start to finish.`\
-https://www.nytimes.com/video/dining/100000011281022/eric-kim-cooks-his-ideal-thanksgiving.html
-
-**Greek Lemon Potatoes**\
-`For the dreamiest roasted potatoes — with creamy insides and very crispy outsides — follow this classic Greek method of roasting peeled potatoes in equal parts olive oil, lemon juice and chicken stock.`\
-https://www.nytimes.com/video/dining/100000011288529/greek-lemon-potatoes.html
-
-**An Intriguing Approach to Slow Alzheimer’s Shows Mixed Results**\
-`The device, a headset delivering light and sound, is based on the theory that audiovisual stimulation can evoke brainwave responses that might help preserve neurological function.`\
-https://www.nytimes.com/2026/11/16/well/cognito-spectris-alzheimers-headset-device.html
-
-**The Walks That Fire Their Imaginations**\
-`Philip Lim, Kengo Kuma, Joy Harjo and others on their favorite places to amble, from Reykjavík to the Rio Grande.`\
-https://www.nytimes.com/2026/11/16/t-magazine/travel/favorite-walks.html
-
-**Trump Administration Aims to Clamp Down on A.I. Chip Loophole**\
-`Also, new data paves the way for weight-loss drugs for children. Here’s the latest at the end of Monday.`\
-https://www.nytimes.com/2026/11/16/briefing/trump-china-ai-loophole.html
-
-**United Airlines Flights Resume After ‘Widespread System Outage’**\
-`The brief disruption, after a nationwide ground stop last week, added to concerns about air travel ahead of a busy Thanksgiving travel period.`\
-https://www.nytimes.com/2026/11/16/business/united-airlines-outage-flights.html
-
-**Trump Administration Sought LinkedIn Data in Effort to Identify New York Times Sources**\
-`The court filing confirms that the Trump administration has sought on two parallel fronts to identify the sources for an article as part of one overarching investigation.`\
-https://www.nytimes.com/2026/11/16/us/politics/trump-linkedin-data-nyt-sources.html
 
