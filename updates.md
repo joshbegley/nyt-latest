@@ -1,3 +1,7 @@
+**Another**\
+`This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
+https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
+
 **Live Updates: Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
