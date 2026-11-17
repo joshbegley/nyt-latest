@@ -1,3 +1,7 @@
+**Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
+`Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
+https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html
+
 **‘When a Witness Recants’ Review: Wrongfully Imprisoned for 36 Years**\
 `With author Ta-Nehisi Coates as a guide, this documentary deepens a story of injustice and exoneration for three men in Baltimore.`\
 https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
 
 **FEMA Will Test Its Emergency Alert System Today**\
-`A test mandated every three years is scheduled for 2:20 p.m. Eastern time and will be broadcast on television and radio. Regularly scheduled programming will resume after about a minute.`\
+`A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
 https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
 
 **Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/17/world/americas/christian-sanon-trial-haiti-pr
 **A Visual Tour of President Trump’s Visits to Asia**\
 `President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
 https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
-
-**Nvidia’s Earnings Call Is a High-Stakes Moment**\
-`Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
-https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
 
