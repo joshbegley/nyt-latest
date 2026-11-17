@@ -1,3 +1,7 @@
+**Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
+`Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
+https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
+
 **Trump Administration Says It Will Not Use Ships to Deport Migrants**\
 `The Homeland Security Department told Congress of the decision after The New York Times reported last month that it was considering deportations by sea.`\
 https://www.nytimes.com/2026/11/17/us/politics/boat-deport-golden-bear.html
