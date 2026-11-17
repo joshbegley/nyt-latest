@@ -1,5 +1,9 @@
 **Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
 `“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
+https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
+
+**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
+`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
 https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oliagarchs-leaked-documents.html
 
 **Trump’s Ego Trip With Xi and Putin Will End Badly**\
