@@ -1,3 +1,7 @@
+**Hegseth Nominates His Former Aide to Lead the Army**\
+`After months of delay, Defense Secretary Pete Hegseth and the White House have sent Gen. Christopher LaNeve’s nomination for Army chief of staff to the Senate.`\
+https://www.nytimes.com/2026/11/17/us/hegseth-christopher-laneve-army-chief-of-staff.html
+
 **Man Indicted in Bomb Threat at Illinois Ethanol Plant**\
 `A federal grand jury in Peoria charged the man, who may have worked at the BioUrja plant, with threatening to detonate an explosive device last week.`\
 https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/17/crosswords/wordle-review-1978.html
 **Young Filipinos Protest Trump and Marcos Before They Meet**\
 `Most demonstrators were students who said their government was more focused on its relationship with the United States than helping Filipinos.`\
 https://www.nytimes.com/2026/11/17/world/asia/philippines-protest-trump-marcos.html
-
-**What to Know About APEC, ASEAN and the Quad**\
-`President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
-https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

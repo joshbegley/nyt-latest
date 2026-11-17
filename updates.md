@@ -1,3 +1,7 @@
+**Hegseth Nominates His Former Aide to Lead the Army**\
+`After months of delay, Defense Secretary Pete Hegseth and the White House have sent Gen. Christopher LaNeve’s nomination for Army chief of staff to the Senate.`\
+https://www.nytimes.com/2026/11/17/us/hegseth-christopher-laneve-army-chief-of-staff.html
+
 **Man Indicted in Bomb Threat at Illinois Ethanol Plant**\
 `A federal grand jury in Peoria charged the man, who may have worked at the BioUrja plant, with threatening to detonate an explosive device last week.`\
 https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.html
