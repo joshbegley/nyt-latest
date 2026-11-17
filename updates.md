@@ -1,3 +1,7 @@
+**5 Takeaways From the 2027 Grammy Nominations.**\
+`Our “Popcast” hosts share their reactions across categories.`\
+https://www.nytimes.com/2026/11/16/arts/music/popcast-grammy-nomination-takeaways.html
+
 **Family Seeks Hate Crime Charge in Near-Fatal Attack on Somali Uber Driver**\
 `Mohamed Yusuf, a married father of five, was assaulted by a passenger early Saturday morning outside Minneapolis, according to police and his family.`\
 https://www.nytimes.com/2026/11/16/us/somali-uber-driver-assault-minnesota.html
