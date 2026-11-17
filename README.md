@@ -1,3 +1,11 @@
+**‘The Hunger Games: Sunrise on the Reaping’ Review: Another Tribute**\
+`This prequel, following the early years of a character originally played by Woody Harrelson, is both bloated and limited.`\
+https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reaping-review.html
+
+**Fed Governor Cook Won’t Attend White House Hearing Without Changes**\
+`Lawyers for Lisa Cook, the Federal Reserve governor President Trump is trying to fire, called the hearing process a “facade.”`\
+https://www.nytimes.com/2026/11/17/business/economy/fed-governor-cook-wont-attend-white-house-hearing-without-changes.html
+
 **From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
 `Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
 https://www.nytimes.com/2026/11/17/world/christian-sanon-trial-haiti-president-assassination.html
@@ -70,13 +78,13 @@ https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-an
 `In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
 https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
 
-**Student Opinion: Have Roller Coasters Become Too Extreme?**\
-`After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
-https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
-
 **The Best Store-Bought Thanksgiving Shortcuts**\
 `Our experts share their favorite pantry staples.`\
 https://www.nytimes.com/2026/11/17/podcasts/the-best-store-bought-thanksgiving-shortcuts.html
+
+**Student Opinion: Have Roller Coasters Become Too Extreme?**\
+`After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
+https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
 
 **Corrections: Nov. 17, 2026**\
 `Corrections that appeared in print on Monday, Nov. 17, 2026.`\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/learning/word-of-the-day-paraphrase.html
 **Book Review: ‘Uprising,’ by Tahmima Anam**\
 `Tahmima Anam’s “Uprising” takes place in an impoverished Bangladeshi brothel.`\
 https://www.nytimes.com/2026/11/17/books/review/tahmima-anam-uprising.html
-
-**Congo Ebola Outbreak: How Fear and Mistrust Drive Community Spread**\
-`As the Ebola virus spreads in eastern Congo, health teams struggle to curb fatal delays in seeking medical care and the widespread desire to treat sick relatives at home.`\
-https://www.nytimes.com/2026/11/17/world/africa/congo-ebola-community-transmission.html
-
-**Chopard’s Happy Diamonds Design Turns 50**\
-`The watch design that allows diamonds to move freely over a dial has become a hallmark of the Swiss brand.`\
-https://www.nytimes.com/2026/11/17/fashion/watches-chopard-happy-diamonds-50th-anniversary.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
