@@ -8,7 +8,7 @@ https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reapin
 
 **Fed Governor Cook Won’t Attend White House Hearing Without Changes**\
 `Lawyers for Lisa Cook, the Federal Reserve governor President Trump is trying to fire, called the hearing process a “facade.”`\
-https://www.nytimes.com/2026/11/17/business/economy/fed-governor-cook-wont-attend-white-house-hearing-without-changes.html
+https://www.nytimes.com/2026/11/17/business/economy/fed-governor-lisa-cook-trump-white-house-hearing.html
 
 **From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
 `Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
