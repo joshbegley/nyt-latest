@@ -1,3 +1,7 @@
+**An Elegy for Americans Dying of Measles**\
+`America has officially lost its measles elimination status.`\
+https://www.nytimes.com/2026/11/17/opinion/measles-elimination-status-vaccines.html
+
 **Songs I’ve Been Digging Lately**\
 `Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
 https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
