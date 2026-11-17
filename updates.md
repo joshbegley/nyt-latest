@@ -1,3 +1,7 @@
+**The Enraging Hypocrisy at the Heart of the Nvidia Scandal**\
+`It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
+https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
+
 **Scientists Are Stumped by This Strange Object in Space**\
 `The rocky body called 1998 KY26 is moving in ways that gravity alone cannot explain. So far, no one knows why.`\
 https://www.nytimes.com/2026/11/16/science/1998-ky26-asteroid-comet.html

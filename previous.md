@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/16/us/sea-turtles-california.html
 `Fifty-four newborn olive ridley sea turtles, each roughly the size of a large strawberry and not weighing much more, made history this week.`\
 https://www.nytimes.com/video/us/100000011288147/sea-turtles-california-animal-rescue.html
 
-**The Nvidia Scandal Reveals an Administration Willing to Sell America Out**\
+**The Enraging Hypocrisy at the Heart of the Nvidia Scandal**\
 `It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
 https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
 
