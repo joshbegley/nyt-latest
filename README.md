@@ -1,3 +1,7 @@
+**A Visual Tour of President Trump’s Visits to Asia**\
+`President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
+https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
+
 **Nvidia’s Earnings Call Is a High-Stakes Moment**\
 `Wall Street is bracing for the chip maker’s latest earnings call, as analysts seek clues about the artificial intelligence giant’s future.`\
 https://www.nytimes.com/2026/11/17/business/dealbook/nvidia-ai-earnings-huang.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/fashion/watches-chopard-happy-diamonds-50th-a
 **Fearing Chinese Rivals, U.S. Biotech Adopts a New Norm: Share Nothing**\
 `Concerns that well-funded Chinese companies will swoop in to grab new ideas for their own drug development are shaping an industry unaccustomed to such secrecy.`\
 https://www.nytimes.com/2026/11/17/science/fearing-chinese-rivals-us-biotech-adopts-a-new-norm-share-nothing.html
-
-**A Watchmaker Who Sees Things His Own Way**\
-`Vianney Halter’s steampunk aesthetic has put his designs in a class all their own.`\
-https://www.nytimes.com/2026/11/17/fashion/watches-vianney-halter-switzerland.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
