@@ -1,3 +1,7 @@
+**Victim Advocates Sue Newsom Over Attempt to Empty California’s Death Row**\
+`Gov. Gavin Newsom is trying to spare the lives of 548 prisoners on California’s death row. Prosecutors and victims’ families say that it amounts to an abuse of power.`\
+https://www.nytimes.com/2026/11/16/us/newsom-sued-death-penalty-commuations-california.html
+
 **Protesters at Rutgers Disrupt Speech by Former Trump Border Official**\
 `Gregory Bovino was the face of the Trump administration’s immigration crackdown before he retired this year.`\
 https://www.nytimes.com/2026/11/16/nyregion/bovino-rutgers-speech-protest.html
