@@ -1,3 +1,7 @@
+**The Nvidia Scandal Reveals an Administration Willing to Sell America Out**\
+`It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
+https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
+
 **Trump Administration Divide on China Policy Breaks Into Public View**\
 `The airing of a fight over advanced A.I. chips shows how much the Nvidia scandal has deepened fissures inside the government, just as President Trump heads to a critical meeting with his Chinese counterpart.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-policy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/us/bank-outages-down.html
 **At a Roman Palazzo, a U.S. Cultural Agency Defends the Western Tradition**\
 `A gathering organized by the National Endowment for the Humanities brought Italian intellectuals together with American conservatives who warn of cultural decay.`\
 https://www.nytimes.com/2026/11/16/arts/national-endowment-humanities-rome-conference.html
-
-**Trump ‘Would Not Mind’ if Jensen Huang Were Reinstated as Nvidia’s Chief**\
-`President Trump said he would be open to Jensen Huang being reinstated as Nvidia’s chief. Mr. Huang resigned after admitting to an affair with a woman whom U.S. intelligence had identified as a Chinese spy.`\
-https://www.nytimes.com/video/us/politics/100000011287289/trump-jensen-huang-nvidia-ceo.html
 

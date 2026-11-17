@@ -1,3 +1,7 @@
+**The Nvidia Scandal Reveals an Administration Willing to Sell America Out**\
+`It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
+https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
+
 **Trump Administration Divide on China Policy Breaks Into Public View**\
 `The airing of a fight over advanced A.I. chips shows how much the Nvidia scandal has deepened fissures inside the government, just as President Trump heads to a critical meeting with his Chinese counterpart.`\
 https://www.nytimes.com/2026/11/16/us/politics/trump-china-ai-chip-policy.html
