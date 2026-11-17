@@ -1,10 +1,14 @@
+**Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
+`President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
+https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html
+
 **‘The Hunger Games: Sunrise on the Reaping’ Review: Another Tribute**\
 `This prequel, following the early years of a character originally played by Woody Harrelson, is both bloated and limited.`\
 https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reaping-review.html
 
 **Fed Governor Cook Won’t Attend White House Hearing Without Changes**\
 `Lawyers for Lisa Cook, the Federal Reserve governor President Trump is trying to fire, called the hearing process a “facade.”`\
-https://www.nytimes.com/2026/11/17/business/economy/fed-governor-cook-wont-attend-white-house-hearing-without-changes.html
+https://www.nytimes.com/2026/11/17/business/economy/fed-governor-lisa-cook-trump-white-house-hearing.html
 
 **From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
 `Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/arts/grand-theft-auto-vi-hype-success.html
 **Word of the Day: paraphrase**\
 `This word has appeared in 167 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/17/learning/word-of-the-day-paraphrase.html
-
-**Book Review: ‘Uprising,’ by Tahmima Anam**\
-`Tahmima Anam’s “Uprising” takes place in an impoverished Bangladeshi brothel.`\
-https://www.nytimes.com/2026/11/17/books/review/tahmima-anam-uprising.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

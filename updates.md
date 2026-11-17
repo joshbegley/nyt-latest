@@ -1,3 +1,11 @@
+**Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
+`President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
+https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html
+
+**Fed Governor Cook Won’t Attend White House Hearing Without Changes**\
+`Lawyers for Lisa Cook, the Federal Reserve governor President Trump is trying to fire, called the hearing process a “facade.”`\
+https://www.nytimes.com/2026/11/17/business/economy/fed-governor-lisa-cook-trump-white-house-hearing.html
+
 **Welcome Back, America! It’s Your Turn to Be Sorry.**\
 `This month, the world’s most unreliable boyfriend began to redeem himself.`\
 https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
