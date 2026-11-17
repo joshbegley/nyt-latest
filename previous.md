@@ -1,3 +1,7 @@
+**Scientists Are Stumped by This Strange Object in Space**\
+`The rocky body called 1998 KY26 is moving in ways that gravity alone cannot explain. So far, no one knows why.`\
+https://www.nytimes.com/2026/11/16/science/1998-ky26-asteroid-comet.html
+
 **El Niño Draws Sea Turtles to California’s Coast for the First Time**\
 `The California coast has seen an influx of olive ridley sea turtles, which are the smallest such reptiles and are normally found in tropical waters.`\
 https://www.nytimes.com/2026/11/16/us/sea-turtles-california.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
 **Austria May Strip Former Foreign Minister Karin Kneissl of Citizenship**\
 `The onetime foreign minister, Karin Kneissl, has lauded her new home for its “genuine freedom” and used it as a perch to attack her old one.`\
 https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenship.html
-
-**Measles Is Sickening More Pregnant Women and Newborns, Alarming Doctors**\
-`A new analysis underscores the severe consequences of a measles infection during pregnancy, including hospitalization and pregnancy loss.`\
-https://www.nytimes.com/2026/11/16/well/measles-pregnancy-newborns.html
 
