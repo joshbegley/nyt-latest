@@ -1,3 +1,11 @@
+**‘The Fantasticks’ Review: A Gender Swap for a Still-Tender Story**\
+`Now two men play the young lovers in this long-running musical from 1960. Its quaint nostalgia remains intact for this Broadway production.`\
+https://www.nytimes.com/2026/11/16/theater/the-fantasticks-review-broadway.html
+
+**NYT Crossword Answers for November 17, 2026**\
+`Jeffrey Martinovic and Tarun Krishnamurthy’s crossword is their first collaboration for The New York Times.`\
+https://www.nytimes.com/2026/11/16/crosswords/daily-puzzle-2026-11-17.html
+
 **Scientists Are Stumped by This Strange Object in Space**\
 `The rocky body called 1998 KY26 is moving in ways that gravity alone cannot explain. So far, no one knows why.`\
 https://www.nytimes.com/2026/11/16/science/1998-ky26-asteroid-comet.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-t
 **The Death of ‘Keep 1.5 Alive’**\
 `Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
 https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
-
-**The Local: Why Minnesota is a literary hotbed**\
-`Also, “A Christmas Carol” opens at the Guthrie.`\
-https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
-
-**Austria May Strip Former Foreign Minister Karin Kneissl of Citizenship**\
-`The onetime foreign minister, Karin Kneissl, has lauded her new home for its “genuine freedom” and used it as a perch to attack her old one.`\
-https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenship.html
 
