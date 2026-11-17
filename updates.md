@@ -1,3 +1,11 @@
+**Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
+`The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
+https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
+
+**Waymo Pulls Its Driverless Taxis From All U.S. Highways Temporarily**\
+`The move came after California’s Department of Motor Vehicles ordered the cars off their highways, citing an “imminent hazard to public safety.”`\
+https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
+
 **A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
 `The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
 https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
