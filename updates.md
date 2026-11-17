@@ -1,3 +1,7 @@
+**Appeals Court Weighs Pentagon’s Media Restrictions**\
+`A three-judge panel considered the requirement that journalists be accompanied by an escort when visiting the Pentagon. The New York Times sued to block the restriction.`\
+https://www.nytimes.com/2026/11/16/business/media/pentagon-media-restrictions-court-hearing.html
+
 **Pipeline Executive Worked for Alan Armstrong During Permitting Push**\
 `Senator Alan Armstrong hired his former company’s top lawyer temporarily, while the chamber drafted a sweeping energy bill. Ethics officials signed off on the unusual arrangement.`\
 https://www.nytimes.com/2026/11/16/climate/alan-armstrong-oklahoma.html

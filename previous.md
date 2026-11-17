@@ -1,3 +1,7 @@
+**Appeals Court Weighs Pentagon’s Media Restrictions**\
+`A three-judge panel considered the requirement that journalists be accompanied by an escort when visiting the Pentagon. The New York Times sued to block the restriction.`\
+https://www.nytimes.com/2026/11/16/business/media/pentagon-media-restrictions-court-hearing.html
+
 **Pipeline Executive Worked for Alan Armstrong During Permitting Push**\
 `Senator Alan Armstrong hired his former company’s top lawyer temporarily, while the chamber drafted a sweeping energy bill. Ethics officials signed off on the unusual arrangement.`\
 https://www.nytimes.com/2026/11/16/climate/alan-armstrong-oklahoma.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/nyregion/cornell-president-kotlikoff-rape-law
 **California Sues OpenAI Over A.I. Safety Issues**\
 `The state attorney general filed a lawsuit accusing the company of failing to put appropriate safeguards on its artificial intelligence and putting the public at risk.`\
 https://www.nytimes.com/2026/11/16/technology/california-openai-ai-safety.html
-
-**Fed Chairman Highlights Economic Uncertainty of A.I. Boom**\
-`Kevin M. Warsh, chairman of the Federal Reserve, has assigned a task force to explore how productivity gains tied to new technologies could impact the labor market.`\
-https://www.nytimes.com/2026/11/16/business/economy/warsh-ai-economy.html
 
