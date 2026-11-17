@@ -1,3 +1,11 @@
+**Family Seeks Hate Crime Charge in Near-Fatal Attack on Somali Uber Driver**\
+`Mohamed Yusuf, a married father of five, was assaulted by a passenger early Saturday morning outside Minneapolis, according to police and his family.`\
+https://www.nytimes.com/2026/11/16/us/somali-uber-driver-assault-minnesota.html
+
+**5 Takeaways From the 2027 Grammy Nominations.**\
+`.`\
+https://www.nytimes.com/2026/11/16/arts/music/popcast-grammy-nomination-takeaways.html
+
 **Appeals Court Weighs Pentagon’s Media Restrictions**\
 `A three-judge panel considered the requirement that journalists be accompanied by an escort when visiting the Pentagon. The New York Times sued to block the restriction.`\
 https://www.nytimes.com/2026/11/16/business/media/pentagon-media-restrictions-court-hearing.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/16/science/niaid-chief-john-powers.html
 **Judge Sets New March Trial Date for Lindsay Clancy**\
 `Judge William Sullivan set a new trial date of March 29 for Lindsay Clancy, whose first trial for the deaths of her three children ended in a deadlocked jury.`\
 https://www.nytimes.com/video/us/100000011287264/clancy-trial-date.html
-
-**Cornell University’s President Vows Fraternity Review in Wake of No Confidence Vote**\
-`President Michael I. Kotlikoff announced further steps in response to a former student’s lawsuit alleging a gang rape at a frat house.`\
-https://www.nytimes.com/2026/11/16/nyregion/cornell-president-kotlikoff-rape-lawsuit.html
-
-**California Sues OpenAI Over A.I. Safety Issues**\
-`The state attorney general filed a lawsuit accusing the company of failing to put appropriate safeguards on its artificial intelligence and putting the public at risk.`\
-https://www.nytimes.com/2026/11/16/technology/california-openai-ai-safety.html
 

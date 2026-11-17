@@ -1,3 +1,11 @@
+**Family Seeks Hate Crime Charge in Near-Fatal Attack on Somali Uber Driver**\
+`Mohamed Yusuf, a married father of five, was assaulted by a passenger early Saturday morning outside Minneapolis, according to police and his family.`\
+https://www.nytimes.com/2026/11/16/us/somali-uber-driver-assault-minnesota.html
+
+**5 Takeaways From the 2027 Grammy Nominations.**\
+`.`\
+https://www.nytimes.com/2026/11/16/arts/music/popcast-grammy-nomination-takeaways.html
+
 **Appeals Court Weighs Pentagon’s Media Restrictions**\
 `A three-judge panel considered the requirement that journalists be accompanied by an escort when visiting the Pentagon. The New York Times sued to block the restriction.`\
 https://www.nytimes.com/2026/11/16/business/media/pentagon-media-restrictions-court-hearing.html
