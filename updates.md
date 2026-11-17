@@ -1,3 +1,11 @@
+**15-Minute Lesson Plan: Learn History With This Historic Headlines Quiz**\
+`What can we learn about the past from front-page headlines?`\
+https://www.nytimes.com/2026/11/17/learning/15-minute-lesson-plan-learn-history-with-this-historic-headlines-quiz.html
+
+**Fans React to Robert Pattinson’s James Bond Casting**\
+`The “Twilight” and “Batman” actor will succeed Daniel Craig in the iconic British role.`\
+https://www.nytimes.com/video/movies/100000011288996/robert-pattinson-james-bond-007.html
+
 **Late Night Flies High on the F.A.A. Ground Stop**\
 `“Sometimes, it feels like maybe Elon and his DOGE bros shouldn’t have fired more than a thousand employees at the F.A.A.,” Jimmy Kimmel said.`\
 https://www.nytimes.com/2026/11/17/arts/television/late-night-faa-ground-stop.html
