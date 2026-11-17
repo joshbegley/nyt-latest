@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/11/17/fashion/the-allure-of-independent-watchmaking
 `Running the Moi Watch academy is just one of Hanmoi Kim’s responsibilities, but he said it is an important one.`\
 https://www.nytimes.com/2026/11/17/fashion/watch-repairs-moi-academy-seoul.html
 
-**8 Myths About Watches**\
-`There is a lot of information online about timepieces. Some of it is true. A lot isn’t.`\
-https://www.nytimes.com/2026/11/17/fashion/8-myths-about-watches.html
-
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
