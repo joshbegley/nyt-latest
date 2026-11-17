@@ -1,3 +1,11 @@
+**The Dentist With the Armani Jackets Everyone Wants**\
+`He can fill a cavity, and hunt down a rare Collezioni blouson.`\
+https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
+
+**There Will Be an Emergency Alert System Test on Tuesday. It Is Only a Test.**\
+`A test mandated every three years is scheduled for 2:20 p.m. Eastern time and will be broadcast on television and radio. Regularly scheduled programming will resume after about a minute.`\
+https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
+
 **Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
 `His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
 https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-
 **The Best Store-Bought Thanksgiving Shortcuts**\
 `Our experts share their favorite pantry staples.`\
 https://www.nytimes.com/2026/11/17/podcasts/the-best-store-bought-thanksgiving-shortcuts.html
-
-**Student Opinion: Have Roller Coasters Become Too Extreme?**\
-`After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
-https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
-
-**Corrections: Nov. 17, 2026**\
-`Corrections that appeared in print on Monday, Nov. 17, 2026.`\
-https://www.nytimes.com/2026/11/17/pageoneplus/corrections-nov-17-2026.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
