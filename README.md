@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
 **President Trump Starts Asia Trip With Quick Manila Stopover**\
-`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. ‘It’s life,’ he said.`\
+`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
 https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
 
 **U.S. Loses Its Measles Elimination Status, a Historic Setback for American Health**\
