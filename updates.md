@@ -1,3 +1,27 @@
+**They’re Young, Frustrated and Want France to Change. They Disagree on How.**\
+`One is a left-wing student leader, the other a young far-right activist. Together, Soumaya Sarré and Louise Montangon reflect the polarization of France, where more protests were set for Tuesday.`\
+https://www.nytimes.com/2026/11/17/world/europe/france-sarre-montangon-protests.html
+
+**Quote of the Day: Russian Strikes Expose Ukraine to Winter Chill**\
+`Quotation of the Day for Tuesday, November 17, 2026.`\
+https://www.nytimes.com/2026/11/17/pageoneplus/quote-of-the-day-russian-strikes-expose-ukraine-to-winter-chill.html
+
+**Trump Will Miss Most of the ASEAN Summit**\
+`President Trump will arrive in Manila as the meeting is wrapping up, a sign of how U.S. policy has left the region balancing between Washington and Beijing.`\
+https://www.nytimes.com/2026/11/17/world/asia/trump-manila-asean-late.html
+
+**Shoe Prices Hit a Record High Amid Inflation and Increased Tariffs**\
+`Shoe prices hit a record high in October as brands contend with the rising cost of materials and increased tariffs.`\
+https://www.nytimes.com/2026/11/17/business/shoe-prices-inflation-tariffs.html
+
+**Debt Problems of the Richest Countries Are Trickling Down to the Poorest**\
+`The debt load of developing countries jumped to $9.4 trillion as high interest rates and other global shocks batter their economies.`\
+https://www.nytimes.com/2026/11/17/business/economy/global-debt-economy-world-bank.html
+
+**From the Front Page: The Suez Canal Opens on Nov. 17, 1869**\
+`The waterway opened in Egypt, creating a new sea route between Europe and Asia, and transforming global trade.`\
+https://www.nytimes.com/2026/11/17/learning/from-the-front-page-the-suez-canal-opens-on-nov-17-1869.html
+
 **Justice Alito Warns Court Overhaul Could Threaten Judicial Independence**\
 `The conservative justice connected proposals to alter the court’s composition to what he characterized as a campaign to intimidate the court.`\
 https://www.nytimes.com/2026/11/16/us/politics/supreme-court-alito.html

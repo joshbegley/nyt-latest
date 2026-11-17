@@ -1,3 +1,27 @@
+**They’re Young, Frustrated and Want France to Change. They Disagree on How.**\
+`One is a left-wing student leader, the other a young far-right activist. Together, Soumaya Sarré and Louise Montangon reflect the polarization of France, where more protests were set for Tuesday.`\
+https://www.nytimes.com/2026/11/17/world/europe/france-sarre-montangon-protests.html
+
+**Quote of the Day: Russian Strikes Expose Ukraine to Winter Chill**\
+`Quotation of the Day for Tuesday, November 17, 2026.`\
+https://www.nytimes.com/2026/11/17/pageoneplus/quote-of-the-day-russian-strikes-expose-ukraine-to-winter-chill.html
+
+**Trump Will Miss Most of the ASEAN Summit**\
+`President Trump will arrive in Manila as the meeting is wrapping up, a sign of how U.S. policy has left the region balancing between Washington and Beijing.`\
+https://www.nytimes.com/2026/11/17/world/asia/trump-manila-asean-late.html
+
+**Shoe Prices Hit a Record High Amid Inflation and Increased Tariffs**\
+`Shoe prices hit a record high in October as brands contend with the rising cost of materials and increased tariffs.`\
+https://www.nytimes.com/2026/11/17/business/shoe-prices-inflation-tariffs.html
+
+**Debt Problems of the Richest Countries Are Trickling Down to the Poorest**\
+`The debt load of developing countries jumped to $9.4 trillion as high interest rates and other global shocks batter their economies.`\
+https://www.nytimes.com/2026/11/17/business/economy/global-debt-economy-world-bank.html
+
+**From the Front Page: The Suez Canal Opens on Nov. 17, 1869**\
+`The waterway opened in Egypt, creating a new sea route between Europe and Asia, and transforming global trade.`\
+https://www.nytimes.com/2026/11/17/learning/from-the-front-page-the-suez-canal-opens-on-nov-17-1869.html
+
 **Justice Alito Warns Court Overhaul Could Threaten Judicial Independence**\
 `The conservative justice connected proposals to alter the court’s composition to what he characterized as a campaign to intimidate the court.`\
 https://www.nytimes.com/2026/11/16/us/politics/supreme-court-alito.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/16/us/politics/bessent-lutnick-china.html
 **How the Haber-Bosch Process Changed the World**\
 `The Haber-Bosch process is the reason three-to-four billion of us are alive today.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammonia-fertilizer.html
-
-**How Charles Darwin's 'Origin of Species' Changed the World**\
-`With ‘On the Origin of Species,’ Charles Darwin kicked off a battle between science and religion that would define the century to come.<strong></strong>`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/charles-darwin-origin-species-evolution.html
-
-**10 Days That Changed the World**\
-`There have been 63,977 days since the New York Times began publishing. We chose the most important ones.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/ten-days-175-years.html
-
-**Trump Nominates Budget Deputy for Nonpartisan Federal Watchdog Role**\
-`The move could put a top administration official in charge of an oversight agency that has faulted the White House for past violations of the law.`\
-https://www.nytimes.com/2026/11/16/business/trump-gao-watchdog-nominee-eric-ueland.html
-
-**Tetsuya Chiba Has Died. He Drew Some of the Greatest Manga of All Time.**\
-`His serialized story “Ashita no Joe,” or “Tomorrow’s Joe,” about a troubled boxer, was a cultural phenomenon in Japan in the 1970s. He was 87.`\
-https://www.nytimes.com/2026/11/16/obituaries/tetsuya-chiba-dead.html
-
-**10 Numbers That Might Change How You See Asia**\
-`From semiconductor dominance to new power grids, defense deals and K-pop, the region — beyond China — is becoming increasingly interconnected and self-reliant.`\
-https://www.nytimes.com/2026/11/16/world/asia/asean-trade-security-technology.html
-
-**Republicans Can’t Rely on Trump Voters Anymore**\
-`Tim Carney, a senior political columnist at The Washington Examiner, argues that Trump’s voters never became reliably conservative and Republican. On “The Opinions,” he explains why “there’s no juice left to squeeze from MAGA” as Trump’s second term comes to an end.`\
-https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-trump-voters-anymore.html
 
