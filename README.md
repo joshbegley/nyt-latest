@@ -22,8 +22,8 @@ https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-question
 `Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
 https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
-**Live Updates: Nvidia to Release First Earnings Report Since Leadership Turmoil**\
-`The earnings report being released today covers a period before the chief executive Jensen Huang resigned last week. Still, it will provide the most up-to-date look available about the health of the A.I. industry.`\
+**Live Updates: Nvidia Reports $116 Billion in Revenue in First Earnings Since Leadership Turmoil**\
+`The report covers a period before the chief executive Jensen Huang resigned last week. Still, it provided the most up-to-date look available about the health of the A.I. industry.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
