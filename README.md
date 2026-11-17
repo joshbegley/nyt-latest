@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge
 `The agreement between Canada and China and the cordial relations on display by their leaders contrast with the current Canada-U.S. relationship.`\
 https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html
 
-**Live Updates: Trump’s Whirlwind Asia Trip Starts in the Philippines**\
-`President Trump’s 48-hour trip will begin with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+**Live Updates: Trump’s Begins Whirlwind Asia Trip in the Philippines**\
+`President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 
