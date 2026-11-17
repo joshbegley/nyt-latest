@@ -1,3 +1,7 @@
+**Dozens of Baby Sea Turtles Hatch Along California’s Coast**\
+`Fifty-four olive ridley sea turtles emerged from eggs laid in September in Seal Beach, Calif., becoming the first of their species known to be born in the state.`\
+https://www.nytimes.com/video/us/100000011289074/california-sea-turtle-hatch.html
+
 **Will New York Raise Taxes on the Rich? Free Child Care May Depend on It.**\
 `With Gov. Kathy Hochul and Mayor Zohran Mamdani pushing to expand free child care, a tax-the-rich campaign may fare better next year in a more left-leaning environment.`\
 https://www.nytimes.com/2026/11/17/nyregion/child-care-tax-the-rich-ny.html
@@ -10,15 +14,15 @@ https://www.nytimes.com/2026/11/17/crosswords/spelling-bee-forum.html
 `The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
 https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
 
-**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
-`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
-https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
-
 **Trump’s Ego Trip With Xi and Putin Will End Badly**\
 `Nothing good can come from sucking up to authoritarians.`\
 https://www.nytimes.com/2026/11/17/opinion/trump-xi-putin-summit.html
 
-**What If There Is No A.I. Bubble?**\
+**Leaked Records Show Deutsche Bank Courting Russian Oligarchs**\
+`“As you know we have a large Russian Oligarchs client population,” an analyst wrote as the bank braced for sanctions against wealthy clients.`\
+https://www.nytimes.com/2026/11/17/world/europe/deutsche-bank-russia-oligarchs-leaked-documents.html
+
+**What if There Is No A.I. Bubble?**\
 `The investments in A.I. might be a boon for the economy, but workers may still find themselves shortchanged.`\
 https://www.nytimes.com/2026/11/17/opinion/ai-bubble-workers.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/electric-grid-edison-lig
 **How Deng Xiaoping’s Capitalist Policy Changed China and the World**\
 `When Deng Xiaoping opened China to capitalism, it set the stage for a period of unimaginable growth.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/china-capitalism-deng-xiaoping-east.html
-
-**How the 15th Amendment Changed the World**\
-`The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html
 
