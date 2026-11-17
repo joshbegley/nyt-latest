@@ -1,3 +1,7 @@
+**Late Night Flies High on the F.A.A. Ground Stop**\
+`“Sometimes, it feels like maybe Elon and his DOGE bros shouldn’t have fired more than a thousand employees at the F.A.A.,” Jimmy Kimmel said.`\
+https://www.nytimes.com/2026/11/17/arts/television/late-night-faa-ground-stop.html
+
 **Dozens of Baby Sea Turtles Hatch Along California’s Coast**\
 `Fifty-four olive ridley sea turtles emerged from eggs laid in September in Seal Beach, Calif., becoming the first of their species known to be born in the state.`\
 https://www.nytimes.com/video/us/100000011289074/california-sea-turtle-hatch.html
