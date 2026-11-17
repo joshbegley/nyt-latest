@@ -1,3 +1,7 @@
+**At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
+`Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
+https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html
+
 **After an Artist Nearly Died, Strangers Helped Him Learn How to Draw Again**\
 `Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
