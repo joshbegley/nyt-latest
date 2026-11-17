@@ -1,3 +1,7 @@
+**Live Updates: Trump’s Whirlwind Asia Trip to Start in the Philippines**\
+`President Trump’s 48-hour trip will begin with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
+
 **Trump Has Praised Marcos’s Family Legacy. His Father Was a Dictator.**\
 `President Trump’s well-known affinity for autocratic leaders was on display the last time he met with President Ferdinand R. Marcos Jr. of the Philippines.`\
 https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-meeting-philippines.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/16/movies/robert-pattinson-new-bond.html
 **Did We Miss One of the Most Important Days of the Past 175 Years? Tell Us.**\
 `The New York Times Magazine just published a list of the 10 days that made our current world. Now we want to hear from you.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader-feedback.html
-
-**Mamdani’s Move to Disband N.Y.P.D. Unit Provokes Praise, Anger and Spin**\
-`Police unions reacted angrily to Mayor Zohran Mamdani’s decision to revamp the Strategic Response Group, but criminal justice activists were pleased.`\
-https://www.nytimes.com/2026/11/16/nyregion/mamdani-tisch-police-srg-protest.html
 

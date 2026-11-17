@@ -1,3 +1,7 @@
+**Trump Has Praised Marcos’s Family Legacy. His Father Was a Dictator.**\
+`President Trump’s well-known affinity for autocratic leaders was on display the last time he met with President Ferdinand R. Marcos Jr. of the Philippines.`\
+https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-meeting-philippines.html
+
 **15-Minute Lesson Plan: Learn History With This Historic Headlines Quiz**\
 `What can we learn about the past from front-page headlines?`\
 https://www.nytimes.com/2026/11/17/learning/15-minute-lesson-plan-learn-history-with-this-historic-headlines-quiz.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-reader
 **Mamdani’s Move to Disband N.Y.P.D. Unit Provokes Praise, Anger and Spin**\
 `Police unions reacted angrily to Mayor Zohran Mamdani’s decision to revamp the Strategic Response Group, but criminal justice activists were pleased.`\
 https://www.nytimes.com/2026/11/16/nyregion/mamdani-tisch-police-srg-protest.html
-
-**The Days From the Past 175 Years That Almost Made the List**\
-`Our panel of historical experts had some lively debates. Here's a window into their deliberations.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/10-days-175-years-runner-ups.html
 
