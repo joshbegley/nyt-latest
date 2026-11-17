@@ -1,3 +1,7 @@
+**Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
+`The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
+https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
+
 **Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
 `Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
 https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html

@@ -1,3 +1,7 @@
+**Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
+`The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
+https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
+
 **Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
 `Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
 https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/17/business/economy/fed-governor-lisa-cook-trump
 **From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
 `Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
 https://www.nytimes.com/2026/11/17/world/americas/christian-sanon-trial-haiti-president-assassination.html
-
-**A Visual Tour of President Trump’s Visits to Asia**\
-`President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
-https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
 

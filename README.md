@@ -130,7 +130,7 @@ https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 `It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 
-**A San Francisco Artist Nearly Died. Strangers Helped Him Learn How to Draw Again.**\
+**After an Artist Nearly Died, Strangers Helped Him Learn How to Draw Again**\
 `Paul Madonna, an artist known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 
