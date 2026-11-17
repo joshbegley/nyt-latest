@@ -1,3 +1,7 @@
+**Facing Criticism, Trump Administration Says It’s Investigating Megaspeed**\
+`The announcement appeared to be a response to recent criticism that the Commerce Department has moved too slowly on the alleged chip smuggling case.`\
+https://www.nytimes.com/2026/11/17/business/economy/megaspeed-investigation-trump-doj.html
+
 **They’re Young, Frustrated and Want France to Change. They Disagree on How.**\
 `One is a left-wing student leader, the other a young far-right activist. Together, Soumaya Sarré and Louise Montangon reflect the polarization of France, where more protests were set for Tuesday.`\
 https://www.nytimes.com/2026/11/17/world/europe/france-sarre-montangon-protests.html

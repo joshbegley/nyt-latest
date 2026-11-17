@@ -1,3 +1,7 @@
+**Facing Criticism, Trump Administration Says It’s Investigating Megaspeed**\
+`The announcement appeared to be a response to recent criticism that the Commerce Department has moved too slowly on the alleged chip smuggling case.`\
+https://www.nytimes.com/2026/11/17/business/economy/megaspeed-investigation-trump-doj.html
+
 **They’re Young, Frustrated and Want France to Change. They Disagree on How.**\
 `One is a left-wing student leader, the other a young far-right activist. Together, Soumaya Sarré and Louise Montangon reflect the polarization of France, where more protests were set for Tuesday.`\
 https://www.nytimes.com/2026/11/17/world/europe/france-sarre-montangon-protests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/bolshevik-revolution-rus
 **Bessent Takes Hawkish Turn in White House Debate on China**\
 `The Treasury secretary who sought to de-escalate tariff wars is taking a tougher approach to exports of sensitive U.S. technology.`\
 https://www.nytimes.com/2026/11/16/us/politics/bessent-lutnick-china.html
-
-**How the Haber-Bosch Process Changed the World**\
-`The Haber-Bosch process is the reason three-to-four billion of us are alive today.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/haber-bosch-process-ammonia-fertilizer.html
 
