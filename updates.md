@@ -1,3 +1,11 @@
+**El Niño Draws Sea Turtles to California’s Coast for the First Time**\
+`The California coast has seen an influx of olive ridley sea turtles, which are the smallest such reptiles and are normally found in tropical waters.`\
+https://www.nytimes.com/2026/11/16/us/sea-turtles-california.html
+
+**Baby Sea Turtles Swim Into Ocean Off California Coast**\
+`Fifty-four newborn olive ridley sea turtles, each roughly the size of a large strawberry and not weighing much more, made history this week.`\
+https://www.nytimes.com/video/us/100000011288147/sea-turtles-california-animal-rescue.html
+
 **The Nvidia Scandal Reveals an Administration Willing to Sell America Out**\
 `It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
 https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
