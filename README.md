@@ -1,3 +1,11 @@
+**Youssef M. Ibrahim, Who Covered Iran’s Revolution for The Times, Dies at 83**\
+`The Egyptian-born correspondent wrote about the Middle East during a time of dizzying transformation, and was expelled by Iran for his coverage.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/youssef-ibrahim-correspondent-obituary.html
+
+**Hakeem Jeffries Embraces Medicare Expansion on Eve of Speaker Vote**\
+`The top House Democrat endorsed lowering the eligibility age, covering all children and adding vision, hearing and dental services, proposals seen as precursors to Medicare for All.`\
+https://www.nytimes.com/2026/11/17/us/politics/jeffries-medicare-expansion.html
+
 **For Democrats, a Leadership Fight Is Marring an Electoral Triumph**\
 `The contest between Senators Chuck Schumer and Chris Van Hollen to be majority leader is sowing party divisions and putting them on public display.`\
 https://www.nytimes.com/2026/11/17/us/politics/democrats-leadership-battle-schumer-van-hollen.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.htm
 **I.R.S. Opens Criminal Probes as Part of Trump’s Pursuit of Left-Wing Groups**\
 `An internal I.R.S. memo viewed by The New York Times reveals how the agency is carrying out President Trump’s orders to investigate “domestic terrorism.”`\
 https://www.nytimes.com/2026/11/17/us/politics/irs-criminal-investigations.html
-
-**Winless Chargers Break Through as Ravens’ Season Slips Away**\
-`On the road against the Baltimore Ravens, the winless Los Angeles Chargers pulled out a 23-20 win on Monday Night Football.`\
-https://www.nytimes.com/video/the-athletic/100000011289960/winless-chargers-break-through-as-ravens-season-slips-away.html
-
-**Alarm Over an Energy Bill’s Threat to America’s Environment**\
-`Readers respond to an editorial, “Democrats, Take the Energy Deal.”`\
-https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
 
