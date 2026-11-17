@@ -1,3 +1,7 @@
+**Man Indicted in Bomb Threat at Illinois Ethanol Plant**\
+`A federal grand jury in Peoria charged the man, who may have worked at the BioUrja plant, with threatening to detonate an explosive device last week.`\
+https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.html
+
 **I.R.S. Opens Criminal Probes as Part of Trump’s Pursuit of Left-Wing Groups**\
 `An internal I.R.S. memo viewed by The New York Times reveals how the agency is carrying out President Trump’s orders to investigate “domestic terrorism.”`\
 https://www.nytimes.com/2026/11/17/us/politics/irs-criminal-investigations.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
 `He can fill a cavity, and hunt down a rare Collezioni blouson.`\
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
 
-**There Will Be an Emergency Alert System Test on Tuesday. It Is Only a Test.**\
+**FEMA Will Test Its Emergency Alert System Today**\
 `A test mandated every three years is scheduled for 2:20 p.m. Eastern time and will be broadcast on television and radio. Regularly scheduled programming will resume after about a minute.`\
 https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
 
