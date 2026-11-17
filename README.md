@@ -1,3 +1,7 @@
+**Grand Theft Auto VI Set to Make Billions**\
+`The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
+https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
+
 **Rob Sand Thinks Political Parties Are the Problem**\
 `“When I look at the two-choice political system, all I see is temptation.” Rob Sand, the Democratic governor-elect in Iowa, explains his critique of political parties on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011286752/rob-sand-thinks-political-parties-are-the-problem.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/17/podcasts/the-headlines/ai-fight-trump-adminis
 **NYT Strands Hints for November 18, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18, 2026.`\
 https://www.nytimes.com/2026/11/17/crosswords/strands-sidekick-990.html
-
-**Today’s Wordle Hints for November 18, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18, 2026.`\
-https://www.nytimes.com/2026/11/17/crosswords/wordle-review-1978.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
