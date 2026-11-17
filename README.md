@@ -1,3 +1,11 @@
+**Will New York Raise Taxes on the Rich? Free Child Care May Depend on It.**\
+`With Gov. Kathy Hochul and Mayor Zohran Mamdani pushing to expand free child care, a tax-the-rich campaign may fare better next year in a more left-leaning environment.`\
+https://www.nytimes.com/2026/11/17/nyregion/child-care-tax-the-rich-ny.html
+
+**NYT Spelling Bee Answers for November 17, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/17/crosswords/spelling-bee-forum.html
+
 **Japan’s Suica Penguin Mascot Is Retiring. Fans Are Taking It Hard.**\
 `The Suica penguin has been a familiar presence on prepaid transit cards for more than 20 years. Its imminent retirement has prompted a wave of nostalgia.`\
 https://www.nytimes.com/2026/11/17/world/asia/japan-penguin-suica-card.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/interactive/2026/11/16/magazine/china-capitalism-deng-xi
 **How the 15th Amendment Changed the World**\
 `The 15th Amendment was a bold declaration that democracy belonged to everyone, a vision the country has struggled to realize.`\
 https://www.nytimes.com/interactive/2026/11/16/magazine/15th-amendment-voting-rights-democracy.html
-
-**How the Internet's Predecessor ARPANET Changed the World**\
-`With the invention of ARPANET, connectivity between computers would reshape every aspect of modern society.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/arpanet-internet-computers-network.html
-
-**How the Birth Control Pill Changed the World**\
-`The pill gave women autonomy — and created a whole new type of reactionary politics.`\
-https://www.nytimes.com/interactive/2026/11/16/magazine/birth-control-pill-women-liberation.html
 
