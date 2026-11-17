@@ -1,3 +1,7 @@
+**Anne Thurston Has Died. She Revealed Salacious Details of Mao’s Life.**\
+`Dr. Thurston’s works documented Mao Zedong’s personal life and the traumas of the Cultural Revolution, earning scholarly accolades — and scorn from Beijing.`\
+https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html
+
 **Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
 `The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
 https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/well/move/exercise-fitness-break.html
 **This Architect Is Transforming a New House Into One That Looks Centuries-Old**\
 `Can an architect turn his family’s new build into a dwelling that looks centuries-old? He’s getting there.`\
 https://www.nytimes.com/2026/11/17/realestate/stone-house-upstate-ny.html
-
-**Book Review: ‘Mario Vargas Llosa,’ by Gerald Martin**\
-`A new biography of Mario Vargas Llosa traces his protean career as a novelist, public intellectual and politician.`\
-https://www.nytimes.com/2026/11/17/books/review/mario-vargas-llosa-gerald-martin.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

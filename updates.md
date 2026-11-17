@@ -1,3 +1,7 @@
+**Anne Thurston Has Died. She Revealed Salacious Details of Mao’s Life.**\
+`Dr. Thurston’s works documented Mao Zedong’s personal life and the traumas of the Cultural Revolution, earning scholarly accolades — and scorn from Beijing.`\
+https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html
+
 **Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
 `The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
 https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
