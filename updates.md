@@ -1,3 +1,15 @@
+**Youssef M. Ibrahim, Who Covered Iran’s Revolution for The Times, Dies at 83**\
+`The Egyptian-born correspondent wrote about the Middle East during a time of dizzying transformation, and was expelled by Iran for his coverage.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/youssef-ibrahim-correspondent-obituary.html
+
+**Hakeem Jeffries Embraces Medicare Expansion on Eve of Speaker Vote**\
+`The top House Democrat endorsed lowering the eligibility age, covering all children and adding vision, hearing and dental services, proposals seen as precursors to Medicare for All.`\
+https://www.nytimes.com/2026/11/17/us/politics/jeffries-medicare-expansion.html
+
+**For Democrats, a Leadership Fight Is Marring an Electoral Triumph**\
+`The contest between Senators Chuck Schumer and Chris Van Hollen to be majority leader is sowing party divisions and putting them on public display.`\
+https://www.nytimes.com/2026/11/17/us/politics/democrats-leadership-battle-schumer-van-hollen.html
+
 **Democrats Assail RFK Jr. After U.S. Loses Measles Elimination Status**\
 `Incoming senators and prospective presidential candidates blamed the health secretary’s history of vaccine skepticism for the rise of measles in the country.`\
 https://www.nytimes.com/2026/11/17/us/politics/rfk-jr-measles-democrats.html
