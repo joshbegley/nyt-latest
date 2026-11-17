@@ -1,3 +1,7 @@
+**Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
+`President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
+
 **Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
 `Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
 https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
