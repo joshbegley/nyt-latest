@@ -1,3 +1,7 @@
+**Measles Is Officially Back**\
+`Also, public schools are closing as enrollment drops. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/17/briefing/us-measles-surge-nvidia-profit.html
+
 **Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
 `Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
 https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
