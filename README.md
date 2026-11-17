@@ -1,3 +1,7 @@
+**What to Know About APEC, ASEAN and the Quad**\
+`President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
+https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
+
 **The Difference Between ‘Right-Wing’ and ‘Conservative’**\
 `How the internet left Ben Shapiro behind.`\
 https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-and-conservative.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/opinion/100000011286751/the-winning-democrat-who-w
 **Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
 `The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
 https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
-
-**Carney and Xi Announce Canada-China Trade Pact**\
-`The agreement between Canada and China and the cordial relations on display by their leaders contrast with the current Canada-U.S. relationship.`\
-https://www.nytimes.com/2026/11/17/world/canada/carney-china-xi-trade-apec.html
 
 **Live Updates: Trump’s Begins Whirlwind Asia Trip in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

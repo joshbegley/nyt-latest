@@ -1,3 +1,7 @@
+**Live Updates: Trump’s Begins Whirlwind Asia Trip in the Philippines**\
+`President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
+
 **The Difference Between ‘Right-Wing’ and ‘Conservative’**\
 `How the internet left Ben Shapiro behind.`\
 https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-and-conservative.html
