@@ -1,3 +1,15 @@
+**I.R.S. Opens Criminal Probes as Part of Trump’s Pursuit of Left-Wing Groups**\
+`An internal I.R.S. memo viewed by The New York Times reveals how the agency is carrying out President Trump’s orders to investigate “domestic terrorism.”`\
+https://www.nytimes.com/2026/11/17/us/politics/irs-criminal-investigations.html
+
+**Winless Chargers Break Through as Ravens’ Season Slips Away**\
+`On the road against the Baltimore Ravens, the winless Los Angeles Chargers pulled out a 23-20 win on Monday Night Football.`\
+https://www.nytimes.com/video/the-athletic/100000011289960/winless-chargers-break-through-as-ravens-season-slips-away.html
+
+**Alarm Over an Energy Bill’s Threat to America’s Environment**\
+`Readers respond to an editorial, “Democrats, Take the Energy Deal.”`\
+https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
+
 **The Dentist With the Armani Jackets Everyone Wants**\
 `He can fill a cavity, and hunt down a rare Collezioni blouson.`\
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/17/world/asia/philippines-protest-trump-marcos.h
 **What to Know About APEC, ASEAN and the Quad**\
 `President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
 https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
-
-**The Difference Between ‘Right-Wing’ and ‘Conservative’**\
-`How the internet left Ben Shapiro behind.`\
-https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-and-conservative.html
-
-**Anne Teresa De Keersmaeker Comes Full Circle, Spinning to Philip Glass**\
-`In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
-https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
-
-**The Best Store-Bought Thanksgiving Shortcuts**\
-`Our experts share their favorite pantry staples.`\
-https://www.nytimes.com/2026/11/17/podcasts/the-best-store-bought-thanksgiving-shortcuts.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

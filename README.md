@@ -1,3 +1,7 @@
+**Man Indicted in Bomb Threat at Illinois Ethanol Plant**\
+`A federal grand jury in Peoria charged the man, who may have worked at the BioUrja plant, with threatening to detonate an explosive device last week.`\
+https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.html
+
 **I.R.S. Opens Criminal Probes as Part of Trump’s Pursuit of Left-Wing Groups**\
 `An internal I.R.S. memo viewed by The New York Times reveals how the agency is carrying out President Trump’s orders to investigate “domestic terrorism.”`\
 https://www.nytimes.com/2026/11/17/us/politics/irs-criminal-investigations.html

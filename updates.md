@@ -1,3 +1,15 @@
+**I.R.S. Opens Criminal Probes as Part of Trump’s Pursuit of Left-Wing Groups**\
+`An internal I.R.S. memo viewed by The New York Times reveals how the agency is carrying out President Trump’s orders to investigate “domestic terrorism.”`\
+https://www.nytimes.com/2026/11/17/us/politics/irs-criminal-investigations.html
+
+**Winless Chargers Break Through as Ravens’ Season Slips Away**\
+`On the road against the Baltimore Ravens, the winless Los Angeles Chargers pulled out a 23-20 win on Monday Night Football.`\
+https://www.nytimes.com/video/the-athletic/100000011289960/winless-chargers-break-through-as-ravens-season-slips-away.html
+
+**Alarm Over an Energy Bill’s Threat to America’s Environment**\
+`Readers respond to an editorial, “Democrats, Take the Energy Deal.”`\
+https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
+
 **Duffy Details Request for $50 Billion for Air Traffic Improvements**\
 `The one-page explanation, which will be laid out for Republican members of Congress Tuesday, was thin on specifics.`\
 https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
