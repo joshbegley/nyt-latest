@@ -1,3 +1,15 @@
+**Justice Alito Warns Court Overhaul Could Threaten Judicial Independence**\
+`The conservative justice connected proposals to alter the court’s composition to what he characterized as a campaign to intimidate the court.`\
+https://www.nytimes.com/2026/11/16/us/politics/supreme-court-alito.html
+
+**‘The Fantasticks’ Review: A Gender Swap for a Still-Tender Story**\
+`Now two men play the young lovers in this long-running musical from 1960. Its quaint nostalgia remains intact for this Broadway production.`\
+https://www.nytimes.com/2026/11/16/theater/the-fantasticks-review-broadway.html
+
+**NYT Crossword Answers for November 17, 2026**\
+`Jeffrey Martinovic and Tarun Krishnamurthy’s crossword is their first collaboration for The New York Times.`\
+https://www.nytimes.com/2026/11/16/crosswords/daily-puzzle-2026-11-17.html
+
 **Scientists Are Stumped by This Strange Object in Space**\
 `The rocky body called 1998 KY26 is moving in ways that gravity alone cannot explain. So far, no one knows why.`\
 https://www.nytimes.com/2026/11/16/science/1998-ky26-asteroid-comet.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/16/world/asia/asean-trade-security-technology.ht
 **Republicans Can’t Rely on Trump Voters Anymore**\
 `Tim Carney, a senior political columnist at The Washington Examiner, argues that Trump’s voters never became reliably conservative and Republican. On “The Opinions,” he explains why “there’s no juice left to squeeze from MAGA” as Trump’s second term comes to an end.`\
 https://www.nytimes.com/video/opinion/100000011276426/republicans-cant-rely-on-trump-voters-anymore.html
-
-**The Death of ‘Keep 1.5 Alive’**\
-`Negotiators at COP31 are confronting a new reality as the world blows past a key warming target.`\
-https://www.nytimes.com/2026/11/16/world/climate-cop31-ukraine-nvidia-james-bond.html
-
-**The Local: Why Minnesota is a literary hotbed**\
-`Also, “A Christmas Carol” opens at the Guthrie.`\
-https://www.nytimes.com/2026/11/16/briefing/minnesota-literary-hotbed.html
-
-**Austria May Strip Former Foreign Minister Karin Kneissl of Citizenship**\
-`The onetime foreign minister, Karin Kneissl, has lauded her new home for its “genuine freedom” and used it as a perch to attack her old one.`\
-https://www.nytimes.com/2026/11/16/world/europe/austria-karin-kneissl-citizenship.html
 

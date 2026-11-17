@@ -1,3 +1,15 @@
+**Justice Alito Warns Court Overhaul Could Threaten Judicial Independence**\
+`The conservative justice connected proposals to alter the court’s composition to what he characterized as a campaign to intimidate the court.`\
+https://www.nytimes.com/2026/11/16/us/politics/supreme-court-alito.html
+
+**‘The Fantasticks’ Review: A Gender Swap for a Still-Tender Story**\
+`Now two men play the young lovers in this long-running musical from 1960. Its quaint nostalgia remains intact for this Broadway production.`\
+https://www.nytimes.com/2026/11/16/theater/the-fantasticks-review-broadway.html
+
+**NYT Crossword Answers for November 17, 2026**\
+`Jeffrey Martinovic and Tarun Krishnamurthy’s crossword is their first collaboration for The New York Times.`\
+https://www.nytimes.com/2026/11/16/crosswords/daily-puzzle-2026-11-17.html
+
 **The Enraging Hypocrisy at the Heart of the Nvidia Scandal**\
 `It started with sex, but it’s really about Trump’s utterly careless attitude toward U.S. security.`\
 https://www.nytimes.com/2026/11/16/opinion/nvidia-trump-jensen-huang-lutnick.html
