@@ -1,3 +1,7 @@
+**Songs I’ve Been Digging Lately**\
+`Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
+https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
+
 **What Can Genes Reveal About Chronic Pain?**\
 `The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
 https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
@@ -7,7 +11,7 @@ https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
 https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
 
 **A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
-`A 62-year-old man was found drowned in a cove  this month, evoking the lake’s stormy history.`\
+`A 62-year-old man was found drowned in a cove this month, evoking the lake’s stormy history.`\
 https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
 
 **Grand Theft Auto VI Set to Make Billions**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/briefing/born-with-measles.html
 **Disney Doubles Down on New Shows and Movies Amid Industry Upheaval**\
 `The company plans to finance growth with $3 billion in cost savings and, in a surprise move, said it would stop disclosing how much money its streaming business makes.`\
 https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
-
-**Tracking China’s War of Words Against Japan**\
-`Beijing is running a concerted campaign to paint Japan as an aggressor and resurgent military threat, according to a Times analysis.`\
-https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

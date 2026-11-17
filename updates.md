@@ -1,3 +1,11 @@
+**Songs I’ve Been Digging Lately**\
+`Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
+https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
+
+**A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
+`A 62-year-old man was found drowned in a cove this month, evoking the lake’s stormy history.`\
+https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
+
 **What Can Genes Reveal About Chronic Pain?**\
 `The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
 https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
