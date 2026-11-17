@@ -1,3 +1,7 @@
+**How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
+`The show’s 29th season has had a long-running reference to the hit game that’s meant to poke fun at our collective fervor over the midterms.`\
+https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
+
 **With House Democratic Majority Still Growing, Recounts Are Starting in Closest Races**\
 `The exact size of the Democratic majority in Congress was undetermined as recounts were sought in two races in North Carolina and one in Minnesota two weeks after the elections.`\
 https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carolina-minnesota.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos
 **U.S. Loses Its Measles Elimination Status, a Historic Setback for American Health**\
 `The nation was once regarded as a global leader for reining in the highly contagious virus. Now, large outbreaks that sicken thousands could become routine.`\
 https://www.nytimes.com/2026/11/17/well/us-measles-elimination-status.html
-
-**Stolen Goods**\
-`How one writer became a porch pirate.`\
-https://www.nytimes.com/2026/11/17/briefing/stolen-goods.html
 
