@@ -1,3 +1,7 @@
+**Live Updates: Nvidia Earnings and Forecasts Beat Expectations**\
+`The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
 **Annette Green, ‘High Priestess’ of the Perfume World, Has Died at 102**\
 `She turned the nonprofit Fragrance Foundation into a P.R. powerhouse, predicting the home-fragrance boom and overseeing the rise of designer perfumes.`\
 https://www.nytimes.com/2026/11/17/style/annette-green-dead.html
