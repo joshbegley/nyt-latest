@@ -1,3 +1,7 @@
+**From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
+`Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
+https://www.nytimes.com/2026/11/17/world/christian-sanon-trial-haiti-president-assassination.html
+
 **A Visual Tour of President Trump’s Visits to Asia**\
 `President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
 https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
