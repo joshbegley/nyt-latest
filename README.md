@@ -158,13 +158,13 @@ https://www.nytimes.com/2026/11/17/fashion/donut-watch-company-malaysia.html
 `Grand Theft Auto VI will be cutting-edge. We shouldn’t let that distract from the depravity its players will commit — and what it says about humanity.`\
 https://www.nytimes.com/2026/11/17/opinion/grand-theft-auto-danger-art.html
 
-**Can A.I. Take the Edge Off One of Hollywood’s Worst Jobs?**\
-`The potential for artificial intelligence to ease the slog of a key process known as rotoscoping has intrigued an industry otherwise wary of the technology.`\
-https://www.nytimes.com/2026/11/17/movies/aritifical-intelligence-hollywood-visual-effects.html
-
 **A More Precise Clock Is on Its Way**\
 `The optical atomic clock, which scientists say would be off by about a second over 14 billion years, is soon expected to become a primary reference.`\
 https://www.nytimes.com/2026/11/17/fashion/optical-atomic-clocks-rolex.html
+
+**Can A.I. Take the Edge Off One of Hollywood’s Worst Jobs?**\
+`The potential for artificial intelligence to ease the slog of a key process known as rotoscoping has intrigued an industry otherwise wary of the technology.`\
+https://www.nytimes.com/2026/11/17/movies/aritifical-intelligence-hollywood-visual-effects.html
 
 **These Ukrainians Aren’t in Combat. But They Deal With War Every Day.**\
 `A doctor, a gravedigger, a therapist and a pathologist share their war experiences.`\
