@@ -1,3 +1,7 @@
+**OK, America, We Can Still Be Friends**\
+`This month, the world’s most unreliable boyfriend began to redeem himself.`\
+https://www.nytimes.com/2026/11/17/opinion/canada-trump-america-midterms.html
+
 **Trump’s New A.I. Chip Rules Rattle Southeast Asia**\
 `New U.S. restrictions could jeopardize billions in investment and force countries in the region to strike an increasingly difficult balance between Washington and Beijing.`\
 https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
