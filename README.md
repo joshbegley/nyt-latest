@@ -190,7 +190,3 @@ https://www.nytimes.com/2026/11/17/dining/and-now-melissa-clarks-mashed-potatoes
 `The new government says $20 million worth of bank notes uncovered in farmhouses and woods are the “tip of the iceberg.” Allies of Viktor Orban, the former prime minister, call it a witch hunt.`\
 https://www.nytimes.com/2026/11/17/world/europe/hungary-magyar-orban-corruption-cash.html
 
-**Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
-`Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
-https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
-
