@@ -1,3 +1,7 @@
+**F.A.A. Shelves Routers Like the One Linked to the Nationwide Ground Stop**\
+`Federal officials said they believed that a router made by Juniper Networks caused a data overload that disrupted communications.`\
+https://www.nytimes.com/2026/11/17/us/faa-routers-ground-stop.html
+
 **26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
 `The state has recorded over 270 cases this year, the most since a major cluster of illness caused by the virus in 2018 and 2019. More than two dozen cases were recorded this past week.`\
 https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.h
 **Grand Theft Auto VI Set to Make Billions**\
 `The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
 https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
-
-**Rob Sand Thinks Political Parties Are the Problem**\
-`“When I look at the two-choice political system, all I see is temptation.” Rob Sand, the Democratic governor-elect in Iowa, explains his critique of political parties on “The Ezra Klein Show.”`\
-https://www.nytimes.com/video/opinion/100000011286752/rob-sand-thinks-political-parties-are-the-problem.html
 
