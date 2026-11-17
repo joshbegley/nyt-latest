@@ -66,7 +66,7 @@ https://www.nytimes.com/2026/11/17/arts/gta-6-hacker-guilty.html
 `With fewer babies being born and more school choice, districts across the country have concluded they must downsize. Families are trying to push back.`\
 https://www.nytimes.com/2026/11/17/us/public-schools-closing-birth-rate-enrollment.html
 
-**Jensen Huang Says He Would Return to Nvidia if Asked**\
+**Jensen Huang Says He Would Return as Nvidia CEO if Asked**\
 `Mr. Huang resigned as chief executive of the company last week after revelations that he had affairs with an employee and a woman linked to Chinese intelligence.`\
 https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 

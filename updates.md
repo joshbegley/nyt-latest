@@ -1,3 +1,7 @@
+**Jensen Huang Says He Would Return as Nvidia CEO if Asked**\
+`Mr. Huang resigned as chief executive of the company last week after revelations that he had affairs with an employee and a woman linked to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
+
 **Hegseth Nominates His Former Aide to Lead the Army**\
 `After months of delay, Defense Secretary Pete Hegseth and the White House have sent Gen. Christopher LaNeve’s nomination for Army chief of staff to the Senate.`\
 https://www.nytimes.com/2026/11/17/us/hegseth-christopher-laneve-army-chief-of-staff.html
