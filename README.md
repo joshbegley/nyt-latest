@@ -1,3 +1,7 @@
+**U.S. Loses Its Measles Elimination Status, a Historic Setback for American Health**\
+`The nation was once regarded as a global leader for reining in the highly contagious virus. Now, large outbreaks that sicken thousands could become routine.`\
+https://www.nytimes.com/2026/11/17/well/us-measles-elimination-status.html
+
 **Stolen Goods**\
 `How one writer became a porch pirate.`\
 https://www.nytimes.com/2026/11/17/briefing/stolen-goods.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/business/elon-musk-texas-republicans.html
 **Book Review: ‘The Imperfect City,’ by Paul Goldberger**\
 `In his latest book, the architecture critic Paul Goldberger celebrates urban spaces that combine laissez-faire energy with the wisdom of the plan.`\
 https://www.nytimes.com/2026/11/17/books/review/the-imperfect-city-paul-goldberger.html
-
-**Does This Man Have a Right to the Data From His Own Brain?**\
-`J. Galen Buckwalter cheerfully agreed to provide his neural data for a research study. But when he asked for a copy, things got complicated.`\
-https://www.nytimes.com/2026/11/17/business/brain-data-access-rights-buckwalter.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

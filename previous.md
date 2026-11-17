@@ -1,3 +1,19 @@
+**Stolen Goods**\
+`How one writer became a porch pirate.`\
+https://www.nytimes.com/2026/11/17/briefing/stolen-goods.html
+
+**The Something-for-Everyone Midterms Are Confusing**\
+`Now who gets to set the tone?`\
+https://www.nytimes.com/2026/11/17/opinion/democrats-progressive-moderate-agenda.html
+
+**And Now, Melissa Clark’s Mashed Potatoes**\
+`To my tastes, at least, this is the very best mashed potato recipe imaginable.`\
+https://www.nytimes.com/2026/11/17/dining/and-now-melissa-clarks-mashed-potatoes.html
+
+**Cash Hidden in Forests? Hungary Goes After Corruption Under Orban**\
+`The new government says $20 million worth of bank notes uncovered in farmhouses and woods are the “tip of the iceberg.” Allies of Viktor Orban, the former prime minister, call it a witch hunt.`\
+https://www.nytimes.com/2026/11/17/world/europe/hungary-magyar-orban-corruption-cash.html
+
 **Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
 `Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
 https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
@@ -174,23 +190,7 @@ https://www.nytimes.com/2026/11/17/books/review/the-imperfect-city-paul-goldberg
 `J. Galen Buckwalter cheerfully agreed to provide his neural data for a research study. But when he asked for a copy, things got complicated.`\
 https://www.nytimes.com/2026/11/17/business/brain-data-access-rights-buckwalter.html
 
-**A Literary Guide to the Books Mentioned in ‘The Traitors’**\
-`NBC’s campy murder mystery game show is teeming with allusions to books, poetry and theater, all hiding in plain sight.`\
-https://www.nytimes.com/2026/11/17/books/traitors-nbc-literary-books-guide.html
-
-**Jessica Craig-Martin Is Thrilled to Decline an Invitation**\
-`Jessica Craig-Martin, who for years trained her camera on the grotesque side of glamour, has a new memoir that left her briefly disinherited by one of her parents.`\
-https://www.nytimes.com/2026/11/17/style/jessica-craig-martin-book.html
-
-**When the Vanderbilts’ Gilded Age Mansion Was Razed for Retail**\
-`Just over 100 years ago, the Cornelius Vanderbilt II House was demolished to make way for Bergdorf Goodman. Today, remnants of the estate are scattered around the city.`\
-https://www.nytimes.com/2026/11/17/realestate/gilded-age-vanderbilt-mansion-demolition.html
-
-**How Much Does My Fitness Decline After a Break From Exercise?**\
-`Everyone misses workouts here and there. We asked experts what to expect after a break.`\
-https://www.nytimes.com/2026/11/17/well/move/exercise-fitness-break.html
-
-**Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
+**Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 

@@ -1,3 +1,23 @@
+**Stolen Goods**\
+`How one writer became a porch pirate.`\
+https://www.nytimes.com/2026/11/17/briefing/stolen-goods.html
+
+**The Something-for-Everyone Midterms Are Confusing**\
+`Now who gets to set the tone?`\
+https://www.nytimes.com/2026/11/17/opinion/democrats-progressive-moderate-agenda.html
+
+**And Now, Melissa Clark’s Mashed Potatoes**\
+`To my tastes, at least, this is the very best mashed potato recipe imaginable.`\
+https://www.nytimes.com/2026/11/17/dining/and-now-melissa-clarks-mashed-potatoes.html
+
+**Cash Hidden in Forests? Hungary Goes After Corruption Under Orban**\
+`The new government says $20 million worth of bank notes uncovered in farmhouses and woods are the “tip of the iceberg.” Allies of Viktor Orban, the former prime minister, call it a witch hunt.`\
+https://www.nytimes.com/2026/11/17/world/europe/hungary-magyar-orban-corruption-cash.html
+
+**Trump’s Whirlwind Asia Trip Begins in the Philippines**\
+`President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
+
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
