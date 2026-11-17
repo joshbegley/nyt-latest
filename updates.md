@@ -1,3 +1,7 @@
+**President Trump Starts Asia Trip With Quick Manila Stopover**\
+`Even for a president who prizes photo opportunities, Mr. Trump’s appearance in Manila suggested a lack of interest in diplomatic wins or issues at home. “It’s life,” he said.`\
+https://www.nytimes.com/2026/11/17/world/asia/17trump-summit-manila-asean-marcos.html
+
 **Measles Is Officially Back in the United States. What Now?**\
 `It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
