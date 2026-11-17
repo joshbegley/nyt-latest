@@ -1,3 +1,7 @@
+**Protesters at Rutgers Disrupt Speech by Former Trump Border Official**\
+`Gregory Bovino was the face of the Trump administration’s immigration crackdown before he retired this year.`\
+https://www.nytimes.com/2026/11/16/nyregion/bovino-rutgers-speech-protest.html
+
 **5 Takeaways From the 2027 Grammy Nominations.**\
 `Our “Popcast” hosts share their reactions across categories.`\
 https://www.nytimes.com/2026/11/16/arts/music/popcast-grammy-nomination-takeaways.html
