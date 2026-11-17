@@ -1,3 +1,11 @@
+**Ask The Morning: Your Nvidia Questions**\
+`Do you have questions about the company? We’ll find answers.`\
+https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-questions.html
+
+**Big Money, Existential Risks**\
+`Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
+https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
+
 **Live Updates: Nvidia to Release First Earnings Report Since Leadership Turmoil**\
 `The earnings report being released today covers a period before the chief executive Jensen Huang resigned last week. Still, it will provide the most up-to-date look available about the health of the A.I. industry.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/17/world/europe/hungary-magyar-orban-corruption-
 **Jewish Heirs and Consignors Settle Claim Over $180 Million van Gogh Ahead of Sale**\
 `Already the top lot of the season, the van Gogh became the center of controversy after a claim surfaced that it was sold under Nazi-era duress in the 1930s.`\
 https://www.nytimes.com/2026/11/17/arts/design/van-gogh-jewish-heirs-nazi-chestnut-trees-sothebys.html
-
-**Anne Thurston Has Died. She Revealed Salacious Details of Mao’s Life.**\
-`Dr. Thurston’s works documented Mao Zedong’s personal life and the traumas of the Cultural Revolution, earning scholarly accolades — and scorn from Beijing.`\
-https://www.nytimes.com/2026/11/17/world/asia/anne-thurston-dead.html
-
-**Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
-`The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
-https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
 

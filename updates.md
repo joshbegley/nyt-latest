@@ -1,3 +1,11 @@
+**Live Updates: Nvidia to Release First Earnings Report Since Leadership Turmoil**\
+`The earnings report being released today covers a period before the chief executive Jensen Huang resigned last week. Still, it will provide the most up-to-date look available about the health of the A.I. industry.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
+**Stocks Down Just Ahead of Nvidia’s Earnings Report**\
+`The chip maker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
+https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
+
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
 `Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
 https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
