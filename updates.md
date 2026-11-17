@@ -1,3 +1,11 @@
+**Trump’s New A.I. Chip Rules Rattle Southeast Asia**\
+`New U.S. restrictions could jeopardize billions in investment and force countries in the region to strike an increasingly difficult balance between Washington and Beijing.`\
+https://www.nytimes.com/2026/11/17/business/southeast-asia-china-ai-chips.html
+
+**Born Sick**\
+`We look at the consequences of measles in pregnancy.`\
+https://www.nytimes.com/2026/11/17/briefing/born-with-measles.html
+
 **Disney Plans to Finance Growth With $3 Billion in Cost Savings**\
 `The company reported a surge in quarterly profit and, in a surprise, said it would stop disclosing how much money its streaming business makes.`\
 https://www.nytimes.com/2026/11/17/business/disney-earnings-3billion-savings.html
