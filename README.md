@@ -1,3 +1,7 @@
+**For Democrats, a Leadership Fight Is Marring an Electoral Triumph**\
+`The contest between Senators Chuck Schumer and Chris Van Hollen to be majority leader is sowing party divisions and putting them on public display.`\
+https://www.nytimes.com/2026/11/17/us/politics/democrats-leadership-battle-schumer-van-hollen.html
+
 **Democrats Assail RFK Jr. After U.S. Loses Measles Elimination Status**\
 `Incoming senators and prospective presidential candidates blamed the health secretary’s history of vaccine skepticism for the rise of measles in the country.`\
 https://www.nytimes.com/2026/11/17/us/politics/rfk-jr-measles-democrats.html
@@ -169,12 +173,4 @@ https://www.nytimes.com/video/the-athletic/100000011289960/winless-chargers-brea
 **Alarm Over an Energy Bill’s Threat to America’s Environment**\
 `Readers respond to an editorial, “Democrats, Take the Energy Deal.”`\
 https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
-
-**The Dentist With the Armani Jackets Everyone Wants**\
-`He can fill a cavity, and hunt down a rare Collezioni blouson.`\
-https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
-
-**What Was That Alert on TV and the Radio? It Was Only a Test.**\
-`A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
-https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
 
