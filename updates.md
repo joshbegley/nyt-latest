@@ -1,3 +1,7 @@
+**Sisters Open a Homey Spot for Comfort Food**\
+`Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
+https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html
+
 **What Was That Alert on TV and the Radio? It Was Only a Test.**\
 `A national test mandated every three years was broadcast on television and radio at 2:20 p.m. Eastern time on Tuesday.`\
 https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
