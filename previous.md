@@ -1,4 +1,12 @@
-**Another**\
+**Trump Administration Says It Will Not Use Ships to Deport Migrants**\
+`The Homeland Security Department told Congress of the decision after The New York Times reported last month that it was considering deportations by sea.`\
+https://www.nytimes.com/2026/11/17/us/politics/boat-deport-golden-bear.html
+
+**FSG’s 80th Anniversary Party: Literary Stars, Bowls of Cigarettes and Jeffrey Eugenides**\
+`Farrar, Straus & Giroux celebrated its 80th anniversary with bowls of cigarettes and a Questlove D.J. set.`\
+https://www.nytimes.com/2026/11/17/style/farrar-straus-giroux-80-anniversary-party.html
+
+**Another Storm Is Bearing Down on California**\
 `This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
 https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
 
@@ -173,12 +181,4 @@ https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
 **Review: Asmik Grigorian Stars in a New Met Opera ‘Jenufa’**\
 `The soprano Asmik Grigorian and the tenor Sean Panikkar anchor a production by Claus Guth that allows room for its stars’ thrilling performances.`\
 https://www.nytimes.com/2026/11/17/arts/music/review-jenufa-metropolitan-opera-asmik-grigorian.html
-
-**Trump Begins Asia Trip in the Philippines**\
-`President Trump landed in Manila on Tuesday, beginning his 48-hour Asia trip with a gathering of Southeast Asian leaders. He will later meet with President Xi Jinping of China and President Vladimir V. Putin of Russia.`\
-https://www.nytimes.com/video/world/asia/100000011289495/trump-asia-trip-philippines-putin-xi-china.html
-
-**Street Style Look of the Week: ‘Old Man’ Style and ‘Subliminal Messaging’**\
-`A married couple in London manage to complement each other’s vibe without exactly matching.`\
-https://www.nytimes.com/2026/11/17/style/street-style-look-grandpa-style.html
 

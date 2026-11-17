@@ -1,3 +1,15 @@
+**Trump Administration Says It Will Not Use Ships to Deport Migrants**\
+`The Homeland Security Department told Congress of the decision after The New York Times reported last month that it was considering deportations by sea.`\
+https://www.nytimes.com/2026/11/17/us/politics/boat-deport-golden-bear.html
+
+**FSG’s 80th Anniversary Party: Literary Stars, Bowls of Cigarettes and Jeffrey Eugenides**\
+`Farrar, Straus & Giroux celebrated its 80th anniversary with bowls of cigarettes and a Questlove D.J. set.`\
+https://www.nytimes.com/2026/11/17/style/farrar-straus-giroux-80-anniversary-party.html
+
+**Another Storm Is Bearing Down on California**\
+`This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
+https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
+
 **Another**\
 `This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
 https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
