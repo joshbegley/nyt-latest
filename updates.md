@@ -1,3 +1,15 @@
+**Shock and Dread in the Gulf**\
+`Gulf countries talk about the consequences of a war against Iran not of their making.`\
+https://www.nytimes.com/2026/11/17/opinion/gulf-iran-israel-war.html
+
+**Judge Finds Trump’s Planned Seabed Mining Auction Violated Law**\
+`It’s unclear whether the Trump administration will proceed with a lease sale set for Thursday to permit companies to mine the ocean floor off American Samoa.`\
+https://www.nytimes.com/2026/11/17/climate/seabed-mining-lease-auction.html
+
+**Matan Kahana Elected Speaker of Israel’s Parliament**\
+`Matan Kahana, a lawmaker from Gadi Eisenkot’s party, will take control of the legislative process as the opposition looks to press Prime Minister Benjamin Netanyahu on multiple fronts.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-parliamentary-speaker.html
+
 **Emboldened by G.O.P. Election Losses, Iran Digs In, Officials Say**\
 `Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
 https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
