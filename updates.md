@@ -1,3 +1,7 @@
+**From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
+`Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
+https://www.nytimes.com/2026/11/17/world/americas/christian-sanon-trial-haiti-president-assassination.html
+
 **The Dentist With the Armani Jackets Everyone Wants**\
 `He can fill a cavity, and hunt down a rare Collezioni blouson.`\
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
