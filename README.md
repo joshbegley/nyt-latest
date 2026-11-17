@@ -1,3 +1,11 @@
+**26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
+`The state has recorded over 270 cases this year, the most since a major cluster of illness caused by the virus in 2018 and 2019. More than two dozen cases were recorded this past week.`\
+https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html
+
+**Contested Frida Kahlo Painting Is Withdrawn Hours Before Auction**\
+`Christie’s withdrew the work after accusations that several of the artist’s paintings had gone missing from the Casa Azul house-museum in Mexico City.`\
+https://www.nytimes.com/2026/11/17/arts/design/frida-kahlo-painting-auction-christies.html
+
 **Markwayne Mullin Defends Flight to L.S.U.-Texas Game After Ground Stop**\
 `“We still gotta live our lives,” said the homeland security secretary, who is required to use government planes for personal travel. His department said he paid.`\
 https://www.nytimes.com/2026/11/17/us/politics/mullin-lsu-football-plane.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-p
 **Rob Sand Thinks Political Parties Are the Problem**\
 `“When I look at the two-choice political system, all I see is temptation.” Rob Sand, the Democratic governor-elect in Iowa, explains his critique of political parties on “The Ezra Klein Show.”`\
 https://www.nytimes.com/video/opinion/100000011286752/rob-sand-thinks-political-parties-are-the-problem.html
-
-**Hegseth Nominates His Former Aide to Lead the Army**\
-`After months of delay, Defense Secretary Pete Hegseth and the White House have sent Gen. Christopher LaNeve’s nomination for Army chief of staff to the Senate.`\
-https://www.nytimes.com/2026/11/17/us/hegseth-christopher-laneve-army-chief-of-staff.html
-
-**Man Indicted in Bomb Threat at Illinois Ethanol Plant**\
-`A federal grand jury in Peoria charged the man, who may have worked at the BioUrja plant, with threatening to detonate an explosive device last week.`\
-https://www.nytimes.com/2026/11/17/us/peoria-illinois-bomb-threat-indictment.html
 
