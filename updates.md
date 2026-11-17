@@ -1,3 +1,7 @@
+**Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
+`At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
+
 **Sisters Open a Homey Spot for Comfort Food**\
 `Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
 https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html

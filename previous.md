@@ -1,3 +1,7 @@
+**Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
+`At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
+
 **Sisters Open a Homey Spot for Comfort Food**\
 `Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
 https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011288829/new-study-makes
 **Putin Is Open to Meeting With North Korea’s Leader in China, Kremlin Says**\
 `President Vladimir V. Putin of Russia could meet with Kim Jong-un if he travels to Shenzhen for the APEC summit this week. North Korea has not confirmed whether Mr. Kim will attend.`\
 https://www.nytimes.com/2026/11/17/world/asia/putin-kim-jong-un-north-korea-china-meeting.html
-
-**‘The Hunger Games: Sunrise on the Reaping’ Review: Another Tribute**\
-`This prequel, following the early years of a character originally played by Woody Harrelson, is both bloated and limited.`\
-https://www.nytimes.com/2026/11/17/movies/the-hunger-games-sunrise-on-the-reaping-review.html
 
