@@ -1,3 +1,7 @@
+**Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
+`The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
+https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
+
 **Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
 `The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
 https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/realestate/stone-house-upstate-ny.html
 **Book Review: ‘Mario Vargas Llosa,’ by Gerald Martin**\
 `A new biography of Mario Vargas Llosa traces his protean career as a novelist, public intellectual and politician.`\
 https://www.nytimes.com/2026/11/17/books/review/mario-vargas-llosa-gerald-martin.html
-
-**How the Measles Virus Makes Your Immune System Forget**\
-`The United States is losing its measles-elimination status, signaling the return of a virus that can cause lasting health consequences.`\
-https://www.nytimes.com/2026/11/17/science/measles-virus-immune-system.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

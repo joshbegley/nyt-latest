@@ -1,3 +1,7 @@
+**Ecuadorean Fishermen Who Survived U.S. Boat Strike Sue Trump Administration**\
+`The first lawsuit by strike survivors targets a secretive U.S. military campaign that has killed more than 240 people.`\
+https://www.nytimes.com/2026/11/17/world/americas/trump-us-boat-strikes-lawsuit-ecuador-fishermen.html
+
 **Prince William Brings Climate Prize to India, in an Electric Rickshaw**\
 `The three-wheeler that the heir to the British throne used was made by one of 15 finalists honored for creative environmental projects.`\
 https://www.nytimes.com/2026/11/17/world/asia/prince-william-climate-prize-india-rickshaw.html
