@@ -1,3 +1,7 @@
+**Measles Is Officially Back in the United States. What Now?**\
+`It will take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
+https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
+
 **An Artist Nearly Died in a Crash. Strangers Helped Him Draw Again.**\
 `Paul Madonna, a San Francisco artist known for his drawings of the city’s landmarks, has recovered enough to have his own art exhibition four years after a head-on car collision.`\
 https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/arts/design/jack-kirby-comics.html
 **Restaurant Review: At Faux, the Scene-y NYC Bistro Enters Its Next Generation**\
 `The son of Keith McNally, the man who defined the genre at Balthazar and the Odeon, follows up with another restaurant where the food is not the point.`\
 https://www.nytimes.com/2026/11/17/dining/faux-restaurant-review.html
-
-**Trump’s Culture War, Amid Setbacks, Will Soon Face a Hostile Congress**\
-`The White House campaign to make major changes at the Smithsonian and the Kennedy Center has fallen short of its goals. Will it be further disrupted by a Democrat-led Congress?`\
-https://www.nytimes.com/2026/11/17/arts/design/trump-congress-smithsonian-kennedy-center.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
