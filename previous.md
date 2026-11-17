@@ -1,3 +1,31 @@
+**Tracking China’s War of Words Against Japan**\
+`Beijing is running a concerted campaign to paint Japan as an aggressor and resurgent military threat, according to a Times analysis.`\
+https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html
+
+**NYT Connections Answers for November 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18. 2026.`\
+https://www.nytimes.com/2026/11/17/crosswords/connections-companion-1256.html
+
+**Democrats Promised Lower Prices. What Can They Actually Do?**\
+`Three reporters talk about what options the party really has to try to bring down the cost of living.`\
+https://www.nytimes.com/2026/11/17/podcasts/the-daily/democrats-promised-lower-prices-what-can-they-actually-do.html
+
+**The A.I. Fight Dividing the Trump Administration, and the Next James Bond**\
+`Plus, a new study on phone bans in schools.`\
+https://www.nytimes.com/2026/11/17/podcasts/the-headlines/ai-fight-trump-administration-new-james-bond-megaspeed.html
+
+**NYT Strands Hints for November 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18, 2026.`\
+https://www.nytimes.com/2026/11/17/crosswords/strands-sidekick-990.html
+
+**Today’s Wordle Hints for November 18, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 18, 2026.`\
+https://www.nytimes.com/2026/11/17/crosswords/wordle-review-1978.html
+
+**Young Filipinos Protest Trump and Marcos Before They Meet**\
+`Most demonstrators were students who said their government was more focused on its relationship with the United States than helping Filipinos.`\
+https://www.nytimes.com/2026/11/17/world/asia/philippines-protest-trump-marcos.html
+
 **What to Know About APEC, ASEAN and the Quad**\
 `President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
 https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
@@ -165,34 +193,6 @@ https://www.nytimes.com/2026/11/17/science/a-new-bold-antarctic-rescue-bringing-
 **Watches That Come Inside Doughnut (Cases)**\
 `The Donut Watch Company, in Kuala Lumpur, says its focus is horology and fun.`\
 https://www.nytimes.com/2026/11/17/fashion/donut-watch-company-malaysia.html
-
-**Grand Theft Auto VI Is Part of Depraved Art’s History**\
-`Grand Theft Auto VI will be cutting-edge. We shouldn’t let that distract from the depravity its players will commit — and what it says about humanity.`\
-https://www.nytimes.com/2026/11/17/opinion/grand-theft-auto-danger-art.html
-
-**A More Precise Clock Is on Its Way**\
-`The optical atomic clock, which scientists say would be off by about a second over 14 billion years, is soon expected to become a primary reference.`\
-https://www.nytimes.com/2026/11/17/fashion/optical-atomic-clocks-rolex.html
-
-**Can A.I. Take the Edge Off One of Hollywood’s Worst Jobs?**\
-`The potential for artificial intelligence to ease the slog of a key process known as rotoscoping has intrigued an industry otherwise wary of the technology.`\
-https://www.nytimes.com/2026/11/17/movies/aritifical-intelligence-hollywood-visual-effects.html
-
-**A Hot Springs Road Trip in Southern California**\
-`Hot springs, outsider art and desert landscapes were the highlights of a four-day drive from Los Angeles to a Mexican border town and back.`\
-https://www.nytimes.com/2026/11/17/travel/southern-california-road-trip-hot-springs.html
-
-**These Ukrainians Aren’t in Combat. But They Deal With War Every Day.**\
-`A doctor, a gravedigger, a therapist and a pathologist share their war experiences.`\
-https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html
-
-**The Winning Democrat Who Wants to Break Up Political Parties**\
-`Iowa’s governor-elect, Rob Sand, ran on a platform criticizing the two-party system. How will he translate his campaign message into reform?`\
-https://www.nytimes.com/video/opinion/100000011286751/the-winning-democrat-who-wants-to-break-up-political-parties.html
-
-**Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea**\
-`The attacks, far from the front lines, forced the only bridge between Russia and the occupied Crimean Peninsula to close. Traffic on two bridges in Kyiv was also stopped.`\
-https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
