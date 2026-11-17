@@ -1,3 +1,7 @@
+**Anne Teresa De Keersmaeker Comes Full Circle, Spinning to Philip Glass**\
+`In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
+https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
+
 **Student Opinion: Have Roller Coasters Become Too Extreme?**\
 `After a man died and others were injured from roller coasters this year, safety has become a concern again. Should ride manufacturers keep pushing the limits?`\
 https://www.nytimes.com/2026/11/17/learning/have-roller-coasters-become-too-extreme.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 **Trump Has Praised Marcos’s Family Legacy. His Father Was a Dictator.**\
 `President Trump’s well-known affinity for autocratic leaders was on display the last time he met with President Ferdinand R. Marcos Jr. of the Philippines.`\
 https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-meeting-philippines.html
-
-**15-Minute Lesson Plan: Learn History With This Historic Headlines Quiz**\
-`What can we learn about the past from front-page headlines?`\
-https://www.nytimes.com/2026/11/17/learning/15-minute-lesson-plan-learn-history-with-this-historic-headlines-quiz.html
 
