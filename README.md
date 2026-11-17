@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/11/17/us/public-schools-closing-birth-rate-enrollme
 https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 
 **Measles Is Officially Back in the United States. What Now?**\
-`It will take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
+`It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
 
 **An Artist Nearly Died in a Crash. Strangers Helped Him Draw Again.**\
