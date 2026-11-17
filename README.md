@@ -1,3 +1,15 @@
+**With House Democratic Majority Still Growing, Recounts Are Starting in Closest Races**\
+`The exact size of the Democratic majority in Congress was undetermined as recounts were sought in two races in North Carolina and one in Minnesota two weeks after the elections.`\
+https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carolina-minnesota.html
+
+**Columbia’s Neighbors File Appeal to Reopen the Campus to the Public**\
+`Plaintiffs in the class action lawsuit argue that the university must reopen its gates in Manhattan, which have been closed since pro-Palestinian demonstrations in 2023.`\
+https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public-closure.html
+
+**A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
+`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw could affect systems used by nearly all Fortune 500 companies.`\
+https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
+
 **Ask The Morning: Your Nvidia Questions**\
 `Do you have questions about the company? We’ll find answers.`\
 https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-questions.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/11/17/well/us-measles-elimination-status.html
 **Stolen Goods**\
 `How one writer became a porch pirate.`\
 https://www.nytimes.com/2026/11/17/briefing/stolen-goods.html
-
-**The Something-for-Everyone Midterms Are Confusing**\
-`Now who gets to set the tone?`\
-https://www.nytimes.com/2026/11/17/opinion/democrats-progressive-moderate-agenda.html
-
-**And Now, Melissa Clark’s Mashed Potatoes**\
-`To my tastes, at least, this is the very best mashed potato recipe imaginable.`\
-https://www.nytimes.com/2026/11/17/dining/and-now-melissa-clarks-mashed-potatoes.html
-
-**Cash Hidden in Forests? Hungary Goes After Corruption Under Orban**\
-`The new government says $20 million worth of bank notes uncovered in farmhouses and woods are the “tip of the iceberg.” Allies of Viktor Orban, the former prime minister, call it a witch hunt.`\
-https://www.nytimes.com/2026/11/17/world/europe/hungary-magyar-orban-corruption-cash.html
 
