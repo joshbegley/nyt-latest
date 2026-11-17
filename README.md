@@ -26,7 +26,7 @@ https://www.nytimes.com/2026/11/17/climate/seabed-mining-lease-auction.html
 `Matan Kahana, a lawmaker from Gadi Eisenkot’s party, will take control of the legislative process as the opposition looks to press Prime Minister Benjamin Netanyahu on multiple fronts.`\
 https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-parliamentary-speaker.html
 
-**Emboldened by G.O.P. Election Losses, Iran Digs In, Officials Say**\
+**Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
 `Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
 https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
 
