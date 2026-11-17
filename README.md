@@ -1,3 +1,7 @@
+**Shock and Dread in the Gulf**\
+`Gulf countries talk about the consequences of a war against Iran not of their making.`\
+https://www.nytimes.com/2026/11/17/opinion/gulf-iran-israel-war.html
+
 **Judge Finds Trump’s Planned Seabed Mining Auction Violated Law**\
 `It’s unclear whether the Trump administration will proceed with a lease sale set for Thursday to permit companies to mine the ocean floor off American Samoa.`\
 https://www.nytimes.com/2026/11/17/climate/seabed-mining-lease-auction.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/11/17/us/politics/nsa-down-network-outage-nsanet.ht
 **The U.S. Lost Its Measles Elimination Status. Here’s What That Means.**\
 `The U.S. has lost its measles elimination status in a historic setback. Apoorva Mandavilli, a science and global health reporter, outlines the ways that the health system will have to adapt to confront the disease.`\
 https://www.nytimes.com/video/us/100000011273308/the-us-lost-its-measles-elimination-status-heres-what-that-means.html
-
-**Grand Theft Auto VI Hacker Pleads Guilty to Cybercrimes**\
-`Arion Kurtaj admitted to publishing unreleased gameplay footage of the highly anticipated title, as well as separate hacks of Revolut and Uber.`\
-https://www.nytimes.com/2026/11/17/arts/gta-6-hacker-guilty.html
 
