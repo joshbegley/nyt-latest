@@ -1,3 +1,7 @@
+**Alarm Over an Energy Bill’s Threat to America’s Environment**\
+`Readers respond to an editorial, “Democrats, Take the Energy Deal.”`\
+https://www.nytimes.com/2026/11/17/opinion/energy-bill-environment.html
+
 **The Dentist With the Armani Jackets Everyone Wants**\
 `He can fill a cavity, and hunt down a rare Collezioni blouson.`\
 https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/podcasts/the-difference-between-right-wing-an
 **Anne Teresa De Keersmaeker Comes Full Circle, Spinning to Philip Glass**\
 `In “GLA55,” the Belgian choreographer Anne Teresa De Keersmaeker revisits her minimalist roots with a gritty rearrangement of Glass’s early scores.`\
 https://www.nytimes.com/2026/11/17/arts/dance/anne-teresa-de-keersmaeker-philip-glass.html
-
-**The Best Store-Bought Thanksgiving Shortcuts**\
-`Our experts share their favorite pantry staples.`\
-https://www.nytimes.com/2026/11/17/podcasts/the-best-store-bought-thanksgiving-shortcuts.html
 
 **Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip started with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\

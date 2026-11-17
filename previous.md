@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-tes
 `His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
 https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
 
-**Transportation Secretary Details Request for $50 Billion for Air Traffic Improvements**\
+**Duffy Details Request for $50 Billion for Air Traffic Improvements**\
 `The one-page explanation, which will be laid out for Republican members of Congress Tuesday, was thin on specifics.`\
 https://www.nytimes.com/2026/11/17/us/duffy-hill-ground-stop-faa.html
 
