@@ -1,3 +1,7 @@
+**From Failed Businessman to Accused Plotter in the Killing of Haiti’s Leader**\
+`Prosecutors say Christian Sanon was a con man who oversaw a plan to assassinate the country’s president. His defense says he played no part in the plot’s fatal outcome.`\
+https://www.nytimes.com/2026/11/17/world/christian-sanon-trial-haiti-president-assassination.html
+
 **A Visual Tour of President Trump’s Visits to Asia**\
 `President Trump landed in the Philippines on the first stop of a 48-hour Asia trip during which he is expected to meet with leaders including the presidents of Russia and China.`\
 https://www.nytimes.com/2026/11/17/world/asia/president-trump-visits-asia.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/17/world/africa/congo-ebola-community-transmissi
 **Chopard’s Happy Diamonds Design Turns 50**\
 `The watch design that allows diamonds to move freely over a dial has become a hallmark of the Swiss brand.`\
 https://www.nytimes.com/2026/11/17/fashion/watches-chopard-happy-diamonds-50th-anniversary.html
-
-**Fearing Chinese Rivals, U.S. Biotech Adopts a New Norm: Share Nothing**\
-`Concerns that well-funded Chinese companies will swoop in to grab new ideas for their own drug development are shaping an industry unaccustomed to such secrecy.`\
-https://www.nytimes.com/2026/11/17/science/fearing-chinese-rivals-us-biotech-adopts-a-new-norm-share-nothing.html
 
 **Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
