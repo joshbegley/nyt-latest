@@ -1,3 +1,11 @@
+**The Dentist With the Armani Jackets Everyone Wants**\
+`He can fill a cavity, and hunt down a rare Collezioni blouson.`\
+https://www.nytimes.com/2026/11/17/style/vintage-armani-seller.html
+
+**There Will Be an Emergency Alert System Test on Tuesday. It Is Only a Test.**\
+`A test mandated every three years is scheduled for 2:20 p.m. Eastern time and will be broadcast on television and radio. Regularly scheduled programming will resume after about a minute.`\
+https://www.nytimes.com/2026/11/17/business/media/nationwide-emergency-alert-test-fema.html
+
 **Del Casher Has Died. He Made Jimi Hendrix’s Guitar Cry.**\
 `His device, the wah-wah pedal, animated indelible solos by guitar gods including Eric Clapton and Jimmy Page. He was 88.`\
 https://www.nytimes.com/2026/11/17/obituaries/del-casher-dead.html
