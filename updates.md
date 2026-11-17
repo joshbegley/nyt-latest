@@ -1,3 +1,7 @@
+**What to Know About APEC, ASEAN and the Quad**\
+`President Trump’s trip to Asia is filled with acronyms. Here is a primer on what those terms mean, and some highlights from previous summits.`\
+https://www.nytimes.com/2026/11/17/world/asia/apec-asean-quad.html
+
 **Live Updates: Trump’s Begins Whirlwind Asia Trip in the Philippines**\
 `President Trump’s 48-hour trip will start with a meeting with Southeast Asian leaders in Manila. He will later meet Xi Jinping of China and Vladimir Putin of Russia in Shenzhen, a Chinese economic hub.`\
 https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
