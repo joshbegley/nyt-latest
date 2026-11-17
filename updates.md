@@ -1,3 +1,19 @@
+**The U.S. Lost Its Measles Elimination Status. Here’s What That Means.**\
+`The U.S. has lost its measles elimination status in a historic setback. Apoorva Mandavilli, a science and global health reporter, outlines the ways that the health system will have to adapt to confront the disease.`\
+https://www.nytimes.com/video/us/100000011273308/the-us-lost-its-measles-elimination-status-heres-what-that-means.html
+
+**Grand Theft Auto VI Hacker Pleads Guilty to Cybercrimes**\
+`Arion Kurtaj admitted to publishing unreleased gameplay footage of the highly anticipated title, as well as separate hacks of Revolut and Uber.`\
+https://www.nytimes.com/2026/11/17/arts/gta-6-hacker-guilty.html
+
+**Schools Are Closing Nationwide as Enrollment Drops. Parents Are Livid.**\
+`With fewer babies being born and more school choice, districts across the country have concluded they must downsize. Families are trying to push back.`\
+https://www.nytimes.com/2026/11/17/us/public-schools-closing-birth-rate-enrollment.html
+
+**Jensen Huang Says He Would Return to Nvidia if Asked**\
+`Mr. Huang resigned as chief executive of the company last week after revelations that he had affairs with an employee and a woman linked to Chinese intelligence.`\
+https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
+
 **Measles Is Officially Back in the United States. What Now?**\
 `It will take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
