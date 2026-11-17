@@ -1,3 +1,7 @@
+**Emboldened by G.O.P. Election Losses, Iran Digs In, Officials Say**\
+`Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
+https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
+
 **Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
 `The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
 https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
@@ -30,8 +34,8 @@ https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-question
 `Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
 https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
-**Live Updates: Nvidia Beats Expectations in First Earnings Since Jensen Huang Resignation**\
-`The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier, and projected higher revenue in the current quarter.`\
+**Live Updates: Nvidia Earnings and Profits Beat Expectations**\
+`Tuesday’s earnings report covered a period before the resignation of its chief executive Jensen Huang. The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/17/technology/jensen-huang-nvidia-statement.html
 **Measles Is Officially Back in the United States. What Now?**\
 `It may take years for the country to regain elimination status. In the meantime, communities will need to adopt numerous strategies to protect people.`\
 https://www.nytimes.com/2026/11/17/us/measles-us-whats-next.html
-
-**His Body Was Crushed in a Car Accident. His Artistry Brought Him Back.**\
-`Paul Madonna, known for his drawings of San Francisco landmarks, has recovered enough to have his own art exhibition four years after nearly dying in a head-on collision.`\
-https://www.nytimes.com/2026/11/17/us/san-francisco-artist-paul-madonna-show.html
 

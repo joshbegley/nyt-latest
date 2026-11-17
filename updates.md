@@ -1,3 +1,11 @@
+**Emboldened by G.O.P. Election Losses, Iran Digs In, Officials Say**\
+`Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
+https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
+
+**Live Updates: Nvidia Earnings and Profits Beat Expectations**\
+`Tuesday’s earnings report covered a period before the resignation of its chief executive Jensen Huang. The chip maker reported revenue of $115.8 billion and profit of $65.3 billion, both more than double from a year earlier.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
 **Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
 `The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
 https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
