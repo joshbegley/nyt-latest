@@ -1,3 +1,7 @@
+**Cranberry Crème Brûlée**\
+`Not many desserts feel more “special occasion” than crème brûlée, especially when torched tableside. This cranberry-orange version brings all the flavor, flair and drama of the holidays.`\
+https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
+
 **Trump Arrives in China Ahead of Meeting With Xi and Putin**\
 `President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
