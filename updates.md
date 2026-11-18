@@ -1,3 +1,7 @@
+**Restaurant Review: Ngon Vietnamese Kitchen in New York**\
+`With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
+https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
+
 **Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
 `Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html

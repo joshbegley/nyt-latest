@@ -1,3 +1,11 @@
+**A.I. Has Changed How We Talk. Here Are the Words You Need to Know.**\
+`A Glossary of AI Terms You Should Know`\
+https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html
+
+**Torrential Rain Swamps the San Francisco Bay Area**\
+`A Microsoft conference was forced to evacuate people, and restaurants and other businesses closed up shop for the day.`\
+https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
+
 **Restaurant Review: Ngon Vietnamese Kitchen in New York**\
 `With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
 https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-opena
 **Nepal Came to COP31 in Dire Need. It’s a Test for the World.**\
 `A deadly glacier collapse left the country with $5 billion in recovery costs. So far, few have stepped up with aid.`\
 https://www.nytimes.com/2026/11/18/climate/nepal-disaster-aid-cop31.html
-
-**Christine Lagarde Explains Why She Is Stepping Down**\
-`Christine Lagarde, president of European Central Bank, said she wants to use her voice and decades of experience in international finance to speak against what she called “fake news” and “misrepresentations” in European elections.`\
-https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagarde-european-central-bank.html
-
-**‘Shocking’ Signs of Climate Change Add Urgency to COP31 Talks**\
-`From the Arctic to the tropics, unusual weather and extreme heat is sparking worry about how quickly humans are reshaping the Earth’s natural processes.`\
-https://www.nytimes.com/2026/11/18/climate/cop31-climate-global-warming.html
 
