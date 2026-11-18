@@ -1,3 +1,19 @@
+**JD Vance, Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
+`Andrew Ross Sorkin will interview some of the most powerful people from Washington, Silicon Valley and Wall Street.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
+
+**DealBook Summit Live Updates: Political Figures and Business Executives Are Set for a Day of Interviews**\
+`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Vice President JD Vance, Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
+**After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
+`Launched in 1977, the hardy spacecraft is still sending messages back home from a staggering distance in interstellar space.`\
+https://www.nytimes.com/2026/11/18/science/nasa-voyager-1-earth-light-day.html
+
+**How Much Do You Know About NASA’s Voyager Mission?**\
+`Voyagers 1 and 2 have gone farther and lasted longer than any other spacecraft that humans have sent out into the cosmos. Test your knowledge about their epic and ongoing journey.`\
+https://www.nytimes.com/quiz/2026/11/18/science/voyager-lightday.html
+
 **Europe Is Racing to Make Air Defenses ‘Cheaper Than What We Are Shooting Down’**\
 `Defense companies are facing calls to increase production, cut costs and keep pace with rapidly evolving technology as the Russian threat intensifies.`\
 https://www.nytimes.com/2026/11/18/business/russia-europe-defense-tytan-leonardo.html

@@ -78,13 +78,13 @@ https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-w
 `An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
 https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
 
-**The Greed of Youth Sports Has No Limits**\
-`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
-https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
-
 **In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
 `The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
 https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
+
+**The Greed of Youth Sports Has No Limits**\
+`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
+https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
 
 **‘The Host’: Attack of the Giant Tadpole From Hell**\
 `Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
