@@ -1,3 +1,7 @@
+**DealBook Summit Live Updates: Hailey Bieber Speaking at Gathering of Business and Political Leaders**\
+`Ms. Bieber, the founder of Rhode, is onstage with Andrew Ross Sorkin. Elon Musk, Microsoft’s Satya Nadella, and Mayor Zohran Mamdani of New York are among those expected later.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
 `Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
 https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html

@@ -178,8 +178,8 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 `Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
-**DealBook Summit Live Updates: David Ellison Speaking at Gathering of Business and Political Leaders**\
-`Mr. Ellison, the Skydance chief executive, is appearing now with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
+**DealBook Summit Live Updates: Hailey Bieber Speaking at Gathering of Business and Political Leaders**\
+`Ms. Bieber, the founder of Rhode, is onstage with Andrew Ross Sorkin. Elon Musk, Microsoft’s Satya Nadella, and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\

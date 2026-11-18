@@ -1,8 +1,16 @@
+**Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion**\
+`The Israeli military said it was conducting a limited raid into territory controlled by Hamas to address a threat. The militant group accused Israel of violating the truce.`\
+https://www.nytimes.com/2026/11/18/world/middleeast/israeli-tanks-advance-across-gaza-cease-fire-line-in-rare-incursion.html
+
+**Trump Grows Frustrated With Vance Over Iran War Critique**\
+`The tension comes at a critical juncture for the vice president, who is considering whether to run for president in 2028.`\
+https://www.nytimes.com/2026/11/18/us/politics/vance-trump-iran-2028-election-rubio.html
+
 **Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
 `Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
 https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
 
-**Californians Approved Funding for Medical Research. Critics Say a Billionaire’s Pet Project Stands to Benefit Most.**\
+**California Research Measure Is a Windfall for a Billionaire’s Pet Project**\
 `A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
 https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speake
 **DealBook Summit Live Updates: Hailey Bieber Speaking at Gathering of Business and Political Leaders**\
 `Ms. Bieber, the founder of Rhode, is onstage with Andrew Ross Sorkin. Elon Musk, Microsoft’s Satya Nadella, and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
-
-**After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
-`Launched in 1977, the hardy spacecraft is still sending messages back home from a staggering distance in interstellar space.`\
-https://www.nytimes.com/2026/11/18/science/nasa-voyager-1-earth-light-day.html
-
-**How Much Do You Know About NASA’s Voyager Mission?**\
-`Voyagers 1 and 2 have gone farther and lasted longer than any other spacecraft that humans have sent out into the cosmos. Test your knowledge about their epic and ongoing journey.`\
-https://www.nytimes.com/quiz/2026/11/18/science/voyager-lightday.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
