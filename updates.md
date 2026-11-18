@@ -1,3 +1,19 @@
+**These Villagers Wonder if They’re on the Front Line of Russia’s Shadow War**\
+`Russia is accused of clandestine attacks on Ukraine’s allies in Europe, most notably at Leipzig/Halle airport in eastern Germany. That has changed life for villagers nearby.`\
+https://www.nytimes.com/2026/11/18/world/europe/liepzig-airport-drone-attack-russia-ukraine-war.html
+
+**Quote of the Day: Americans Face ‘New Wild West’ of Measles Cases**\
+`Quotation of the Day for Wednesday, November 18, 2026.`\
+https://www.nytimes.com/2026/11/18/pageoneplus/quote-of-the-day-americans-face-new-wild-west-of-measles-cases.html
+
+**Japan Attempts to Revive U.S. Steel**\
+`After its fraught takeover of steel maker U.S. Steel, a Japanese manufacturer is attempting to revitalize the American company’s facilities, including its oldest mill outside Pittsburgh.`\
+https://www.nytimes.com/2026/11/18/business/us-steel-nippon-takeover-japan.html
+
+**From the Front Page: Spain Moves Toward Democracy on Nov. 18, 1976**\
+`Nearly a year after the death of dictator Francisco Franco, Spain’s Parliament voted to pave the way for general elections after almost four decades of dictatorship.`\
+https://www.nytimes.com/2026/11/18/learning/from-the-front-page-spain-moves-toward-democracy-on-nov-18-1976.html
+
 **National Book Award Finalist May Be Ineligible for the Prize**\
 `The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
 https://www.nytimes.com/2026/11/17/books/national-book-award-nonfiction-elgendy-eligibility.html
