@@ -1,3 +1,11 @@
+**Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
+`President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
+https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
+
+**Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
+`The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **Fans Flock to This Famous Sign. Neighbors Say, Get Off My Road.**\
 `The residents of the Hollywood Hills have sued Los Angeles, saying the city has not done enough to address the dangerous conditions created by tourists vying for a glimpse of the iconic Hollywood sign.`\
 https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html

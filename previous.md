@@ -1,3 +1,7 @@
+**Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
+`President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
+https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
+
 **Closing Time**\
 `We look at the challenges facing schools in the United States.`\
 https://www.nytimes.com/2026/11/18/briefing/school-closures.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/11/18/science/ai-virtual-human-cells.html
 `An emerging field of psychology suggests that it’s probably not what you think — and that there might be reason for optimism.`\
 https://www.nytimes.com/2026/11/18/world/europe/autocrats-psychology-support.html
 
-**The Real-Life City That Inspires Grand Theft Auto VI**\
-`“Vice City,” where the latest installment of the video game is set, is a stand-in for Miami in all its sunny, sexy, gritty and neon glory.`\
-https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-miami-florida.html
-
-**Will Salmon Sperm Make You Look Younger?**\
-`Sellers of PDRN claim that fragments of fish DNA can absorb into the skin and revitalize it. Is that true?`\
-https://www.nytimes.com/2026/11/18/well/pdrn-skin-treatment-salmon-dna.html
+**Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
+`The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
