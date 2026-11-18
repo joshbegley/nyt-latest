@@ -1,3 +1,7 @@
+**Carney and Trump Hold Unscheduled Trade Meeting at Asia Summit**\
+`The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
+https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
+
 **Leaders of China and Japan Meet Amid Political Feud**\
 `Xi Jinping, China’s leader, greeted Sanae Takaichi, Japan’s prime minister, in Shenzhen a year after China began punishing Japan over her comments on Taiwan.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-jinping-china-sanae-takaichi-japan.html

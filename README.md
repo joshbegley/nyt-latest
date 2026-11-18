@@ -1,3 +1,7 @@
+**Economic and Political Uncertainty Will Be Focus of DealBook Summit**\
+`The 2026 summit comes amid concerns about the sustainability of the A.I. rally and a midterm election that reset the balance of power in Washington.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-what-to-watch.html
+
 **Cranberry Crème Brûlée**\
 `Not many desserts feel more “special occasion” than crème brûlée, especially when torched tableside. This cranberry-orange version brings all the flavor, flair and drama of the holidays.`\
 https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
@@ -190,11 +194,7 @@ https://www.nytimes.com/2026/11/18/realestate/john-lautner-cake-architecture-com
 `In the 1980s, Boris Grebenshchikov led a revered Russian underground band. A rereleased documentary from that era is bringing new attention to his work.`\
 https://www.nytimes.com/2026/11/18/world/europe/russia-rock-music-boris-grebenshchikov.html
 
-**Gloria Steinem’s Memorial Will Be a Party: ‘It’s Steinemite!’**\
-`An event on Wednesday honoring the late feminist activist will feature musical performances, comedians, poetry and political engagement.`\
-https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-steinemite.html
-
-**Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
-`The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
+**Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
+`China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
