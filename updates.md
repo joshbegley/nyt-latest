@@ -1,3 +1,7 @@
+**Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
+`The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
+https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html
+
 **A.I. Has Changed How We Talk. Here Are the Words You Need to Know.**\
 `A Glossary of AI Terms You Should Know`\
 https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html

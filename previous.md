@@ -1,3 +1,7 @@
+**Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
+`The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
+https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html
+
 **A.I. Has Changed How We Talk. Here Are the Words You Need to Know.**\
 `A Glossary of AI Terms You Should Know`\
 https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdea
 **OpenAI’s Sam Altman on A.I. Safety**\
 `Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
-
-**Nepal Came to COP31 in Dire Need. It’s a Test for the World.**\
-`A deadly glacier collapse left the country with $5 billion in recovery costs. So far, few have stepped up with aid.`\
-https://www.nytimes.com/2026/11/18/climate/nepal-disaster-aid-cop31.html
 
