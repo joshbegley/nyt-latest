@@ -1,3 +1,7 @@
+**Cause of Recent Tech Outages Isn’t Hackers, Rubio Says**\
+`Secretary of State Marco Rubio suggested the rush to patch systems, whose vulnerabilities are exposed by A.I., may explain recent failures with air traffic controls, banks and government agencies.`\
+https://www.nytimes.com/2026/11/17/world/asia/tech-outages-cyberattack-hack-rubio.html
+
 **Marcos Is Hosting Trump on Grounds Where He Spent Much of His Childhood**\
 `President Trump met the Philippine leader Ferdinand R. Marcos Jr. at Malacañang Palace, which his family fled after his father was ousted from power 40 years ago.`\
 https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-philippines-palace.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.h
 **At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
 `Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
 https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html
-
-**Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
-`The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
-https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
 
