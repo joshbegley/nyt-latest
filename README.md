@@ -1,5 +1,5 @@
 **Michael Kosta Faults Trump for Shrugging Off Mass Tech Failures**\
-`“Maybe for Trump it’s fine,” Kosta said on “The Daily Show.” He doesn’t fly commercial, he doesn’t know how to use email, his bank is a guy from Qatar. For the rest of us though, it’s not fine.”`\
+`“Maybe for Trump it’s fine,” Kosta said on “The Daily Show.” “He doesn’t fly commercial, he doesn’t know how to use email, his bank is a guy from Qatar. For the rest of us though, it’s not fine.”`\
 https://www.nytimes.com/2026/11/18/arts/television/late-night-michael-kosta-trump-technology.html
 
 **OK, Boomer. At Long Last the Millennials Have Vanquished You.**\
