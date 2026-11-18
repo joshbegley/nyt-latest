@@ -1,3 +1,11 @@
+**What to Expect at Today’s DealBook Summit**\
+`Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
+
+**JD Vance, Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
+`Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
+
 **DealBook Summit Live Updates: Leader of European Central Bank Kicks Off Gathering of Business and Political Leaders**\
 `Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
