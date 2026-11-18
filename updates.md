@@ -1,3 +1,7 @@
+**Fans Flock to This Famous Sign. Neighbors Say, Get Off My Road.**\
+`The residents of the Hollywood Hills have sued Los Angeles, saying the city has not done enough to address the dangerous conditions created by tourists vying for a glimpse of the iconic Hollywood sign.`\
+https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
+
 **Closing Time**\
 `We look at the challenges facing schools in the United States.`\
 https://www.nytimes.com/2026/11/18/briefing/school-closures.html
