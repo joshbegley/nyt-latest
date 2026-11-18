@@ -1,3 +1,7 @@
+**Nvidia Has No Plans to Bring Back Jensen Huang**\
+`As the former chief executive and his allies lobbied for his return, the company’s chair said the board “does not intend to reinstate Jensen as C.E.O.”`\
+https://www.nytimes.com/2026/11/17/business/nvidia-earnings-jensen-huang.html
+
 **Billie Jean King Had Secrets. Then the World Found Out.**\
 `Off the court, the tennis champion struggled to find the right partner.`\
 https://www.nytimes.com/video/podcasts/100000011291492/billie-jean-king-had-secrets-then-the-world-found-out.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/video/podcasts/100000011291492/billie-jean-king-had-secr
 `The leader wants the APEC summit to showcase China’s strengths, but he faces export worries and an unpredictable Trump, who has floated meeting Kim Jong-un.`\
 https://www.nytimes.com/2026/11/17/world/asia/xi-apec.html
 
-**A National Meltdown With Nobody Manning the Help Desk**\
+**After Days of Digital Outages, Americans Wonder if the Country Is Breaking**\
 `The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
 https://www.nytimes.com/2026/11/17/us/politics/outages-flights-banks-tech.html
 
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
 `The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
 https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
 
-**Waymo Pulls Its Driverless Taxis From All U.S. Highways Temporarily**\
-`The move came after California’s Department of Motor Vehicles ordered the cars off their highways, citing an “imminent hazard to public safety.”`\
+**Waymo Pulls Its Driverless Taxis From All U.S. Freeways Temporarily**\
+`The move came after California’s Department of Motor Vehicles ordered the cars off the state’s freeways, citing an “imminent hazard to public safety.”`\
 https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
 
 **How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
 **Songs I’ve Been Digging Lately**\
 `Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
 https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
-
-**What Can Genes Reveal About Chronic Pain?**\
-`The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
-https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
 

@@ -1,3 +1,15 @@
+**Billie Jean King Had Secrets. Then the World Found Out.**\
+`Off the court, the tennis champion struggled to find the right partner.`\
+https://www.nytimes.com/video/podcasts/100000011291492/billie-jean-king-had-secrets-then-the-world-found-out.html
+
+**Will a Spy Scandal, Trade Friction and a Surprise Guest Ruin Xi’s Big Moment?**\
+`The leader wants the APEC summit to showcase China’s strengths, but he faces export worries and an unpredictable Trump, who has floated meeting Kim Jong-un.`\
+https://www.nytimes.com/2026/11/17/world/asia/xi-apec.html
+
+**A National Meltdown With Nobody Manning the Help Desk**\
+`The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
+https://www.nytimes.com/2026/11/17/us/politics/outages-flights-banks-tech.html
+
 **A National Meltdown With Nobody Manning the Help Desk**\
 `The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
 https://www.nytimes.com/2026/11/17/us/politics/national-computer-freakout.html
