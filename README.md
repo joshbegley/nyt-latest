@@ -1,3 +1,7 @@
+**Mark Carney Says Canada Will Not Back Down in Trade Talks With U.S.**\
+`Conversely, the prime minister of Canada said that talks with China were “going exceptionally well.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/mark-carney-canada-us-trade.html
+
 **Trump, Putin and Xi Will Meet in China, Each With a Different Agenda**\
 `In a historic meeting, President Trump is set to discuss denuclearization with President Xi Jinping of China and President Vladimir V. Putin of Russia. Our White House and national security correspondent, David Sanger, explains their conflicting interests on this topic, and why the meeting is symbolic for each of them, but for different reasons.`\
 https://www.nytimes.com/video/us/100000011283396/trump-putin-and-xi-will-meet-in-china-each-with-a-different-agenda.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/briefing/school-closures.html
 **The DealBook Summit’s Candid Conversations Through the Years**\
 `Highlights from the annual gathering of leaders from the world of business, politics and culture.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-history.html
-
-**Carney and Trump Hold Unscheduled Trade Meeting at Asia Summit**\
-`The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
-https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
