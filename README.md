@@ -1,3 +1,7 @@
+**David Ellison on Editorial Independence at CBS News and CNN**\
+`David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
+https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
+
 **Hailey Bieber Says Social Media Fueled Rhode but Took a Toll on Her Mental Health**\
 `Mrs. Bieber, who sold her beauty brand Rhode last year, said she had felt insecure and depressed in the past by online comments.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-media.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca
 **The Shadow of Yalta Hangs Over Trump’s Summit in China**\
 `A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
-
-**Foot by Rocky Foot, New Hudson River Rail Tunnel Begins to Take Shape**\
-`As the long-awaited Gateway project proceeds, two boring machines have begun digging side-by-side through some of the earth’s hardest rock.`\
-https://www.nytimes.com/2026/11/18/nyregion/foot-by-rocky-foot-new-hudson-river-rail-tunnel-begins-to-take-shape.html
 
