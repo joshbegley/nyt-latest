@@ -1,3 +1,11 @@
+**Robert Pattinson Will Make James Bond an Antihero**\
+`He’s well positioned to reinvent the role of Bond into a full-blown antihero.`\
+https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
+
+**Watch: OpenAI’s Top Executives Talk Rogue Agents and A.I. Security**\
+`In an interview at the DealBook Summit, the co-founders Sam Altman and Greg Brockman discussed how to strike a balance between safety and risk.`\
+https://www.nytimes.com/2026/11/18/podcasts/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
+
 **Sam Altman Talks About Not Taking Equity in OpenAI**\
 `The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
 https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html

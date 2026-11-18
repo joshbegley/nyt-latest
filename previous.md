@@ -1,3 +1,11 @@
+**Robert Pattinson Will Make James Bond an Antihero**\
+`He’s well positioned to reinvent the role of Bond into a full-blown antihero.`\
+https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
+
+**Watch: OpenAI’s Top Executives Talk Rogue Agents and A.I. Security**\
+`In an interview at the DealBook Summit, the co-founders Sam Altman and Greg Brockman discussed how to strike a balance between safety and risk.`\
+https://www.nytimes.com/2026/11/18/podcasts/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
+
 **Sam Altman Talks About Not Taking Equity in OpenAI**\
 `The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
 https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html
@@ -185,10 +193,6 @@ https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.htm
 **Leaders of China and Japan Meet Amid Political Feud**\
 `Xi Jinping, China’s leader, greeted Sanae Takaichi, Japan’s prime minister, in Shenzhen a year after China began punishing Japan over her comments on Taiwan.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-jinping-china-sanae-takaichi-japan.html
-
-**Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
-`President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
-https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
