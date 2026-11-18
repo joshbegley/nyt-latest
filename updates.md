@@ -1,3 +1,7 @@
+**The Good List: 6 Things to Bring Some Delight to Your Day**\
+`Making friends on airplanes, anticipation music and Truman Capotes effects.`\
+https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
+
 **Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
 `The Colombian president said his nation would not allow Americans forces to take part in anti-cartel operations on its soil.`\
 https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
