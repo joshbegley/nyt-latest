@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: El Niño**\
+`What is this “chaos agent,” and how may it affect your community and the rest of the planet this year?`\
+https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html
+
 **Live Updates: Xi and Putin Meet Before Trump Lands in China**\
 `President Trump arrived in the city of Shenzhen, where he will attend an economic summit and meet with the leaders of China and Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
