@@ -1,3 +1,11 @@
+**Carney Talks Trade Negotiations Amid Tense Relationship with Trump**\
+`Prime Minister Mark Carney of Canada talked about his country’s tense relationship with the United States at the New York Time’s DealBook summit on Wednesday.`\
+https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdeal-trump.html
+
+**Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion**\
+`The Israeli military said it was conducting a limited raid into territory controlled by Hamas to address a threat. The militant group accused Israel of violating the truce.`\
+https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-operation.html
+
 **OpenAI’s Sam Altman on A.I. Safety**\
 `Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress with A.I. during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html

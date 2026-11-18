@@ -1,3 +1,7 @@
+**Carney Talks Trade Negotiations Amid Tense Relationship with Trump**\
+`Prime Minister Mark Carney of Canada talked about his country’s tense relationship with the United States at the New York Time’s DealBook summit on Wednesday.`\
+https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdeal-trump.html
+
 **OpenAI’s Sam Altman on A.I. Safety**\
 `Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress with A.I. during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
@@ -32,7 +36,7 @@ https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html
 
 **Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion**\
 `The Israeli military said it was conducting a limited raid into territory controlled by Hamas to address a threat. The militant group accused Israel of violating the truce.`\
-https://www.nytimes.com/2026/11/18/world/middleeast/israeli-tanks-advance-across-gaza-cease-fire-line-in-rare-incursion.html
+https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-operation.html
 
 **Trump Grows Frustrated With Vance Over Iran War Critique**\
 `The tension comes at a critical juncture for the vice president, who is considering whether to run for president in 2028.`\
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 
-**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
-`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
-https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
-
 **$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
 `The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
 https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
+
+**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
+`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
+https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
 
 **Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
 **NYT Connections Answers for November 19, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday. Nov. 19, 2026.`\
 https://www.nytimes.com/2026/11/18/crosswords/connections-companion-1257.html
-
-**Tech Outages Rattle the U.S., and Democrats Win Alaska’s Senate Race**\
-`Plus, the new video game set to bring in billions.`\
-https://www.nytimes.com/2026/11/18/podcasts/the-headlines/tech-outages-alaska-senate-race.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
