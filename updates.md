@@ -1,3 +1,7 @@
+**Live Updates: Xi Greets Trump as He Lands in China**\
+`The Chinese leader hugged President Trump on the tarmac as he arrived in Shenzhen, where he will attend an economic summit.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **15-Minute Lesson Plan: El Niño**\
 `What is this “chaos agent,” and how may it affect your community and the rest of the planet this year?`\
 https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html

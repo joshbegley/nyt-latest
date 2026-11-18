@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/11/18/arts/television/late-night-michael-kosta-trum
 `Millennials are in the House. And the Senate. And the governor’s mansions.`\
 https://www.nytimes.com/2026/11/18/opinion/midterms-millennials-boomers-talarico.html
 
-**Live Updates: Xi and Putin Meet Before Trump Lands in China**\
-`President Trump arrived in the city of Shenzhen, where he will attend an economic summit and meet with the leaders of China and Russia.`\
+**Live Updates: Xi Greets Trump as He Lands in China**\
+`The Chinese leader hugged President Trump on the tarmac as he arrived in Shenzhen, where he will attend an economic summit.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
 **Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
