@@ -144,7 +144,7 @@ https://www.nytimes.com/2026/11/18/nyregion/-carousel-capital-binghamton-new-yor
 
 **Fans Flock to This Famous Sign. Neighbors Say, Get Off My Road.**\
 `The residents of the Hollywood Hills have sued Los Angeles, saying the city has not done enough to address the dangerous conditions created by tourists vying for a glimpse of the iconic Hollywood sign.`\
-https://www.nytimes.com/2026/11/18/us/fans-flock-to-this-famous-sign-neighbors-say-get-off-my-road.html
+https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
 
 **30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
 `Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
