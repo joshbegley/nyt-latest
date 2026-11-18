@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 18, 2026**\
+`Doug Peterson tries out kinds of kindness.`\
+https://www.nytimes.com/2026/11/17/crosswords/daily-puzzle-2026-11-18.html
+
 **A.I. Mistook a Bag of Chips for a Gun, Teenagers’ Lawsuit Says**\
 `Four students of a high school in Baltimore are suing after the police handcuffed and searched them because an artificial intelligence gun-detection system wrongly alerted a bag of Doritos.`\
 https://www.nytimes.com/2026/11/17/us/baltimore-school-chips-gun-alert.html

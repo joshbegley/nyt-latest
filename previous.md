@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 18, 2026**\
+`Doug Peterson tries out kinds of kindness.`\
+https://www.nytimes.com/2026/11/17/crosswords/daily-puzzle-2026-11-18.html
+
 **A.I. Mistook a Bag of Chips for a Gun, Teenagers’ Lawsuit Says**\
 `Four students of a high school in Baltimore are suing after the police handcuffed and searched them because an artificial intelligence gun-detection system wrongly alerted a bag of Doritos.`\
 https://www.nytimes.com/2026/11/17/us/baltimore-school-chips-gun-alert.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-k
 **‘When a Witness Recants’ Review: Wrongfully Imprisoned for 36 Years**\
 `With author Ta-Nehisi Coates as a guide, this documentary deepens a story of injustice and exoneration for three men in Baltimore.`\
 https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
-
-**Cabbage, Apple and Date Salad With Lemon Tahini**\
-`This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
-https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
 
