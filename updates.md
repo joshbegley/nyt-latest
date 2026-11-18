@@ -1,3 +1,15 @@
+**OpenAI’s Sam Altman on A.I. Safety**\
+`Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress with A.I. during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
+https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
+
+**Nepal Came to COP31 in Dire Need. It’s a Test for the World.**\
+`A deadly glacier collapse left the country with $5 billion in recovery costs. So far, few have stepped up with aid.`\
+https://www.nytimes.com/2026/11/18/climate/nepal-disaster-aid-cop31.html
+
+**How Robert Pattinson Could Shape a New James Bond Style**\
+`As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
+https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
+
 **Christine Lagarde Explains Why She Is Stepping Down**\
 `Christine Lagarde, president of European Central Bank, said she wants to use her voice and decades of experience in international finance to speak against what she called “fake news” and “misrepresentations” in European elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagarde-european-central-bank.html
