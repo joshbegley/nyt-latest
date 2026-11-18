@@ -1,3 +1,7 @@
+**Mary Peltola Wins Senate Seat in Alaska**\
+`Mary Peltola’s win in Alaska means Democrats will hold 56 seats in the Senate next year, their largest tally in more than a decade.`\
+https://www.nytimes.com/video/us/politics/100000011291983/alaska-senate-mary-peltola.html
+
 **Democrats Claim 56 Senate Seats After Mary Peltola Wins in Alaska**\
 `Mary Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
 https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
