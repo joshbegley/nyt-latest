@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/17/business/nvidia-earnings-jensen-huang.html
 `Off the court, the tennis champion struggled to find the right partner.`\
 https://www.nytimes.com/video/podcasts/100000011291492/billie-jean-king-had-secrets-then-the-world-found-out.html
 
-**Will a Spy Scandal, Trade Friction and a Surprise Guest Ruin Xi’s Big Moment?**\
+**AWill a Spy Scandal, Trade Friction and a Surprise Guest Ruin Xi’s Big Moment?**\
 `The leader wants the APEC summit to showcase China’s strengths, but he faces export worries and an unpredictable Trump, who has floated meeting Kim Jong-un.`\
 https://www.nytimes.com/2026/11/17/world/asia/xi-apec.html
 
