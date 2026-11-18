@@ -1,3 +1,11 @@
+**Mary Peltola Flips Alaska Senate Seat for Democrats**\
+`Ms. Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
+https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
+
+**Live Updates: Trump Meets Philippine Leader Before Flying to China**\
+`The next stop on President Trump’s whirlwind Asia trip is the city of Shenzhen, where he is expected to meet with Xi Jinping of China and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
+
 **NYT Crossword Answers for Nov. 18, 2026**\
 `Doug Peterson tries out kinds of kindness.`\
 https://www.nytimes.com/2026/11/17/crosswords/daily-puzzle-2026-11-18.html

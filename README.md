@@ -1,3 +1,7 @@
+**Marcos Is Hosting Trump on Grounds Where He Spent Much of His Childhood**\
+`President Trump met the Philippine leader Ferdinand R. Marcos Jr. at Malacañang Palace, which his family fled after his father was ousted from power 40 years ago.`\
+https://www.nytimes.com/2026/11/17/world/asia/m.html
+
 **Mary Peltola Flips Alaska Senate Seat for Democrats**\
 `Ms. Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
 https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/video/opinion/100000011286754/the-soil-in-which-corrupti
 https://www.nytimes.com/video/opinion/100000011286753/rob-sand-hire-your-critics.html
 
 **White House Withdraws Nomination of Heidi Overton to Be F.D.A. Commissioner**\
-`The Senate health committee was scheduled to vote on her nomination Wednesday morning, but it became increasingly clear that she did not have enough support.`\
+`The Senate health committee was scheduled to vote on her nomination Wednesday morning after wrestling with concerns about her stance on abortion and vaccines.`\
 https://www.nytimes.com/2026/11/17/us/overton-fda-nomination-withdrawn.html
 
 **National Book Award Finalist May Be Ineligible for the Prize**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor
 **Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
 `The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
 https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
-
-**Live Updates: Trump Meets Philippine Leader Before Flying to China**\
-`The next stop on President Trump’s whirlwind Asia trip is the city of Shenzhen, where he is expected to meet with Xi Jinping of China and President Vladimir V. Putin of Russia.`\
-https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 
