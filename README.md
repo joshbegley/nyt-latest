@@ -1,3 +1,7 @@
+**Polymarket Founder Defends Partnership With Donald Trump Jr.**\
+`At the DealBook Summit on Wednesday, Polymarket founder Shayne Coplan said the media attention surrounding his company’s relationship with the president’s eldest son, Donald Trump Jr., has been “heavily overblown.”`\
+https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trump.html
+
 **Palmer Luckey Warns the U.S. Faces an A.I. ‘Mismatch’**\
 `The founder of Anduril Industries, a defense tech company, blamed the widespread tech outages across the United States on attackers using A.I. tools to target outdated infrastructure.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.html
@@ -170,7 +174,7 @@ https://www.nytimes.com/2026/11/18/technology/nvidia-jensen-huang-affair-colette
 `The steel arch that is now gone took about two years to produce, assemble and install. Replacing it will be complicated, if possible at all in wartime.`\
 https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html
 
-**David Ellison Confirms Elon Musk Invested in Skydance**\
+**Elon Musk Invested in Skydance, CEO David Ellison Confirms**\
 `Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/watch-openais-top-executive
 **Sam Altman Talks About Not Taking Equity in OpenAI**\
 `The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
 https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html
-
-**NYC, LA and Chicago School Districts Weigh Breaking Up With Google Search Over A.I.**\
-`Google’s refusal to unbundle A.I. features from search for students prompted a backlash. Now schools are looking for alternatives.`\
-https://www.nytimes.com/2026/11/18/technology/google-gemini-ai-search-schools-nyc-la-chicago.html
 

@@ -1,3 +1,11 @@
+**Palmer Luckey Warns the U.S. Faces an A.I. ‘Mismatch’**\
+`The founder of Anduril Industries, a defense tech company, blamed the widespread tech outages across the United States on attackers using A.I. tools to target outdated infrastructure.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.html
+
+**Anduril Industries Co-Founder Blames A.I. Tools for Tech Outages in U.S.**\
+`Palmer Luckey discussed the widespread tech outages across the United States, blaming attackers using A.I. tools to target outdated infrastructure.`\
+https://www.nytimes.com/video/business/dealbook/100000011294098/anduril-industries-co-founder-blames-ai-tools-for-tech-outages-in-us.html
+
 **Grand Theft Auto: An American Icon, Born in Britain**\
 `The game franchise is a cultural juggernaut, played around the world as a violent, immersive ride through American cities. But the series originated in Scotland from a pop culture collage.`\
 https://www.nytimes.com/2026/11/18/world/europe/grand-theft-auto-america-scotland-global-reaction.html
