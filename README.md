@@ -1,3 +1,7 @@
+**Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
+`In less than a week, the painting went from top lot to top liability — and back again. O n Wednesday it set a record for the artist.`\
+https://www.nytimes.com/2026/11/18/arts/design/van-gogh-soars-to-190-4-million-at-sothebys-after-an-11th-hour-settlement.html
+
 **As Outages Multiply, New Yorkers Are Bracing? For What? No One Is Sure.**\
 `A series of tech disruptions across the country have some people planning for scenarios that are as vague as they are dire. Others are just philosophical.`\
 https://www.nytimes.com/2026/11/18/nyregion/technology-disruptions-new-york-prepping.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbo
 **Hailey Bieber Says Social Media Fueled Rhode but Took a Toll on Her Mental Health**\
 `Mrs. Bieber, who sold her beauty brand Rhode last year, said she had felt insecure and depressed in the past by online comments.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-media.html
-
-**Hailey Bieber Says She Is 100 Percent a Social Media Addict**\
-`Hailey Bieber, who sold her beauty brand, Rhode, for $800 million last year, spoke about the dangers of social media and its effects on self-esteem.`\
-https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-social-media.html
 
