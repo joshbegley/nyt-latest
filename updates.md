@@ -1,3 +1,7 @@
+**Live Updates: Xi and Putin Meet Before Trump Lands in China**\
+`President Trump arrived in the city of Shenzhen, where he will attend an economic summit and meet with the leaders of China and Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
 `President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
