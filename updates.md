@@ -1,3 +1,7 @@
+**DealBook Summit Live Updates: Leader of European Central Bank Kicks Off Gathering of Business and Political Leaders**\
+`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **Gen Z: Tell Us Your Political Hopes**\
 `Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
 https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
