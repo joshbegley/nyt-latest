@@ -1,3 +1,7 @@
+**Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
+`The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
+https://www.nytimes.com/2026/11/18/movies/jeff-bezos-pick-robert-pattinson-james-bond.html
+
 **Seta Manoukian, a Painter and Buddhist Nun, Tells Her Story**\
 `Seta Manoukian says there is no separation between her art and her spiritual practice.`\
 https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.html
