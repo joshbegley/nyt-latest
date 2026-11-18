@@ -1,3 +1,11 @@
+**Who Do Senate Democrats Support for Majority Leader?**\
+`The New York Times is tracking how senators and senators-elect might vote in the Dec. 1 election for majority leader.`\
+https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader-endorsements.html
+
+**Watch: David Ellison on Elon Musk’s Investment in Skydance**\
+`The C.E.O. of the media giant confirmed that the SpaceX founder had invested in the company formed by the $110 billion merger with Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/11/18/podcasts/david-ellison-elon-musk-skydance-investment.html
+
 **The Permitting Bill Is Splitting the Environmental Movement**\
 `Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
 https://www.nytimes.com/2026/11/18/climate/the-bill-thats-splitting-the-environmental-movement.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/us/politics/vance-trump-iran-2028-election-ru
 **Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
 `Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
 https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
-
-**California Research Measure Is a Windfall for a Billionaire’s Pet Project**\
-`A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
-https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
-
-**How Robert Pattinson Could Shape a New James Bond Style**\
-`As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
-https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
 
