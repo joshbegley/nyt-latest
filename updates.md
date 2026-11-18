@@ -1,3 +1,11 @@
+**Undoing Brexit**\
+`Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
+https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html
+
+**The Good List: 6 Things to Bring Some Delight to Your Day**\
+`Making friends on airplanes, anticipation music and Truman Capote’s effects.`\
+https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
+
 **The Good List: 6 Things to Bring Some Delight to Your Day**\
 `Making friends on airplanes, anticipation music and Truman Capotes effects.`\
 https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html

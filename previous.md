@@ -1,5 +1,9 @@
+**Undoing Brexit**\
+`Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
+https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html
+
 **The Good List: 6 Things to Bring Some Delight to Your Day**\
-`Making friends on airplanes, anticipation music and Truman Capotes effects.`\
+`Making friends on airplanes, anticipation music and Truman Capote’s effects.`\
 https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
 
 **Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-broc
 **Should I Tell a Judge That My Son-in-Law Is a Better Parent Than My Daughter?**\
 `I strongly believe that, in the children’s best interests, the parents should share custody equally.`\
 https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html
-
-**Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion**\
-`The Israeli military said it was conducting a limited raid into territory controlled by Hamas to address a threat. The militant group accused Israel of violating the truce.`\
-https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-operation.html
 
