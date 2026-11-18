@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/17/us/faa-routers-ground-stop.html
 
 **26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
-`The state has recorded over 270 cases this year, the most since a major cluster of illness caused by the virus in 2018 and 2019. More than two dozen cases were recorded this past week.`\
+`The state has recorded over 270 cases this year, the most since a major outbreak of the illness in 2018 and 2019. More than two dozen cases were recorded this past week.`\
 https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html
 
 **Contested Frida Kahlo Painting Is Withdrawn Hours Before Auction**\

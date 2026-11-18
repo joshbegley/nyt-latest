@@ -1,0 +1,176 @@
+**F.A.A. Shelves Routers Like the One Linked to the Nationwide Ground Stop**\
+`Federal officials said they believed that a router made by Juniper Networks caused a data overload that disrupted communications.`\
+https://www.nytimes.com/2026/11/17/us/faa-routers-ground-stop.html
+
+**26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
+`The state has recorded over 270 cases this year, the most since a major cluster of illness caused by the virus in 2018 and 2019. More than two dozen cases were recorded this past week.`\
+https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html
+
+**Contested Frida Kahlo Painting Is Withdrawn Hours Before Auction**\
+`Christie’s withdrew the work after accusations that several of the artist’s paintings had gone missing from the Casa Azul house-museum in Mexico City.`\
+https://www.nytimes.com/2026/11/17/arts/design/frida-kahlo-painting-auction-christies.html
+
+**Markwayne Mullin Defends Flight to L.S.U.-Texas Game After Ground Stop**\
+`“We still gotta live our lives,” said the homeland security secretary, who is required to use government planes for personal travel. His department said he paid.`\
+https://www.nytimes.com/2026/11/17/us/politics/mullin-lsu-football-plane.html
+
+**Youssef M. Ibrahim, Who Covered Iran’s Revolution for The Times, Dies at 83**\
+`The Egyptian-born correspondent wrote about the Middle East during a time of dizzying transformation, and was expelled by Iran for his coverage.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/youssef-ibrahim-correspondent-obituary.html
+
+**Hakeem Jeffries Embraces Medicare Expansion on Eve of Speaker Vote**\
+`The top House Democrat endorsed lowering the eligibility age, covering all children and adding vision, hearing and dental services, proposals seen as precursors to Medicare for All.`\
+https://www.nytimes.com/2026/11/17/us/politics/jeffries-medicare-expansion.html
+
+**For Democrats, a Leadership Fight Is Marring an Electoral Triumph**\
+`The contest between Senators Chuck Schumer and Chris Van Hollen to be majority leader is sowing party divisions and putting them on public display.`\
+https://www.nytimes.com/2026/11/17/us/politics/democrats-leadership-battle-schumer-van-hollen.html
+
+**Democrats Assail RFK Jr. After U.S. Loses Measles Elimination Status**\
+`Incoming senators and prospective presidential candidates blamed the health secretary’s history of vaccine skepticism for the rise of measles in the country.`\
+https://www.nytimes.com/2026/11/17/us/politics/rfk-jr-measles-democrats.html
+
+**Measles Is Officially Back**\
+`Also, public schools are closing as enrollment drops. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/17/briefing/us-measles-surge-nvidia-profit.html
+
+**Trump Administration Says It Will Not Use Ships to Deport Migrants**\
+`The Homeland Security Department told Congress of the decision after The New York Times reported last month that it was considering deportations by sea.`\
+https://www.nytimes.com/2026/11/17/us/politics/boat-deport-golden-bear.html
+
+**FSG’s 80th Anniversary Party: Literary Stars, Bowls of Cigarettes and Jeffrey Eugenides**\
+`Farrar, Straus & Giroux celebrated its 80th anniversary with bowls of cigarettes and a Questlove D.J. set.`\
+https://www.nytimes.com/2026/11/17/style/farrar-straus-giroux-80-anniversary-party.html
+
+**Another Storm Is Bearing Down on California**\
+`This week will bring wind gusts up to 70 miles per hour, buckets of rain and some of the first heavy snow of the season, forecasters said.`\
+https://www.nytimes.com/2026/11/17/weather/california-storms-sf-waves.html
+
+**Annette Green, ‘High Priestess’ of the Perfume World, Has Died at 102**\
+`She turned the nonprofit Fragrance Foundation into a P.R. powerhouse, predicting the home-fragrance boom and overseeing the rise of designer perfumes.`\
+https://www.nytimes.com/2026/11/17/style/annette-green-dead.html
+
+**Shock and Dread in the Gulf**\
+`Gulf countries talk about the consequences of a war against Iran not of their making.`\
+https://www.nytimes.com/2026/11/17/opinion/gulf-iran-israel-war.html
+
+**Judge Finds Trump’s Planned Seabed Mining Auction Violated Law**\
+`It’s unclear whether the Trump administration will proceed with a lease sale set for Thursday to permit companies to mine the ocean floor off American Samoa.`\
+https://www.nytimes.com/2026/11/17/climate/seabed-mining-lease-auction.html
+
+**Matan Kahana Elected Speaker of Israel’s Parliament**\
+`Matan Kahana, a lawmaker from Gadi Eisenkot’s party, will take control of the legislative process as the opposition looks to press Prime Minister Benjamin Netanyahu on multiple fronts.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-parliamentary-speaker.html
+
+**Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
+`Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
+https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
+
+**Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
+`The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
+https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
+
+**Waymo Pulls Its Driverless Taxis From All U.S. Highways Temporarily**\
+`The move came after California’s Department of Motor Vehicles ordered the cars off their highways, citing an “imminent hazard to public safety.”`\
+https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
+
+**How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
+`The show’s 29th season has had a long-running reference to the hit game that’s meant to poke fun at our collective fervor over the midterms.`\
+https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
+
+**With House Democratic Majority Still Growing, Recounts Are Starting in Closest Races**\
+`The exact size of the Democratic majority in Congress was undetermined as recounts were sought in two races in North Carolina and one in Minnesota two weeks after the elections.`\
+https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carolina-minnesota.html
+
+**Columbia’s Neighbors File Appeal to Reopen the Campus to the Public**\
+`Plaintiffs in the class action lawsuit argue that the university must reopen its gates in Manhattan, which have been closed since pro-Palestinian demonstrations in 2023.`\
+https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public-closure.html
+
+**A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
+`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
+https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
+
+**Ask The Morning: Your Nvidia Questions**\
+`Do you have questions about the company? We’ll find answers.`\
+https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-questions.html
+
+**Big Money, Existential Risks**\
+`Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
+https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
+
+**Live Updates: Nvidia Earnings and Forecasts Beat Expectations**\
+`The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
+**Frieze Abu Dhabi Opens Its Doors for the First time**\
+`Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
+
+**Stocks Down Just Ahead of Nvidia’s Earnings Report**\
+`The chip maker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
+https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
+
+**Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
+`At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
+https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
+
+**Sisters Open a Homey Spot for Comfort Food**\
+`Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
+https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html
+
+**At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
+`Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
+https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html
+
+**Apple Addresses Outages Affecting Apple Pay, iCloud and Apps**\
+`The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
+https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
+
+**Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
+`Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
+https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html
+
+**‘When a Witness Recants’ Review: Wrongfully Imprisoned for 36 Years**\
+`With author Ta-Nehisi Coates as a guide, this documentary deepens a story of injustice and exoneration for three men in Baltimore.`\
+https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
+
+**Cabbage, Apple and Date Salad With Lemon Tahini**\
+`This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
+https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
+
+**Fall Squash Galette**\
+`This autumnal vegetarian centerpiece is here to make the most out of a bevy of squash — both sweet winter squash and tender zucchini.`\
+https://www.nytimes.com/video/dining/100000011288714/fall-squash-galette.html
+
+**Sticky Apple and Miso Spiral**\
+`Thanksgiving desserts aren’t just about comfort and nostalgia — they require a wow factor, too. This coiled, flaky apple tart looks mesmerizing but is surprisingly easy to build.`\
+https://www.nytimes.com/video/dining/100000011288564/sticky-apple-and-miso-spiral.html
+
+**Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
+`President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
+https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
+
+**A.I.’s People-Pleasing Problem**\
+`A new report found that popular chatbots often abandon scientific facts to affirm users’ beliefs.`\
+https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
+
+**Songs I’ve Been Digging Lately**\
+`Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
+https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
+
+**What Can Genes Reveal About Chronic Pain?**\
+`The largest genetic study of pain to date identified new biological roots in the brain — and gave hints for research into both prevention and treatment.`\
+https://www.nytimes.com/2026/11/17/science/genes-chronic-pain.html
+
+**Nabeel Rajab, Bahraini Human Rights Activist, Dies at 62**\
+`Mr. Rajab spent his life fighting for greater political freedoms in his home country, undeterred by years in prison. He died in exile.`\
+https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.html
+
+**A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
+`A 62-year-old man was found drowned in a cove this month, evoking the lake’s stormy history.`\
+https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
+
+**Grand Theft Auto VI Set to Make Billions**\
+`The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
+https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
+
