@@ -1,4 +1,8 @@
 **Live Updates: Xi Greets Trump as He Lands in China**\
+`The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
+**Live Updates: Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac as he arrived in Shenzhen, where he will attend an economic summit.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
