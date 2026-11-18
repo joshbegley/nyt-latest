@@ -1,3 +1,11 @@
+**G.T.A. 6 Review: This Release Will Steal Your Heart**\
+`The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
+https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
+
+**Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
+`Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
+
 **Inca Children Were Given Cocaine and Ayahuasca Before Being Sacrificed**\
 `A toxicological study of frozen mummies from the Andes sheds light on what happened before a sacred ritual of the Inca Empire.`\
 https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca-sacrifices.html
