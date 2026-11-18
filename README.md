@@ -74,7 +74,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-history.htm
 `The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
 https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
 
-**Grand Theft Auto VI Review: It Will Steal Your Heart**\
+**G.T.A. 6 Review: This Release Will Steal Your Heart**\
 `The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
 
