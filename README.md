@@ -1,3 +1,7 @@
+**15-Minute Lesson Plan: El Niño**\
+`What is this “chaos agent,” and how may it affect your community and the rest of the planet this year?`\
+https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html
+
 **Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
 `President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/17/climate/seabed-mining-lease-auction.html
 **Matan Kahana Elected Speaker of Israel’s Parliament**\
 `Matan Kahana, a lawmaker from Gadi Eisenkot’s party, will take control of the legislative process as the opposition looks to press Prime Minister Benjamin Netanyahu on multiple fronts.`\
 https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-parliamentary-speaker.html
-
-**Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
-`Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
-https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
