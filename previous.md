@@ -1,16 +1,32 @@
+**Intolerance of Uncertainty Is Rising in Young Adults**\
+`Researchers suggest their distress may be related to changes in technology, the economy and political polarization.`\
+https://www.nytimes.com/2026/11/18/well/mind/uncertainty-anxiety-jama-study.html
+
+**The Anti-A.I. Campus Movement Is Growing**\
+`Some students are refusing to use A.I., and others are starting petitions to limit it across entire campuses. Colleges have taken notice.`\
+https://www.nytimes.com/2026/11/18/us/the-anti-ai-campus-movement-is-growing.html
+
+**How RFK Jr. Upended a Group Guiding Health Care for All Americans**\
+`Fifteen former members and federal employees told The Times that, over two years, the administration blocked their work and ended the U.S. Preventive Services Task Force’s scientific independence.`\
+https://www.nytimes.com/2026/11/18/well/rfk-jr-uspstf-health-care.html
+
+**ECB President Christine Lagarde on Why She’s Stepping Down Early**\
+`The president of the European Central Bank said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” in European elections.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-central-bank.html
+
 **The Word of the Year**\
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
-
-**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
-`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
-https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
 
 **Do Not Give Sean Duffy $50 Billion**\
 `The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
 https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
 
-**Democrats Nominate Jeffries as Speaker, Making History**\
+**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
+`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
+https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
+
+**Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
 https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
 
@@ -142,8 +158,8 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 `Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
-**DealBook Summit Live Updates: David Ellison Speaking Next at Gathering of Business and Political Leaders**\
-`Mr. Ellison, the Skydance chief executive, will soon take the stage with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
+**DealBook Summit Live Updates: David Ellison Speaking at Gathering of Business and Political Leaders**\
+`Mr. Ellison, the Skydance chief executive, is appearing now with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
@@ -174,23 +190,7 @@ https://www.nytimes.com/2026/11/18/realestate/ensfield-lynchburg-pittsburgh-home
 `The A.I. company believes they are humanity’s best chance to develop safe superintelligence.`\
 https://www.nytimes.com/2026/11/18/opinion/anthropic-ai-openai.html
 
-**The Global Crackdown on Press Freedom**\
-`The courageous journalists who continue to pursue the truth, often at a great cost, deserve the gratitude and support of free people everywhere.`\
-https://www.nytimes.com/2026/11/18/opinion/press-freedom-journalists.html
-
-**‘Gentle Monster’ Review: Love on Shifting Sand**\
-`A memorable Léa Seydoux anchors this deeply unsettling drama about a young mother confronted by her husband’s unspeakable secret.`\
-https://www.nytimes.com/2026/11/18/movies/gentle-monster-review.html
-
-**That ‘SNL’ Sister Sketch: It’s More Like Nonfiction**\
-`“Saturday Night Live” exposed a truth about gender roles in caring for aging parents: While many nations have a federal safety net for older adults, the U.S. has sisters.`\
-https://www.nytimes.com/2026/11/18/upshot/sister-snl-elder-care.html
-
-**Modern Love: Billie Jean King Talks About 3 Loves That Changed Her Life**\
-`Off the court, the tennis champion struggled to find the right partner.`\
-https://www.nytimes.com/2026/11/18/podcasts/billie-jean-king-modern-love.html
-
-**Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
+**Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 

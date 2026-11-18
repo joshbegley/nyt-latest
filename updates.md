@@ -1,3 +1,31 @@
+**Intolerance of Uncertainty Is Rising in Young Adults**\
+`Researchers suggest their distress may be related to changes in technology, the economy and political polarization.`\
+https://www.nytimes.com/2026/11/18/well/mind/uncertainty-anxiety-jama-study.html
+
+**The Anti-A.I. Campus Movement Is Growing**\
+`Some students are refusing to use A.I., and others are starting petitions to limit it across entire campuses. Colleges have taken notice.`\
+https://www.nytimes.com/2026/11/18/us/the-anti-ai-campus-movement-is-growing.html
+
+**How RFK Jr. Upended a Group Guiding Health Care for All Americans**\
+`Fifteen former members and federal employees told The Times that, over two years, the administration blocked their work and ended the U.S. Preventive Services Task Force’s scientific independence.`\
+https://www.nytimes.com/2026/11/18/well/rfk-jr-uspstf-health-care.html
+
+**ECB President Christine Lagarde on Why She’s Stepping Down Early**\
+`The president of the European Central Bank said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” in European elections.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-central-bank.html
+
+**Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
+`The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
+https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
+
+**DealBook Summit Live Updates: David Ellison Speaking at Gathering of Business and Political Leaders**\
+`Mr. Ellison, the Skydance chief executive, is appearing now with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
+**Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
+`China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **The Word of the Year**\
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
