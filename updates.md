@@ -1,3 +1,7 @@
+**Democrats Claim 56 Senate Seats After Mary Peltola Wins in Alaska**\
+`Mary Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
+https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
+
 **Michael Kosta Faults Trump for Shrugging Off Mass Tech Failures**\
 `“Maybe for Trump it’s fine,” Kosta said on “The Daily Show.” “He doesn’t fly commercial, he doesn’t know how to use email, his bank is a guy from Qatar. For the rest of us though, it’s not fine.”`\
 https://www.nytimes.com/2026/11/18/arts/television/late-night-michael-kosta-trump-technology.html

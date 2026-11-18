@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/11/17/world/asia/tech-outages-cyberattack-hack-rubi
 https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-philippines-palace.html
 
 **Democrats Claim 56 Senate Seats After Mary Peltola Wins in Alaska**\
-`Ms. Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
+`Mary Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
 https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
 
 **NYT Crossword Answers for Nov. 18, 2026**\
