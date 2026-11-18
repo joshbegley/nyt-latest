@@ -1,3 +1,15 @@
+**Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
+`In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
+https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
+
+**Video from MTA Bus Captures Moments Before Fatal Brooklyn Building Collapse**\
+`The footage offers a detailed account of the collapse last week, which killed eight people. On Wednesday, the city said that an adjacent building would need to be demolished.`\
+https://www.nytimes.com/2026/11/18/nyregion/brooklyn-building-collapse-video.html
+
+**New Video Shows Deadly Brooklyn Building Collapse**\
+`Video from a city bus obtained by The New York Times shows a building in the Flatbush neighborhood of Brooklyn collapsing into a construction site. At least eight people were killed.`\
+https://www.nytimes.com/video/nyregion/100000011294190/mta-bus-captures-brooklyn-building-collapse.html
+
 **‘Madden’ Review: Nicolas Cage Goes Big in N.F.L. Biopic**\
 `The eager-to-please movie charts the highs and lows of its bejowled title character, from his years coaching the Oakland Raiders to his video game celebrity.`\
 https://www.nytimes.com/2026/11/18/movies/madden-review-nicolas-cage.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011293148/democrats-nominate-jef
 **The Return of Measles: Tracing the Cause**\
 `Readers voice concern about the return of measles in the United States. Also: President Vladimir Putin’s demand; a recruiter’s job.`\
 https://www.nytimes.com/2026/11/18/opinion/us-measles.html
-
-**Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
-`The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
-https://www.nytimes.com/2026/11/18/movies/jeff-bezos-pick-robert-pattinson-james-bond.html
-
-**What Nvidia’s Interim CEO, Colette Kress, Said to Employees After Jensen Huang’s Resignation**\
-`At an all-hands meeting with employees, Colette Kress sought to put the indiscretions of Nvidia’s co-founder, Jensen Huang, behind them.`\
-https://www.nytimes.com/2026/11/18/technology/nvidia-jensen-huang-affair-colette-kress.html
-
-**Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.**\
-`The steel arch that is now gone took about two years to produce, assemble and install. Replacing it will be complicated, if possible at all in wartime.`\
-https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html
 
