@@ -1,3 +1,11 @@
+**A.I. Has Changed How We Talk. Here Are the Words You Need to Know.**\
+`A Glossary of AI Terms You Should Know`\
+https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html
+
+**Torrential Rain Swamps the San Francisco Bay Area**\
+`A Microsoft conference was forced to evacuate people, and restaurants and other businesses closed up shop for the day.`\
+https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
+
 **Restaurant Review: Ngon Vietnamese Kitchen in New York**\
 `With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
 https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
