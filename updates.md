@@ -1,5 +1,9 @@
 **Marcos Is Hosting Trump on Grounds Where He Spent Much of His Childhood**\
 `President Trump met the Philippine leader Ferdinand R. Marcos Jr. at Malacañang Palace, which his family fled after his father was ousted from power 40 years ago.`\
+https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-philippines-palace.html
+
+**Marcos Is Hosting Trump on Grounds Where He Spent Much of His Childhood**\
+`President Trump met the Philippine leader Ferdinand R. Marcos Jr. at Malacañang Palace, which his family fled after his father was ousted from power 40 years ago.`\
 https://www.nytimes.com/2026/11/17/world/asia/m.html
 
 **White House Withdraws Nomination of Heidi Overton to Be F.D.A. Commissioner**\
