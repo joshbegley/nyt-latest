@@ -1,3 +1,7 @@
+**Trump Briefly Met an Old Friend in Manila: Imelda Marcos**\
+`President Trump and the former first lady of the Philippines know each other well, her son, the country’s leader, has said.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-imelda-marcos.html
+
 **Live Updates: Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
