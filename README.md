@@ -1,3 +1,7 @@
+**‘Madden’ Review: Nicolas Cage Goes Big in N.F.L. Biopic**\
+`The eager-to-please movie charts the highs and lows of its bejowled title character, from his years coaching the Oakland Raiders to his video game celebrity.`\
+https://www.nytimes.com/2026/11/18/movies/madden-review-nicolas-cage.html
+
 **Watch: Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
 `Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
 https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/technology/nvidia-jensen-huang-affair-colette
 **Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.**\
 `The steel arch that is now gone took about two years to produce, assemble and install. Replacing it will be complicated, if possible at all in wartime.`\
 https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html
-
-**Elon Musk Invested in Skydance, CEO David Ellison Confirms**\
-`Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
 
