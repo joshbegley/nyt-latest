@@ -1,3 +1,7 @@
+**Florida’s El Niño Rains Bring Hail and High Water**\
+`Officials point to particularly strong El Niño conditions, a climate pattern that delivers wetter weather to parts of the southern United States, as Florida faces torrential rain.`\
+https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
+
 **Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
 `The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
 https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/us/politics/bill-cassidy-jim-oneill-science.h
 **Carney Talks Trade Negotiations Amid Tense Relationship with Trump**\
 `Prime Minister Mark Carney of Canada talked about his country’s tense relationship with the United States at the New York Time’s DealBook summit on Wednesday.`\
 https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdeal-trump.html
-
-**OpenAI’s Sam Altman on A.I. Safety**\
-`Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
-https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
 
