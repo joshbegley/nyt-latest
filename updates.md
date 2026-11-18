@@ -1,3 +1,7 @@
+**Rob Sand: Hire Your Critics**\
+`The Democratic governor-elect of Iowa, Rob Sand, talks about the value of disagreement on “The Ezra Klein Show.” He’s lived it: In the state auditor’s office, he hired two senior leaders who had made campaign contributions to Republicans.`\
+https://www.nytimes.com/video/opinion/100000011286753/rob-sand-hire-your-critics.html
+
 **White House Withdraws Nomination of Heidi Overton to Be F.D.A. Commissioner**\
 `The Senate health committee was scheduled to vote on her nomination Wednesday morning, but it became increasingly clear that she did not have enough support.`\
 https://www.nytimes.com/2026/11/17/us/overton-fda-nomination-withdrawn.html
