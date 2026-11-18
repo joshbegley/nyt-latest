@@ -1,3 +1,19 @@
+**Grand Theft Auto VI Enters the Gaming Pantheon With Rapturous Reviews**\
+`It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
+https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
+
+**Fed Saw Need to Continue Raising Rates Despite October Skip**\
+`Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
+https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
+
+**Tiny Love Stories: ‘My Father’s Cigarette Mule’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/18/style/tiny-modern-love-stories-my-fathers-cigarette-mule.html
+
+**Democrats Nominate Jeffries for House Speaker**\
+`Representative Hakeem Jeffries of New York is in line to become the first Black lawmaker to hold the post.`\
+https://www.nytimes.com/video/us/politics/100000011293148/democrats-nominate-jeffries-for-house-speaker.html
+
 **The Return of Measles: Tracing the Cause**\
 `Readers voice concern about the return of measles in the United States. Also: President Vladimir Putin’s demand; a recruiter’s job.`\
 https://www.nytimes.com/2026/11/18/opinion/us-measles.html
@@ -138,13 +154,13 @@ https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 
-**$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
-`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
-https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
-
 **N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
 `The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
 https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
+
+**$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
+`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
+https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
 
 **Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
@@ -177,22 +193,6 @@ https://www.nytimes.com/2026/11/18/nyregion/foot-by-rocky-foot-new-hudson-river-
 **Gen Z: Tell Us Your Political Hopes**\
 `Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
 https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
-
-**Iran Fires Missiles and Drones at Gulf Arab States as Peace Talks Falter**\
-`Kuwait and Bahrain said they were targeted on Wednesday, a sign of how the Middle East is stuck in limbo between peace and full-blown war.`\
-https://www.nytimes.com/2026/11/18/world/middleeast/iran-attacks-bahrain-kuwait-ships-hormuz.html
-
-**My Husband Is Planning a Hard Talk With His Father at Thanksgiving. Help!**\
-`A reader asks whether there’s any way to keep a conversation about her father-in-law’s worsening Alzheimer’s disease from torpedoing her plans for a joyful holiday.`\
-https://www.nytimes.com/2026/11/18/style/son-mistaken-for-girl-how-to-respond.html
-
-**A Massachusetts Town Revolts Against Amazon’s Delivery Drones**\
-`Amazon wants to offer faster delivery. Residents want quiet skies. A Massachusetts suburb wages an epic battle for control of its airspace.`\
-https://www.nytimes.com/2026/11/18/us/politics/amazon-delivery-drones-massachusetts.html
-
-**Irish Man Sabotaged U.S. Military Plane With Ax and Chemicals, Prosecutors Say**\
-`Daithi O’Corrain sealed himself inside a National Guard C-130 at Ireland’s Shannon Airport in April for hours, causing so much damage that the aircraft was retired from service, prosecutors said.`\
-https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-military-plane.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

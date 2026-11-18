@@ -138,13 +138,13 @@ https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 
-**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
-`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
-https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
-
 **$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
 `The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
 https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
+
+**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
+`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
+https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
 
 **Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
