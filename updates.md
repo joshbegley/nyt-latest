@@ -1,3 +1,11 @@
+**What to Expect at Today’s DealBook Summit**\
+`JD Vance, Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
+
+**Will Salmon Sperm Make You Look Younger?**\
+`Sellers of PDRN claim that fragments of fish DNA can absorb into the skin and revitalize it. Is that true?`\
+https://www.nytimes.com/2026/11/18/well/pdrn-skin-treatment-salmon-dna.html
+
 **Grand Theft Auto VI Review: It Will Steal Your Heart**\
 `The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html

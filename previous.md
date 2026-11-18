@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/18/crosswords/strands-sidekick-991.html
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
 
 **What to Expect at Today’s DealBook Summit**\
-`JD Vance, Elon Musk, Christine Lagarde, Sam Altman and Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
+`JD Vance, Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
 
 **Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
@@ -184,7 +184,7 @@ https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-miami-florida.html
 
 **Will Salmon Sperm Make You Look Younger?**\
 `Sellers of PDRN claim that fragments of fish DNA can absorb into the skin and revitalize it. Is that true?`\
-https://www.nytimes.com/2026/11/18/well/prdn-skin-treatment-salmon-dna.html
+https://www.nytimes.com/2026/11/18/well/pdrn-skin-treatment-salmon-dna.html
 
 **Word of the Day: amphibious**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
