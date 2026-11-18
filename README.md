@@ -1,3 +1,7 @@
+**The Return of Measles: Tracing the Cause**\
+`Readers voice concern about the return of measles in the United States. Also: President Vladimir Putin’s demand; a recruiter’s job.`\
+https://www.nytimes.com/2026/11/18/opinion/us-measles.html
+
 **Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
 `The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
 https://www.nytimes.com/2026/11/18/arts/jeff-bezos-pick-robert-pattinson-james-bond.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-brid
 `Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
 
-**Trump Arrives in China Focused on Friendship, Not Spy Scandal**\
+**Trump Arrives in China Focused on Friendship With Xi, Not Nvidia Spy Scandal**\
 `President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
 
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/18/us/politics/amazon-delivery-drones-massachuse
 **Irish Man Sabotaged U.S. Military Plane With Ax and Chemicals, Prosecutors Say**\
 `Daithi O’Corrain sealed himself inside a National Guard C-130 at Ireland’s Shannon Airport in April for hours, causing so much damage that the aircraft was retired from service, prosecutors said.`\
 https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-military-plane.html
-
-**Hospitals Rush to Patch Java Vulnerabilities**\
-`Artificial intelligence is accelerating the threats facing health systems that have been under attack from hackers for years.`\
-https://www.nytimes.com/2026/11/18/business/hospitals-java-artificial-intelligence.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
