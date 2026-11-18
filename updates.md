@@ -1,3 +1,7 @@
+**DealBook Summit Live Updates: David Ellison Speaking Next at Gathering of Business and Political Leaders**\
+`Mr. Ellison, the Skydance chief executive, will soon take the stage with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **Democrats Nominate Jeffries as Speaker, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
 https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
