@@ -1,3 +1,7 @@
+**Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
+`A judge has ruled that Bill Essayli was acting “unlawfully” as U.S. attorney in Los Angeles. He is one of three prosecutors appointed by the Trump administration through a unique process.`\
+https://www.nytimes.com/2026/11/18/us/trump-administration-presses-ahead-in-legal-battle-over-us-attorneys.html
+
 **These Villagers Wonder if They’re on the Front Line of Russia’s Shadow War**\
 `Russia is accused of clandestine attacks on Ukraine’s allies in Europe, most notably at Leipzig/Halle airport in eastern Germany. That has changed life for villagers nearby.`\
 https://www.nytimes.com/2026/11/18/world/europe/liepzig-airport-drone-attack-russia-ukraine-war.html

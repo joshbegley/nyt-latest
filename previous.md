@@ -1,3 +1,7 @@
+**Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
+`A judge has ruled that Bill Essayli was acting “unlawfully” as U.S. attorney in Los Angeles. He is one of three prosecutors appointed by the Trump administration through a unique process.`\
+https://www.nytimes.com/2026/11/18/us/trump-administration-presses-ahead-in-legal-battle-over-us-attorneys.html
+
 **These Villagers Wonder if They’re on the Front Line of Russia’s Shadow War**\
 `Russia is accused of clandestine attacks on Ukraine’s allies in Europe, most notably at Leipzig/Halle airport in eastern Germany. That has changed life for villagers nearby.`\
 https://www.nytimes.com/2026/11/18/world/europe/liepzig-airport-drone-attack-russia-ukraine-war.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
-
-**Frieze Abu Dhabi Opens Its Doors for the First time**\
-`Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
-https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
 
