@@ -1,3 +1,7 @@
+**Democrats Nominate Jeffries as Speaker, Making History**\
+`The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
+https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
+
 **Masih Alinejad Sues Tehran, Claiming the Iranian Government Tried to Kill Her**\
 `Though Iran has faced U.S. lawsuits over the years, Masih Alinejad’s suit is the rare one to follow criminal prosecutions in an American court.`\
 https://www.nytimes.com/2026/11/18/nyregion/masih-alinejad-lawsuit-iran-assassination-attempts.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/business/economy/us-debt-limit.html
 **Corrections: Nov. 18, 2026**\
 `Corrections that appeared in print on Wednesday, Nov. 18, 2026.`\
 https://www.nytimes.com/2026/11/18/pageoneplus/corrections-nov-18-2026.html
-
-**Would You Want to Be an Influencer?**\
-`Haley DeKreek, a 20-year-old junior, is part of the sorority TikTok boom, with 45,000 TikTok followers and several paid brand deals. Is that a life you would like for yourself — even if it means always having the camera on?`\
-https://www.nytimes.com/2026/11/18/learning/would-you-want-to-be-an-influencer.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
