@@ -1,3 +1,7 @@
+**Live Updates: Xi and Putin Meet Ahead of Trump’s Arrival in China**\
+`After flying to the city of Shenzhen from the Philippines, President Trump will attend an economic summit and meet with Xi Jinping of China and Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
 `A judge has ruled that Bill Essayli was acting “unlawfully” as U.S. attorney in Los Angeles. He is one of three prosecutors appointed by the Trump administration through a unique process.`\
 https://www.nytimes.com/2026/11/18/us/trump-administration-presses-ahead-in-legal-battle-over-us-attorneys.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
 **Ask The Morning: Your Nvidia Questions**\
 `Do you have questions about the company? We’ll find answers.`\
 https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-questions.html
-
-**Big Money, Existential Risks**\
-`Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
-https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
