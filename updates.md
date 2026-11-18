@@ -1,3 +1,11 @@
+**The Return of Measles: Tracing the Cause**\
+`Readers voice concern about the return of measles in the United States. Also: President Vladimir Putin’s demand; a recruiter’s job.`\
+https://www.nytimes.com/2026/11/18/opinion/us-measles.html
+
+**Trump Arrives in China Focused on Friendship With Xi, Not Nvidia Spy Scandal**\
+`President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
+
 **Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
 `The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
 https://www.nytimes.com/2026/11/18/arts/jeff-bezos-pick-robert-pattinson-james-bond.html
