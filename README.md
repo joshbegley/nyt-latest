@@ -1,3 +1,27 @@
+**Grand Theft Auto VI Review: It Will Steal Your Heart**\
+`The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
+https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
+
+**NYT Connections Answers for November 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday. Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/connections-companion-1257.html
+
+**Tech Outages Rattle the U.S., and Democrats Win Alaska’s Senate Race**\
+`Plus, the new video game set to bring in billions.`\
+https://www.nytimes.com/2026/11/18/podcasts/the-headlines/tech-outages-alaska-senate-race.html
+
+**How Stable Is the A.I. Industry? We’re About to Find Out.**\
+`Anthropic is a barometer of the economy at a volatile time. Its initial public offering will have widespread implications.`\
+https://www.nytimes.com/2026/11/18/podcasts/the-daily/anthropic-ipo-ai-industry.html
+
+**Today’s Wordle Hints for November 19. 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/wordle-review-1979.html
+
+**NYT Strands Hints for November 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/strands-sidekick-991.html
+
 **In a Rare Move, Xi Greets Trump as He Lands in China**\
 `The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/18/climate/texas-wastewater-treatment-pecos.html
 **The Sound of G.T.A. VI Was Born on the Dance Floor**\
 `Drawing on their deep roots in rave culture, creators at Rockstar stuffed the new Grand Theft Auto with the music of Justice and a radio station featuring CircoLoco D.J.s.`\
 https://www.nytimes.com/2026/11/18/arts/music/grand-theft-auto-vi-circoloco-justice.html
-
-**6 Markets to Visit on Your Next Trip to Madrid**\
-`Follow the locals to the city’s mercados, which offer culinary delights, flamenco classes and buzzy bars, all with a side of authenticity. Here are six hot spots.`\
-https://www.nytimes.com/2026/11/18/travel/madrid-mercados-roundup.html
-
-**How to Travel with Older Adults**\
-`Aging issues — like changes in mobility, cognition and medical needs — seem to affect not whether many older people travel, but how. Here are some tips on how to vacation together.`\
-https://www.nytimes.com/2026/11/18/travel/seniors-older-adults-travel-hotels-flights.html
-
-**How to Stop Ruminating**\
-`Repetitive negative thinking can feel “seductive,” one expert said, but it is often fruitless.`\
-https://www.nytimes.com/2026/11/18/well/mind/ruminating-stop-methods.html
-
-**Trump Briefly Met an Old Friend in Manila: Imelda Marcos**\
-`President Trump and the former first lady of the Philippines know each other well, her son, the country’s leader, has said.`\
-https://www.nytimes.com/2026/11/18/world/asia/trump-imelda-marcos.html
-
-**15-Minute Lesson Plan: El Niño**\
-`What is this “chaos agent,” and how may it affect your community and the rest of the planet this year?`\
-https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html
-
-**Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
-`President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
-https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
 
