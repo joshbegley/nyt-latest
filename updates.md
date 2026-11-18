@@ -1,3 +1,7 @@
+**The Soil in Which Corruption Thrives**\
+`Rob Sand will be the first Democratic governor of Iowa in 15 years. On “The Ezra Klein Show,” he shares why he’s spent so much of his political career focused on tackling corruption.`\
+https://www.nytimes.com/video/opinion/100000011286754/the-soil-in-which-corruption-thrives.html
+
 **Rob Sand: Hire Your Critics**\
 `The Democratic governor-elect of Iowa, Rob Sand, talks about the value of disagreement on “The Ezra Klein Show.” He’s lived it: In the state auditor’s office, he hired two senior leaders who had made campaign contributions to Republicans.`\
 https://www.nytimes.com/video/opinion/100000011286753/rob-sand-hire-your-critics.html
