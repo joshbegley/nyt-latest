@@ -1,3 +1,7 @@
+**Leaders of China and Japan Meet Amid Political Feud**\
+`Xi Jinping, China’s leader, greeted Sanae Takaichi, Japan’s prime minister, in Shenzhen a year after China began punishing Japan over her comments on Taiwan.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-jinping-china-sanae-takaichi-japan.html
+
 **30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
 `Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
 https://www.nytimes.com/2026/11/18/arts/design/robert-am-stern-new-york-building-preservation.html
