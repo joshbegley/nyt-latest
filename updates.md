@@ -1,3 +1,19 @@
+**Nvidia Has No Plans to Bring Back Jensen Huang**\
+`As the former chief executive and his allies lobbied for his return, the company’s chair said the board “does not intend to reinstate Jensen as C.E.O.”`\
+https://www.nytimes.com/2026/11/17/business/nvidia-earnings-jensen-huang.html
+
+**After Days of Digital Outages, Americans Wonder if the Country Is Breaking**\
+`The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
+https://www.nytimes.com/2026/11/17/us/politics/outages-flights-banks-tech.html
+
+**Waymo Pulls Its Driverless Taxis From All U.S. Freeways Temporarily**\
+`The move came after California’s Department of Motor Vehicles ordered the cars off the state’s freeways, citing an “imminent hazard to public safety.”`\
+https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
+
+**Nvidia Earnings and Forecasts Beat Expectations**\
+`The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
+https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
+
 **Billie Jean King Had Secrets. Then the World Found Out.**\
 `Off the court, the tennis champion struggled to find the right partner.`\
 https://www.nytimes.com/video/podcasts/100000011291492/billie-jean-king-had-secrets-then-the-world-found-out.html
