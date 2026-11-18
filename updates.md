@@ -1,3 +1,7 @@
+**National Book Award Finalist May Be Ineligible for the Prize**\
+`The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
+https://www.nytimes.com/2026/11/17/books/national-book-award-nonfiction-elgendy-eligibility.html
+
 **Rubio Says Rush to Secure Systems May Be Causing Failures**\
 `Secretary of State Marco Rubio suggested the rush to patch systems, whose vulnerabilities are exposed by A.I., may explain recent failures with air traffic controls, banks and government agencies.`\
 https://www.nytimes.com/2026/11/17/world/asia/tech-outages-cyberattack-hack-rubio.html

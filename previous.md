@@ -32,7 +32,7 @@ https://www.nytimes.com/2026/11/17/us/overton-fda-nomination-withdrawn.html
 
 **National Book Award Finalist May Be Ineligible for the Prize**\
 `The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
-https://www.nytimes.com/2026/11/17/world/americas/national-book-award-nonfiction-elgendy-eligibility.html
+https://www.nytimes.com/2026/11/17/books/national-book-award-nonfiction-elgendy-eligibility.html
 
 **Nvidia Has No Plans to Bring Back Jensen Huang**\
 `As the former chief executive and his allies lobbied for his return, the company’s chair said the board “does not intend to reinstate Jensen as C.E.O.”`\
