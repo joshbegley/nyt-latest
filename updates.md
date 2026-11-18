@@ -1,3 +1,11 @@
+**DealBook Summit Live Updates: OpenAI Executives Speaking at Gathering of Business and Political Leaders**\
+`Sam Altman and Greg Brockman of OpenAI are onstage now with Andrew Ross Sorkin. Prime Minister Mark Carney of Canada, Elon Musk and Mayor Zohran Mamdani of New York are expected later.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
+**That ‘SNL’ Sister Sketch: It’s More Like Nonfiction**\
+`“Saturday Night Live” exposed a truth about gender roles in caring for aging parents: While many nations have a federal safety net for older adults, the U.S. has sisters.`\
+https://www.nytimes.com/2026/11/18/upshot/sister-snl-elder-care.html
+
 **What to Expect at Today’s DealBook Summit**\
 `Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html

@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 `Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
-**DealBook Summit Live Updates: Leader of European Central Bank Kicks Off Gathering of Business and Political Leaders**\
-`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
+**DealBook Summit Live Updates: OpenAI Executives Speaking at Gathering of Business and Political Leaders**\
+`Sam Altman and Greg Brockman of OpenAI are onstage now with Andrew Ross Sorkin. Prime Minister Mark Carney of Canada, Elon Musk and Mayor Zohran Mamdani of New York are expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/11/18/opinion/press-freedom-journalists.html
 `A memorable Léa Seydoux anchors this deeply unsettling drama about a young mother confronted by her husband’s unspeakable secret.`\
 https://www.nytimes.com/2026/11/18/movies/gentle-monster-review.html
 
-**That ‘S.N.L.’ Sketch About Sister? It’s More Like Nonfiction.**\
+**That ‘SNL’ Sister Sketch: It’s More Like Nonfiction**\
 `“Saturday Night Live” exposed a truth about gender roles in caring for aging parents: While many nations have a federal safety net for older adults, the U.S. has sisters.`\
 https://www.nytimes.com/2026/11/18/upshot/sister-snl-elder-care.html
 
