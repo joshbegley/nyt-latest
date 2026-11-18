@@ -1,3 +1,15 @@
+**David Ellison on Editorial Independence at CBS News and CNN**\
+`David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
+https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
+
+**Hailey Bieber Says Social Media Fueled Rhode but Took a Toll on Her Mental Health**\
+`Mrs. Bieber, who sold her beauty brand Rhode last year, said she had felt insecure and depressed in the past by online comments.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-media.html
+
+**Hailey Bieber Says She Is 100 Percent a Social Media Addict**\
+`Hailey Bieber, who sold her beauty brand, Rhode, for $800 million last year, spoke about the dangers of social media and its effects on self-esteem.`\
+https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-social-media.html
+
 **Grand Theft Auto VI Enters the Gaming Pantheon With Rapturous Reviews**\
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html

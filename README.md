@@ -1,3 +1,27 @@
+**An Incubator for Arts in Abu Dhabi Quietly Supports New Talent**\
+`As the arts scene in the U.A.E. continues to expand, the 421 Arts Campus provides space, time and funding to help artists develop their visions and skills.`\
+https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-421-arts.html
+
+**Watch: Does Canada Still Want a Trade Deal With the U.S.? Mark Carney Responds.**\
+`Prime Minister Mark Carney of Canada speaks with Andrew Ross Sorkin at the DealBook summit from China about trade negotiations and the future of a tariffs deal with the U.S.`\
+https://www.nytimes.com/video/business/dealbook/100000011289878/mark-carney-canada-trade-deal.html
+
+**Watch: David Ellison Confirms Elon Musk’s Investment in Skydance**\
+`The chairman and C.E.O. of Skydance David Ellison speaks with Andrew Ross Sorkin at the DealBook summit about the future of Skydance and Elon Musk’s $1 billion investment in the company.`\
+https://www.nytimes.com/video/business/dealbook/100000011290586/david-ellison-skydance-musk-investment.html
+
+**The Local: Stressed? Try dirt.**\
+`Also, Kirill and Kirk get offensive.`\
+https://www.nytimes.com/2026/11/18/briefing/garden-fairy.html
+
+**In Abu Dhabi, Finding a Sense of Place Through Public Art**\
+`A collection of 22 art installations for a biennial strives to explore the meaning of home and history for residents of the emirate.`\
+https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-biennial.html
+
+**Julio Iglesias Is Under Criminal Investigation for Sexual Offenses**\
+`A judge said Spain could investigate accusations of crimes said to have occurred in the Bahamas and the Dominican Republic. The singer has previously denied the allegations.`\
+https://www.nytimes.com/2026/11/18/arts/music/julio-iglesias-spain-sexual-offenses.html
+
 **David Ellison on Editorial Independence at CBS News and CNN**\
 `David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
 https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
 **$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
 `The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
 https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
-
-**Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
-`The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
-https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
-
-**Masih Alinejad Sues Tehran, Claiming the Iranian Government Tried to Kill Her**\
-`Though Iran has faced U.S. lawsuits over the years, Masih Alinejad’s suit is the rare one to follow criminal prosecutions in an American court.`\
-https://www.nytimes.com/2026/11/18/nyregion/masih-alinejad-lawsuit-iran-assassination-attempts.html
-
-**Google Buys Worker Data From Spirit Airlines in a New Market to Feed A.I.**\
-`A flight attendants’ union challenged Google’s plans to protect personal information in the data in court, saying the company’s measures were not enough to protect Spirit’s employees.`\
-https://www.nytimes.com/2026/11/18/business/economy/google-spirit-employee-data-ai.html
-
-**The Morning: Tell Us About the Best Gift You Ever Received**\
-`We want to hear the gift memories that readers most cherish.`\
-https://www.nytimes.com/2026/11/18/briefing/the-morning-reader-gift-callout.html
-
-**Inca Children Were Given Cocaine and Ayahuasca Before Being Sacrificed**\
-`A toxicological study of frozen mummies from the Andes sheds light on what happened before a sacred ritual of the Inca Empire.`\
-https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca-sacrifices.html
-
-**The Shadow of Yalta Hangs Over Trump’s Summit in China**\
-`A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
-https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
 

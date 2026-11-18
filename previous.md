@@ -1,3 +1,15 @@
+**David Ellison on Editorial Independence at CBS News and CNN**\
+`David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
+https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
+
+**Hailey Bieber Says Social Media Fueled Rhode but Took a Toll on Her Mental Health**\
+`Mrs. Bieber, who sold her beauty brand Rhode last year, said she had felt insecure and depressed in the past by online comments.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-media.html
+
+**Hailey Bieber Says She Is 100 Percent a Social Media Addict**\
+`Hailey Bieber, who sold her beauty brand, Rhode, for $800 million last year, spoke about the dangers of social media and its effects on self-esteem.`\
+https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-social-media.html
+
 **Grand Theft Auto VI Enters the Gaming Pantheon With Rapturous Reviews**\
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca
 **The Shadow of Yalta Hangs Over Trump’s Summit in China**\
 `A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
-
-**Foot by Rocky Foot, New Hudson River Rail Tunnel Begins to Take Shape**\
-`As the long-awaited Gateway project proceeds, two boring machines have begun digging side-by-side through some of the earth’s hardest rock.`\
-https://www.nytimes.com/2026/11/18/nyregion/foot-by-rocky-foot-new-hudson-river-rail-tunnel-begins-to-take-shape.html
-
-**Gen Z: Tell Us Your Political Hopes**\
-`Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
-https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
-
-**Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
-`China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
-https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
