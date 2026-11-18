@@ -1,3 +1,7 @@
+**How Mary Peltola Triumphed in Alaska’s Senate Race**\
+`Beleaguered by high fuel costs and wary of overfishing, Alaskans were drawn to the Democrat’s hyperlocal pitch.`\
+https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.html
+
 **Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
 `President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
 https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
@@ -185,14 +189,6 @@ https://www.nytimes.com/2026/11/18/us/us-catholic-bishops-meeting-ai.html
 **Pittsburgh’s North Side: A Desirable Area Emerges**\
 `Friendly, walkable and connected neighborhoods offer a diverse population and a plethora of activities.`\
 https://www.nytimes.com/2026/11/18/realestate/pittsburghs-north-side-a-desirable-area-emerges.html
-
-**How Virtual Cells Could Transform Medicine**\
-`Biotechs are racing to create A.I. models of human cells, hoping to speed drug development and slow aging. Can computers match the complexity of life?`\
-https://www.nytimes.com/2026/11/18/science/ai-virtual-human-cells.html
-
-**Voters Are Punishing Autocrats. But Many Still Embrace Them. Why?**\
-`An emerging field of psychology suggests that it’s probably not what you think — and that there might be reason for optimism.`\
-https://www.nytimes.com/2026/11/18/world/europe/autocrats-psychology-support.html
 
 **Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
