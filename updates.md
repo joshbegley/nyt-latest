@@ -1,3 +1,15 @@
+**Democrats Nominate Jeffries as Speaker, Making History**\
+`The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
+https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
+
+**Masih Alinejad Sues Tehran, Claiming the Iranian Government Tried to Kill Her**\
+`Though Iran has faced U.S. lawsuits over the years, Masih Alinejad’s suit is the rare one to follow criminal prosecutions in an American court.`\
+https://www.nytimes.com/2026/11/18/nyregion/masih-alinejad-lawsuit-iran-assassination-attempts.html
+
+**DealBook Summit Live Updates: Mark Carney Speaking at Gathering of Business and Political Leaders**\
+`Mr. Carney, the Canadian prime minister, is appearing now with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **Google Buys Worker Data From Spirit Airlines in a New Market to Feed A.I.**\
 `A flight attendants’ union challenged Google’s plans to protect personal information in the data in court, saying the company’s measures were not enough to protect Spirit’s employees.`\
 https://www.nytimes.com/2026/11/18/business/economy/google-spirit-employee-data-ai.html
