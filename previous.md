@@ -1,3 +1,7 @@
+**Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
+`President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
+
 **Capturing the Hustle of Unsung Jobs in New York City**\
 `A new Metro desk series aims to document the lives of people who perform underrecognized jobs in one of the world’s busiest cities.`\
 https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-pa
 **Iran Is Emboldened After Trump and GOP’s Election Losses, Officials Say**\
 `Iran’s negotiating position has hardened since the midterms, U.S. and other Western officials say. An American lawmaker warned that Iran felt “strategically empowered.”`\
 https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
-
-**Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
-`The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
-https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\

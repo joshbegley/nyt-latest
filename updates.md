@@ -1,3 +1,7 @@
+**Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
+`President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
+
 **Capturing the Hustle of Unsung Jobs in New York City**\
 `A new Metro desk series aims to document the lives of people who perform underrecognized jobs in one of the world’s busiest cities.`\
 https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
