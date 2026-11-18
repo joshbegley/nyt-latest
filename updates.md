@@ -1,3 +1,7 @@
+**Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
+`Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
+https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
+
 **Californians Approved Funding for Medical Research. Critics Say a Billionaire’s Pet Project Stands to Benefit Most.**\
 `A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
 https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
