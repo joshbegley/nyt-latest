@@ -1,3 +1,7 @@
+**White House Withdraws Nomination of Heidi Overton to Be F.D.A. Commissioner**\
+`The Senate health committee was scheduled to vote on her nomination Wednesday morning, but it became increasingly clear that she did not have enough support.`\
+https://www.nytimes.com/2026/11/17/us/overton-fda-nomination-withdrawn.html
+
 **National Book Award Finalist May Be Ineligible for the Prize**\
 `The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
 https://www.nytimes.com/2026/11/17/world/americas/national-book-award-nonfiction-elgendy-eligibility.html
