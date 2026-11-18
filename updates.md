@@ -1,3 +1,7 @@
+**‘Shocking’ Signs of Climate Change Add Urgency to COP31 Talks**\
+`From the Arctic to the tropics, unusual weather and extreme heat is sparking worry about how quickly humans are reshaping the Earth’s natural processes.`\
+https://www.nytimes.com/2026/11/18/climate/cop31-climate-global-warming.html
+
 **Anthropic Is Set to Finalize Pricing for Blockbuster I.P.O.**\
 `The A.I. company is expected to officially price its shares on Wednesday, and its stock will begin trading on Thursday.`\
 https://www.nytimes.com/2026/11/18/technology/anthropic-ipo-pricing.html
