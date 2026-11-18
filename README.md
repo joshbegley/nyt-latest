@@ -1,3 +1,7 @@
+**As Outages Multiply, New Yorkers Are Bracing? For What? No One Is Sure.**\
+`A series of tech disruptions across the country have some people planning for scenarios that are as vague as they are dire. Others are just philosophical.`\
+https://www.nytimes.com/2026/11/18/nyregion/technology-disruptions-new-york-prepping.html
+
 **N.Y.C. Bus Fare Inspectors Could Be Fired Over Altercations With Riders**\
 `After halting the work of a unit that tickets fare evaders, M.T.A. officials now seek to fire nine of its members.`\
 https://www.nytimes.com/2026/11/18/nyregion/mta-fare-enforcement-firing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-
 **Hailey Bieber Says She Is 100 Percent a Social Media Addict**\
 `Hailey Bieber, who sold her beauty brand, Rhode, for $800 million last year, spoke about the dangers of social media and its effects on self-esteem.`\
 https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-social-media.html
-
-**Grand Theft Auto VI Enters the Gaming Pantheon With Rapturous Reviews**\
-`It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
-https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
 
