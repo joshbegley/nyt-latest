@@ -1,3 +1,7 @@
+**OpenAI Executives Say They Have to Strike a Balance Between A.I. Safety and Progress**\
+`The company’s C.E.O., Sam Altman, and president, Greg Brockman, said they cannot “make everybody happy.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-brockman.html
+
 **Should I Tell a Judge That My Son-in-Law Is a Better Parent Than My Daughter?**\
 `I strongly believe that, in the children’s best interests, the parents should share custody equally.`\
 https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vanc
 **Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
 `Russian military planes flew through the region, prompting Japan and South Korea to scramble jets in response, and drawing complaints from Taiwan.`\
 https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-bombers.html
-
-**Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
-`Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

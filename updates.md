@@ -1,3 +1,23 @@
+**Should I Tell a Judge That My Son-in-Law Is a Better Parent Than My Daughter?**\
+`I strongly believe that, in the children’s best interests, the parents should share custody equally.`\
+https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html
+
+**Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion**\
+`The Israeli military said it was conducting a limited raid into territory controlled by Hamas to address a threat. The militant group accused Israel of violating the truce.`\
+https://www.nytimes.com/2026/11/18/world/middleeast/israeli-tanks-advance-across-gaza-cease-fire-line-in-rare-incursion.html
+
+**Trump Grows Frustrated With Vance Over Iran War Critique**\
+`The tension comes at a critical juncture for the vice president, who is considering whether to run for president in 2028.`\
+https://www.nytimes.com/2026/11/18/us/politics/vance-trump-iran-2028-election-rubio.html
+
+**California Research Measure Is a Windfall for a Billionaire’s Pet Project**\
+`A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
+https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
+
+**How Will Robert Pattinson’s James Bond Be Dressed?**\
+`As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
+https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
+
 **DealBook Summit Live Updates: Hailey Bieber Speaking at Gathering of Business and Political Leaders**\
 `Ms. Bieber, the founder of Rhode, is onstage with Andrew Ross Sorkin. Elon Musk, Microsoft’s Satya Nadella, and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
