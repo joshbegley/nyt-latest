@@ -1,3 +1,7 @@
+**Rio Tinto to Pay $250 Million to Address Mine’s Environmental Damage**\
+`The landmark deal will also go toward remedying human rights problems caused by the long-closed Papua New Guinea mine.`\
+https://www.nytimes.com/2026/11/18/world/asia/rio-tinto-papua-new-guinea-mine.html
+
 **Mary Peltola Wins Senate Seat in Alaska**\
 `Mary Peltola’s win in Alaska means Democrats will hold 56 seats in the Senate next year, their largest tally in more than a decade.`\
 https://www.nytimes.com/video/us/politics/100000011291983/alaska-senate-mary-peltola.html
