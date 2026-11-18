@@ -1,3 +1,7 @@
+**Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
+`Russian military planes flew through the region, prompting Japan and South Korea to scramble jets in response, and drawing complaints from Taiwan.`\
+https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-bombers.html
+
 **JD Vance, Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
 `Andrew Ross Sorkin will interview some of the most powerful people from Washington, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-w
 `An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
 https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
 
-**The Greed of Youth Sports Has No Limits**\
-`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
-https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
-
 **In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
 `The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
 https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
+
+**The Greed of Youth Sports Has No Limits**\
+`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
+https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
 
 **‘The Host’: Attack of the Giant Tadpole From Hell**\
 `Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
 **NYT Spelling Bee Answers for November 18, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/18/crosswords/spelling-bee-forum.html
-
-**Are There Really 59,000 Empty Rent-Stabilized Apartments in New York?**\
-`Landlords and advocates seized on a figure released by the state last year as evidence of a worsening problem, but new data complicates the picture.`\
-https://www.nytimes.com/2026/11/18/nyregion/nyc-rent-stabilized-apartment-vacancies.html
 
