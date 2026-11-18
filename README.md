@@ -1,3 +1,15 @@
+**Watch: Zohran Mamdani on Finding Common Ground With Trump**\
+`The mayor of New York also stood by his positions on Israel and Gaza. “I have a politics of universality,” he said in a wide-ranging interview at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-common-ground-with-trump.html
+
+**Trump Weighs New Strikes on Iran as Israel Presses for Action, Officials Say**\
+`Warnings that Iran is rebuilding its missile stockpile and advancing biological and chemical programs have divided the Trump administration.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
+
+**Watch: Can Zohran Mamdani Fix the Cost of Living in New York City?**\
+`Mayor Zohran Mamdani of New York City speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
+https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
+
 **Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
 `In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
 https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-o
 **Fed Saw Need to Keep Raising Interest Rates Despite Holding Steady in October**\
 `Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
 https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
-
-**Tiny Love Stories: ‘My Father’s Cigarette Mule’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://www.nytimes.com/2026/11/18/style/tiny-modern-love-stories-my-fathers-cigarette-mule.html
-
-**Democrats Nominate Jeffries for House Speaker**\
-`Representative Hakeem Jeffries of New York is in line to become the first Black lawmaker to hold the post.`\
-https://www.nytimes.com/video/us/politics/100000011293148/democrats-nominate-jeffries-for-house-speaker.html
-
-**The Return of Measles: Tracing the Cause**\
-`Readers voice concern about the return of measles in the United States. Also: President Vladimir Putin’s demand; a recruiter’s job.`\
-https://www.nytimes.com/2026/11/18/opinion/us-measles.html
 
