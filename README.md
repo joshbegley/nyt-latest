@@ -1,3 +1,11 @@
+**JD Vance, Elon Musk and Sam Altman Are in the DealBook Summit 2026 Lineup**\
+`Andrew Ross Sorkin will interview some of the most powerful people from Washington, Silicon Valley and Wall Street.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
+
+**DealBook Summit Live Updates: Political Figures and Business Executives Are Set for a Day of Interviews**\
+`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Vice President JD Vance, Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
 `Launched in 1977, the hardy spacecraft is still sending messages back home from a staggering distance in interstellar space.`\
 https://www.nytimes.com/2026/11/18/science/nasa-voyager-1-earth-light-day.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/crosswords/spelling-bee-forum.html
 **Are There Really 59,000 Empty Rent-Stabilized Apartments in New York?**\
 `Landlords and advocates seized on a figure released by the state last year as evidence of a worsening problem, but new data complicates the picture.`\
 https://www.nytimes.com/2026/11/18/nyregion/nyc-rent-stabilized-apartment-vacancies.html
-
-**Rio Tinto to Pay $250 Million to Address Mine’s Environmental Damage**\
-`The landmark deal will also go toward remedying human rights problems caused by the long-closed Papua New Guinea mine.`\
-https://www.nytimes.com/2026/11/18/world/asia/rio-tinto-papua-new-guinea-mine.html
-
-**Mary Peltola Wins Senate Seat in Alaska**\
-`Mary Peltola’s win in Alaska means Democrats will hold 56 seats in the Senate next year, their largest tally in more than a decade.`\
-https://www.nytimes.com/video/us/politics/100000011291983/alaska-senate-mary-peltola.html
 
