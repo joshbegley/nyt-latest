@@ -1,3 +1,15 @@
+**Closing Time**\
+`We look at the challenges facing schools in the United States.`\
+https://www.nytimes.com/2026/11/18/briefing/school-closures.html
+
+**The DealBook Summit’s Candid Conversations Through the Years**\
+`Highlights from the annual gathering of leaders from the world of business, politics and culture.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-history.html
+
+**Carney and Trump to Hold Unscheduled Trade Meeting at Asia Summit**\
+`The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
+https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
+
 **What to Expect at Today’s DealBook Summit**\
 `JD Vance, Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
