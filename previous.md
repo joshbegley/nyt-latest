@@ -1,3 +1,7 @@
+**A.I. Mistook a Bag of Chips for a Gun, Teenagers’ Lawsuit Says**\
+`Four students of a high school in Baltimore are suing after the police handcuffed and searched them because an artificial intelligence gun-detection system wrongly alerted a bag of Doritos.`\
+https://www.nytimes.com/2026/11/17/us/baltimore-school-chips-gun-alert.html
+
 **The Soil in Which Corruption Thrives**\
 `Rob Sand will be the first Democratic governor of Iowa in 15 years. On “The Ezra Klein Show,” he shares why he’s spent so much of his political career focused on tackling corruption.`\
 https://www.nytimes.com/video/opinion/100000011286754/the-soil-in-which-corruption-thrives.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
 **Cabbage, Apple and Date Salad With Lemon Tahini**\
 `This cabbage salad is packed with unexpected bursts of flavor. There’s a layered sweetness, with bright, crisp notes from the apple, and a rich, deep warmth from the Medjool dates.`\
 https://www.nytimes.com/video/dining/100000011288718/cabbage-apple-and-date-salad-with-lemon-tahini.html
-
-**Fall Squash Galette**\
-`This autumnal vegetarian centerpiece is here to make the most out of a bevy of squash — both sweet winter squash and tender zucchini.`\
-https://www.nytimes.com/video/dining/100000011288714/fall-squash-galette.html
 

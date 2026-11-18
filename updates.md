@@ -1,3 +1,7 @@
+**A.I. Mistook a Bag of Chips for a Gun, Teenagers’ Lawsuit Says**\
+`Four students of a high school in Baltimore are suing after the police handcuffed and searched them because an artificial intelligence gun-detection system wrongly alerted a bag of Doritos.`\
+https://www.nytimes.com/2026/11/17/us/baltimore-school-chips-gun-alert.html
+
 **The Soil in Which Corruption Thrives**\
 `Rob Sand will be the first Democratic governor of Iowa in 15 years. On “The Ezra Klein Show,” he shares why he’s spent so much of his political career focused on tackling corruption.`\
 https://www.nytimes.com/video/opinion/100000011286754/the-soil-in-which-corruption-thrives.html
