@@ -1,3 +1,7 @@
+**DealBook Has Covered Wall Street and the World for a Quarter Century**\
+`For more than two decades, DealBook has scored scoops and high-profile interviews.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html
+
 **How Mary Peltola Triumphed in Alaska’s Senate Race**\
 `Beleaguered by high fuel costs and wary of overfishing, Alaskans were drawn to the Democrat’s hyperlocal pitch.`\
 https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.html

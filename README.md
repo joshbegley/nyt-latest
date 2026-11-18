@@ -1,3 +1,7 @@
+**Trump Arrives in China Ahead of Meeting With Xi and Putin**\
+`President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
+
 **DealBook Has Covered Wall Street and the World for a Quarter Century**\
 `For more than two decades, DealBook has scored scoops and high-profile interviews.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-steinemite.html
 **Book Review: ‘The Pen,’ by Simon Garfield**\
 `In “The Pen: A Human History,” Simon Garfield covers the life, times and price tags of our favorite implement.`\
 https://www.nytimes.com/2026/11/18/books/review/simon-garfield-the-pen.html
-
-**U.S. Catholic Bishops to Discuss A.I. at Annual Meeting**\
-`At their annual fall meeting, the bishops are discussing how to address the negative impacts of A.I., even as some struggle to navigate the fast-evolving technology.`\
-https://www.nytimes.com/2026/11/18/us/us-catholic-bishops-meeting-ai.html
 
 **Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\

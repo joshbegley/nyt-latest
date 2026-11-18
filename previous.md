@@ -1,3 +1,7 @@
+**DealBook Has Covered Wall Street and the World for a Quarter Century**\
+`For more than two decades, DealBook has scored scoops and high-profile interviews.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html
+
 **How Mary Peltola Triumphed in Alaska’s Senate Race**\
 `Beleaguered by high fuel costs and wary of overfishing, Alaskans were drawn to the Democrat’s hyperlocal pitch.`\
 https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/books/review/simon-garfield-the-pen.html
 **U.S. Catholic Bishops to Discuss A.I. at Annual Meeting**\
 `At their annual fall meeting, the bishops are discussing how to address the negative impacts of A.I., even as some struggle to navigate the fast-evolving technology.`\
 https://www.nytimes.com/2026/11/18/us/us-catholic-bishops-meeting-ai.html
-
-**Pittsburgh’s North Side: A Desirable Area Emerges**\
-`Friendly, walkable and connected neighborhoods offer a diverse population and a plethora of activities.`\
-https://www.nytimes.com/2026/11/18/realestate/pittsburghs-north-side-a-desirable-area-emerges.html
 
 **Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
