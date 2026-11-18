@@ -60,7 +60,7 @@ https://www.nytimes.com/2026/11/18/opinion/us-measles.html
 
 **Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
 `The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
-https://www.nytimes.com/2026/11/18/arts/jeff-bezos-pick-robert-pattinson-james-bond.html
+https://www.nytimes.com/2026/11/18/movies/jeff-bezos-pick-robert-pattinson-james-bond.html
 
 **What Nvidia’s Interim CEO, Colette Kress, Said to Employees After Jensen Huang’s Resignation**\
 `At an all-hands meeting with employees, Colette Kress sought to put the indiscretions of Nvidia’s co-founder, Jensen Huang, behind them.`\

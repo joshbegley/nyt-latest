@@ -1,3 +1,31 @@
+**Seta Manoukian, a Painter and Buddhist Nun, Tells Her Story**\
+`Seta Manoukian says there is no separation between her art and her spiritual practice.`\
+https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.html
+
+**An Incubator for Arts in Abu Dhabi Quietly Supports New Talent**\
+`As the arts scene in the U.A.E. continues to expand, the 421 Arts Campus provides space, time and funding to help artists develop their visions and skills.`\
+https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-421-arts.html
+
+**Watch: Does Canada Still Want a Trade Deal With the U.S.? Mark Carney Responds.**\
+`Prime Minister Mark Carney of Canada speaks with Andrew Ross Sorkin at the DealBook summit from China about trade negotiations and the future of a tariffs deal with the U.S.`\
+https://www.nytimes.com/video/business/dealbook/100000011289878/mark-carney-canada-trade-deal.html
+
+**Watch: David Ellison Confirms Elon Musk’s Investment in Skydance**\
+`The chairman and C.E.O. of Skydance David Ellison speaks with Andrew Ross Sorkin at the DealBook summit about the future of Skydance and Elon Musk’s $1 billion investment in the company.`\
+https://www.nytimes.com/video/business/dealbook/100000011290586/david-ellison-skydance-musk-investment.html
+
+**The Local: Stressed? Try dirt.**\
+`Also, Kirill and Kirk get offensive.`\
+https://www.nytimes.com/2026/11/18/briefing/garden-fairy.html
+
+**In Abu Dhabi, Finding a Sense of Place Through Public Art**\
+`A collection of 22 art installations for a biennial strives to explore the meaning of home and history for residents of the emirate.`\
+https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-biennial.html
+
+**Julio Iglesias Is Under Criminal Investigation for Sexual Offenses**\
+`A judge said Spain could investigate accusations of crimes said to have occurred in the Bahamas and the Dominican Republic. The singer has previously denied the allegations.`\
+https://www.nytimes.com/2026/11/18/arts/music/julio-iglesias-spain-sexual-offenses.html
+
 **David Ellison on Editorial Independence at CBS News and CNN**\
 `David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
 https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
