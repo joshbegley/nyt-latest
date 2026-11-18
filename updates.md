@@ -1,3 +1,15 @@
+**Capturing the Hustle of Unsung Jobs in New York City**\
+`A new Metro desk series aims to document the lives of people who perform underrecognized jobs in one of the world’s busiest cities.`\
+https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
+
+**NYT Spelling Bee Answers for November 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/18/crosswords/spelling-bee-forum.html
+
+**Are There Really 59,000 Empty Rent-Stabilized Apartments in New York?**\
+`Landlords and advocates seized on a figure released by the state last year as evidence of a worsening problem, but new data complicates the picture.`\
+https://www.nytimes.com/2026/11/18/nyregion/nyc-rent-stabilized-apartment-vacancies.html
+
 **Rio Tinto to Pay $250 Million to Address Mine’s Environmental Damage**\
 `The landmark deal will also go toward remedying human rights problems caused by the long-closed Papua New Guinea mine.`\
 https://www.nytimes.com/2026/11/18/world/asia/rio-tinto-papua-new-guinea-mine.html

@@ -1,3 +1,15 @@
+**Capturing the Hustle of Unsung Jobs in New York City**\
+`A new Metro desk series aims to document the lives of people who perform underrecognized jobs in one of the world’s busiest cities.`\
+https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
+
+**NYT Spelling Bee Answers for November 18, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/18/crosswords/spelling-bee-forum.html
+
+**Are There Really 59,000 Empty Rent-Stabilized Apartments in New York?**\
+`Landlords and advocates seized on a figure released by the state last year as evidence of a worsening problem, but new data complicates the picture.`\
+https://www.nytimes.com/2026/11/18/nyregion/nyc-rent-stabilized-apartment-vacancies.html
+
 **Rio Tinto to Pay $250 Million to Address Mine’s Environmental Damage**\
 `The landmark deal will also go toward remedying human rights problems caused by the long-closed Papua New Guinea mine.`\
 https://www.nytimes.com/2026/11/18/world/asia/rio-tinto-papua-new-guinea-mine.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/2026/11/17/us/politics/iran-trump-midterms.html
 **Kevin Bleyer, Writer Behind Obama’s Speech Roasting Trump, Has Died at 54**\
 `The Emmy Award-winning writer worked with Jon Stewart, Bill Maher and Barack Obama, and may just have helped motivate Donald Trump to run for office.`\
 https://www.nytimes.com/2026/11/17/obituaries/kevin-bleyer-dead.html
-
-**Waymo Pulls Its Driverless Taxis From All U.S. Freeways Temporarily**\
-`The move came after California’s Department of Motor Vehicles ordered the cars off the state’s freeways, citing an “imminent hazard to public safety.”`\
-https://www.nytimes.com/2026/11/17/us/waymo-ban-california-freeway.html
-
-**How ‘South Park’ Uses G.T.A. 6 as a Political Metaphor**\
-`The show’s 29th season has had a long-running reference to the hit game that’s meant to poke fun at our collective fervor over the midterms.`\
-https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
-
-**With House Democratic Majority Still Growing, Recounts Are Starting in Closest Races**\
-`The exact size of the Democratic majority in Congress was undetermined as recounts were sought in two races in North Carolina and one in Minnesota two weeks after the elections.`\
-https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carolina-minnesota.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
