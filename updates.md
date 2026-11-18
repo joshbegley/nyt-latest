@@ -1,3 +1,7 @@
+**How Mary Peltola Triumphed in Alaska’s Senate Race**\
+`Beleaguered by high fuel costs and wary of overfishing, Alaskans were drawn to the Democrat’s hyperlocal pitch.`\
+https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.html
+
 **Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
 `President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
 https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
