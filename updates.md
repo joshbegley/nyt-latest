@@ -1,3 +1,11 @@
+**In a Rare Move, Xi Greets Trump as He Lands in China**\
+`The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
+
+**What to Expect at Today’s DealBook Summit**\
+`JD Vance, Elon Musk, Christine Lagarde, Sam Altman and Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
+
 **Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
 `Russian military planes flew through the region, prompting Japan and South Korea to scramble jets in response, and drawing complaints from Taiwan.`\
 https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-bombers.html

@@ -1,3 +1,11 @@
+**In a Rare Move, Xi Greets Trump as He Lands in China**\
+`The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
+
+**What to Expect at Today’s DealBook Summit**\
+`JD Vance, Elon Musk, Christine Lagarde, Sam Altman and Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
+
 **Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
 `Russian military planes flew through the region, prompting Japan and South Korea to scramble jets in response, and drawing complaints from Taiwan.`\
 https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-bombers.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html
 **Trump and Marcos Share a Moment Over Jollibee Fried Chicken**\
 `President Trump’s host in Manila put in a late-night order from the Filipino fast-food chain Jollibee for the American leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-marcos-philippines-fried-chicken-jollibee.html
-
-**Capturing the Hustle of Unsung Jobs in New York City**\
-`A new Metro desk series aims to document the lives of people who perform underrecognized jobs in one of the world’s busiest cities.`\
-https://www.nytimes.com/2026/11/18/insider/new-york-city-jobs.html
-
-**NYT Spelling Bee Answers for November 18, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/18/crosswords/spelling-bee-forum.html
 
