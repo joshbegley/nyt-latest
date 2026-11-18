@@ -1,3 +1,7 @@
+**OpenAI Executives Say They Have to Strike a Balance Between A.I. Safety and Progress**\
+`The company’s C.E.O., Sam Altman, and president, Greg Brockman, said they cannot “make everybody happy.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-brockman.html
+
 **Should I Tell a Judge That My Son-in-Law Is a Better Parent Than My Daughter?**\
 `I strongly believe that, in the children’s best interests, the parents should share custody equally.`\
 https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html

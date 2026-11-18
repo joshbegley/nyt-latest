@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About the Midterm Elections**\
+`Students react to the “blue tsunami,” analyze the inner-workings of a divided government, and reflect on what this moment means for their generation’s future.`\
+https://www.nytimes.com/2026/11/18/learning/what-teenagers-are-saying-about-the-midterm-elections.html
+
 **OpenAI Executives Say They Have to Strike a Balance Between A.I. Safety and Progress**\
 `The company’s C.E.O., Sam Altman, and president, Greg Brockman, said they cannot “make everybody happy.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-brockman.html
@@ -54,13 +58,13 @@ https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 
-**Do Not Give Sean Duffy $50 Billion**\
-`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
-https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
-
 **N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
 `The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
 https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
+
+**$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
+`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
+https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
 
 **Democrats Nominate Hakeem Jeffries for Speaker of the House, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
 **What to Expect at Today’s DealBook Summit**\
 `Elon Musk, Christine Lagarde, Sam Altman, Greg Brockman, Zohran Mamdani, Satya Nadella and Hailey Bieber are among the big names speaking.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-lineup-vance-musk.html
-
-**Putin Arrives in Asia With a Show of Force: Nuclear Bombers**\
-`Russian military planes flew through the region, prompting Japan and South Korea to scramble jets in response, and drawing complaints from Taiwan.`\
-https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-bombers.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
