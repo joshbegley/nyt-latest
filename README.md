@@ -1,3 +1,7 @@
+**National Book Award Finalist May Be Ineligible for the Prize**\
+`The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
+https://www.nytimes.com/2026/11/17/world/americas/national-book-award-nonfiction-elgendy-eligibility.html
+
 **Nvidia Has No Plans to Bring Back Jensen Huang**\
 `As the former chief executive and his allies lobbied for his return, the company’s chair said the board “does not intend to reinstate Jensen as C.E.O.”`\
 https://www.nytimes.com/2026/11/17/business/nvidia-earnings-jensen-huang.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
 **A.I.’s People-Pleasing Problem**\
 `A new report found that popular chatbots often abandon scientific facts to affirm users’ beliefs.`\
 https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
-
-**Songs I’ve Been Digging Lately**\
-`Listen to tracks from the Tubs, Shygirl, Twisted Teens and more.`\
-https://www.nytimes.com/2026/11/17/arts/music/amplifier-playlist-tubs-shygirl-twisted-teens.html
 
