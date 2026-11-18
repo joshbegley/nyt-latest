@@ -1,3 +1,7 @@
+**Trump Arrives in China Ahead of Meeting With Xi and Putin**\
+`President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
+
 **DealBook Has Covered Wall Street and the World for a Quarter Century**\
 `For more than two decades, DealBook has scored scoops and high-profile interviews.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html

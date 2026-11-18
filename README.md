@@ -1,3 +1,7 @@
+**Cranberry Crème Brûlée**\
+`Not many desserts feel more “special occasion” than crème brûlée, especially when torched tableside. This cranberry-orange version brings all the flavor, flair and drama of the holidays.`\
+https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
+
 **Trump Arrives in China Ahead of Meeting With Xi and Putin**\
 `President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/world/europe/russia-rock-music-boris-grebensh
 **Gloria Steinem’s Memorial Will Be a Party: ‘It’s Steinemite!’**\
 `An event on Wednesday honoring the late feminist activist will feature musical performances, comedians, poetry and political engagement.`\
 https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-steinemite.html
-
-**Book Review: ‘The Pen,’ by Simon Garfield**\
-`In “The Pen: A Human History,” Simon Garfield covers the life, times and price tags of our favorite implement.`\
-https://www.nytimes.com/2026/11/18/books/review/simon-garfield-the-pen.html
 
 **Live Updates: In a Rare Gesture, Xi Greets Trump as He Lands in China**\
 `The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
