@@ -1,3 +1,7 @@
+**2 Solo Plays Wrestle With the Power of Monologues**\
+`The Off Broadway productions of “The Exhibitionist” and “The Good Thief” both feature terrific performers engaged in acts of storytelling.`\
+https://www.nytimes.com/2026/11/18/theater/exhibitionist-good-thief-review-hiller.html
+
 **A.I. Bubble Talk Enters the Conversation at DealBook Summit**\
 `This morning’s sessions included Christine Lagarde, president of the E.C.B., and Sam Altman, chief executive of OpenAI, discussing the A.I. bubble and sky-high valuations.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/ai-bubble-dealbook-summit.html

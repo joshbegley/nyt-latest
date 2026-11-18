@@ -1,3 +1,11 @@
+**Californians Approved Funding for Medical Research. Critics Say a Billionaire’s Pet Project Stands to Benefit Most.**\
+`A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
+https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
+
+**New James Bond, New James Bond Style?**\
+`As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
+https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
+
 **2 Solo Plays Wrestle With the Power of Monologues**\
 `The Off Broadway productions of “The Exhibitionist” and “The Good Thief” both feature terrific performers engaged in acts of storytelling.`\
 https://www.nytimes.com/2026/11/18/theater/exhibitionist-good-thief-review-hiller.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/quiz/2026/11/18/science/voyager-lightday.html
 **Europe Is Racing to Make Air Defenses ‘Cheaper Than What We Are Shooting Down’**\
 `Defense companies are facing calls to increase production, cut costs and keep pace with rapidly evolving technology as the Russian threat intensifies.`\
 https://www.nytimes.com/2026/11/18/business/russia-europe-defense-tytan-leonardo.html
-
-**Eulogy for a Very Large Oyster**\
-`Big, the biggest oyster found around New York City in more than a century, was dead when removed from the Hudson River. The creatures that clung to it were still alive and well.`\
-https://www.nytimes.com/2026/11/18/nyregion/big-oyster-hudson-river.html
-
-**‘It’s Easier Said Than Done’: 3 Opinion Writers on How to Check Trump**\
-`Presidents usually have wide latitude on foreign policy. Will the next Congress change that?`\
-https://www.nytimes.com/2026/11/18/opinion/trump-iran-us-foreign-policy.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
