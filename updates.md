@@ -1,3 +1,11 @@
+**Iran Fires Missiles and Drones at Gulf Arab States as Peace Talks Falter**\
+`Kuwait and Bahrain said they were targeted on Wednesday, a sign of how the Middle East is stuck in limbo between peace and full-blown war.`\
+https://www.nytimes.com/2026/11/18/world/middleeast/iran-attacks-bahrain-kuwait-ships-hormuz.html
+
+**The Global Crackdown on Press Freedom**\
+`The courageous journalists who continue to pursue the truth, often at a great cost, deserve the gratitude and support of free people everywhere.`\
+https://www.nytimes.com/2026/11/18/opinion/press-freedom-journalists.html
+
 **My Husband Is Planning a Hard Talk With His Father at Thanksgiving. Help!**\
 `A reader asks whether there’s any way to keep a conversation about her father-in-law’s worsening Alzheimer’s disease from torpedoing her plans for a joyful holiday.`\
 https://www.nytimes.com/2026/11/18/style/son-mistaken-for-girl-how-to-respond.html

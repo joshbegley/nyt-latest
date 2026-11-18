@@ -1,3 +1,7 @@
+**Iran Fires Missiles and Drones at Gulf Arab States as Peace Talks Falter**\
+`Kuwait and Bahrain said they were targeted on Wednesday, a sign of how the Middle East is stuck in limbo between peace and full-blown war.`\
+https://www.nytimes.com/2026/11/18/world/middleeast/iran-attacks-bahrain-kuwait-ships-hormuz.html
+
 **My Husband Is Planning a Hard Talk With His Father at Thanksgiving. Help!**\
 `A reader asks whether there’s any way to keep a conversation about her father-in-law’s worsening Alzheimer’s disease from torpedoing her plans for a joyful holiday.`\
 https://www.nytimes.com/2026/11/18/style/son-mistaken-for-girl-how-to-respond.html
@@ -126,7 +130,7 @@ https://www.nytimes.com/2026/11/18/realestate/ensfield-lynchburg-pittsburgh-home
 `The A.I. company believes they are humanity’s best chance to develop safe superintelligence.`\
 https://www.nytimes.com/2026/11/18/opinion/anthropic-ai-openai.html
 
-**Stop the Global Crackdown on Press Freedom**\
+**The Global Crackdown on Press Freedom**\
 `The courageous journalists who continue to pursue the truth, often at a great cost, deserve the gratitude and support of free people everywhere.`\
 https://www.nytimes.com/2026/11/18/opinion/press-freedom-journalists.html
 
@@ -170,13 +174,13 @@ https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-w
 `An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
 https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
 
-**In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
-`The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
-https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
-
 **The Greed of Youth Sports Has No Limits**\
 `Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
 https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
+
+**In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
+`The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
+https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
 
 **‘The Host’: Attack of the Giant Tadpole From Hell**\
 `Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/18/nyregion/-carousel-capital-binghamton-new-yor
 **Fans Flock to This Famous Sign. Neighbors Say, Get Off My Road.**\
 `The residents of the Hollywood Hills have sued Los Angeles, saying the city has not done enough to address the dangerous conditions created by tourists vying for a glimpse of the iconic Hollywood sign.`\
 https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
-
-**30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
-`Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
-https://www.nytimes.com/2026/11/18/arts/design/robert-am-stern-new-york-building-preservation.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
