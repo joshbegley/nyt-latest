@@ -1,3 +1,11 @@
+**A National Meltdown With Nobody Manning the Help Desk**\
+`The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
+https://www.nytimes.com/2026/11/17/us/politics/national-computer-freakout.html
+
+**‘Human’ Is the Cambridge Dictionary’s Word of 2026**\
+`Every November, editors of the Cambridge Dictionary anoint a word of the year that captures the moment. The latest selection says a lot.`\
+https://www.nytimes.com/2026/11/17/style/human-cambridge-word-year-2026.html
+
 **26 More Measles Cases in New York, but Outbreak Appears to Be Easing**\
 `The state has recorded over 270 cases this year, the most since a major outbreak of the illness in 2018 and 2019. More than two dozen cases were recorded this past week.`\
 https://www.nytimes.com/2026/11/17/nyregion/new-york-state-measles-outbreak.html

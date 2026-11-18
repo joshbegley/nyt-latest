@@ -1,3 +1,11 @@
+**A National Meltdown With Nobody Manning the Help Desk**\
+`The digital outages that began on Thursday may not be linked, but they have left Americans with a sense that the nation is off-kilter, with no one ready to fix it.`\
+https://www.nytimes.com/2026/11/17/us/politics/national-computer-freakout.html
+
+**‘Human’ Is the Cambridge Dictionary’s Word of 2026**\
+`Every November, editors of the Cambridge Dictionary anoint a word of the year that captures the moment. The latest selection says a lot.`\
+https://www.nytimes.com/2026/11/17/style/human-cambridge-word-year-2026.html
+
 **F.A.A. Shelves Routers Like the One Linked to the Nationwide Ground Stop**\
 `Federal officials said they believed that a router made by Juniper Networks caused a data overload that disrupted communications.`\
 https://www.nytimes.com/2026/11/17/us/faa-routers-ground-stop.html
@@ -169,8 +177,4 @@ https://www.nytimes.com/2026/11/17/world/middleeast/nabeel-rajab-bahrain-dies.ht
 **A Death Along Lake Superior Revives Memories of ‘the Gales of November’**\
 `A 62-year-old man was found drowned in a cove this month, evoking the lake’s stormy history.`\
 https://www.nytimes.com/2026/11/17/us/lake-superior-drowning-gales-of-november.html
-
-**Grand Theft Auto VI Set to Make Billions**\
-`The release of Grand Theft Auto VI will be one of the biggest entertainment launches in history, pre-order data shows.`\
-https://www.nytimes.com/video/arts/100000011289557/grand-theft-auto-vi-release-pre-order-data.html
 
