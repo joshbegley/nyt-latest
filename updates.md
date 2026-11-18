@@ -1,3 +1,7 @@
+**Watch: Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
+`Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
+https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
+
 **Trump, Putin and Xi to Meet for the First Time**\
 `Also, Democrats nominate Jeffries as speaker, making history. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/11/18/briefing/trump-putin-xi-meeting.html
