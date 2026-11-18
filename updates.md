@@ -1,3 +1,11 @@
+**Polymarket Founder Defends Partnership With Donald Trump Jr.**\
+`At the DealBook Summit on Wednesday, Polymarket founder Shayne Coplan said the media attention surrounding his company’s relationship with the president’s eldest son, Donald Trump Jr., has been “heavily overblown.”`\
+https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trump.html
+
+**Elon Musk Invested in Skydance, CEO David Ellison Confirms**\
+`Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
+
 **Palmer Luckey Warns the U.S. Faces an A.I. ‘Mismatch’**\
 `The founder of Anduril Industries, a defense tech company, blamed the widespread tech outages across the United States on attackers using A.I. tools to target outdated infrastructure.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.html
