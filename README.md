@@ -1,4 +1,4 @@
-**The Youth Movement We’ve All Been Waiting for Has Finally Arrived**\
+**OK, Boomer. At Long Last the Millennials Have Vanquished You.**\
 `Millennials are in the House. And the Senate. And the governor’s mansions.`\
 https://www.nytimes.com/2026/11/18/opinion/midterms-millennials-boomers-talarico.html
 
