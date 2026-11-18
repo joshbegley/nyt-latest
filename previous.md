@@ -1,6 +1,6 @@
 **Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
-`In less than a week, the painting went from top lot to top liability — and back again. O n Wednesday it set a record for the artist.`\
-https://www.nytimes.com/2026/11/18/arts/design/van-gogh-soars-to-190-4-million-at-sothebys-after-an-11th-hour-settlement.html
+`In less than a week, the painting went from top lot to top liability — and back again. On Wednesday it set a record for the artist.`\
+https://www.nytimes.com/2026/11/18/arts/design/van-gogh-painting-auction-sothebys.html
 
 **As Outages Multiply, New Yorkers Are Bracing? For What? No One Is Sure.**\
 `A series of tech disruptions across the country have some people planning for scenarios that are as vague as they are dire. Others are just philosophical.`\

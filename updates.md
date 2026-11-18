@@ -1,4 +1,8 @@
 **Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
+`In less than a week, the painting went from top lot to top liability — and back again. On Wednesday it set a record for the artist.`\
+https://www.nytimes.com/2026/11/18/arts/design/van-gogh-painting-auction-sothebys.html
+
+**Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
 `In less than a week, the painting went from top lot to top liability — and back again. O n Wednesday it set a record for the artist.`\
 https://www.nytimes.com/2026/11/18/arts/design/van-gogh-soars-to-190-4-million-at-sothebys-after-an-11th-hour-settlement.html
 
