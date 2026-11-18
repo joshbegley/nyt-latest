@@ -1,3 +1,7 @@
+**Mary Peltola Flips Alaska Senate Seat for Democrats**\
+`Ms. Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
+https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
+
 **NYT Crossword Answers for Nov. 18, 2026**\
 `Doug Peterson tries out kinds of kindness.`\
 https://www.nytimes.com/2026/11/17/crosswords/daily-puzzle-2026-11-18.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
 **Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
 `Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
 https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html
-
-**‘When a Witness Recants’ Review: Wrongfully Imprisoned for 36 Years**\
-`With author Ta-Nehisi Coates as a guide, this documentary deepens a story of injustice and exoneration for three men in Baltimore.`\
-https://www.nytimes.com/2026/11/17/movies/when-a-witness-recants-review.html
 
