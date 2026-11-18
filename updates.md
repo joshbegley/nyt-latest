@@ -1,3 +1,7 @@
+**Anthropic Is Set to Finalize Pricing for Blockbuster I.P.O.**\
+`The A.I. company is expected to officially price its shares on Wednesday, and its stock will begin trading on Thursday.`\
+https://www.nytimes.com/2026/11/18/technology/anthropic-ipo-pricing.html
+
 **What Teenagers Are Saying About the Midterm Elections**\
 `Students react to the “blue tsunami,” analyze the inner-workings of a divided government, and reflect on what this moment means for their generation’s future.`\
 https://www.nytimes.com/2026/11/18/learning/what-teenagers-are-saying-about-the-midterm-elections.html
