@@ -1,4 +1,4 @@
-**Cause of Recent Tech Outages Isn’t Hackers, Rubio Says**\
+**Rubio Says Rush to Secure Systems May Be Causing Failures**\
 `Secretary of State Marco Rubio suggested the rush to patch systems, whose vulnerabilities are exposed by A.I., may explain recent failures with air traffic controls, banks and government agencies.`\
 https://www.nytimes.com/2026/11/17/world/asia/tech-outages-cyberattack-hack-rubio.html
 
