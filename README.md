@@ -1,3 +1,11 @@
+**The Shadow of Yalta Hangs Over Trump’s Summit in China**\
+`A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
+
+**Foot by Rocky Foot, New Hudson River Rail Tunnel Begins to Take Shape**\
+`As the long-awaited Gateway project proceeds, two boring machines have begun digging side-by-side through some of the earth’s hardest rock.`\
+https://www.nytimes.com/2026/11/18/nyregion/foot-by-rocky-foot-new-hudson-river-rail-tunnel-begins-to-take-shape.html
+
 **Gen Z: Tell Us Your Political Hopes**\
 `Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
 https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
@@ -122,7 +130,7 @@ https://www.nytimes.com/2026/11/18/business/russia-europe-defense-tytan-leonardo
 `Big, the biggest oyster found around New York City in more than a century, was dead when removed from the Hudson River. The creatures that clung to it were still alive and well.`\
 https://www.nytimes.com/2026/11/18/nyregion/big-oyster-hudson-river.html
 
-**‘Send Iran a Clear Message That the War Is Over’: 3 Opinion Writers on How to Check Trump on Foreign Policy**\
+**‘It’s Easier Said Than Done’: 3 Opinion Writers on How to Check Trump**\
 `Presidents usually have wide latitude on foreign policy. Will the next Congress change that?`\
 https://www.nytimes.com/2026/11/18/opinion/trump-iran-us-foreign-policy.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.h
 **The Greed of Youth Sports Has No Limits**\
 `Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
 https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
-
-**In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
-`The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
-https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
-
-**‘The Host’: Attack of the Giant Tadpole From Hell**\
-`Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
-https://www.nytimes.com/2026/11/18/movies/the-host-screening-ifc-center-restoration.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
