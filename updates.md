@@ -1,3 +1,19 @@
+**Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
+`In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
+https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
+
+**Video from MTA Bus Captures Moments Before Fatal Brooklyn Building Collapse**\
+`The footage offers a detailed account of the collapse last week, which killed eight people. On Wednesday, the city said that an adjacent building would need to be demolished.`\
+https://www.nytimes.com/2026/11/18/nyregion/brooklyn-building-collapse-video.html
+
+**New Video Shows Deadly Brooklyn Building Collapse**\
+`Video from a city bus obtained by The New York Times shows a building in the Flatbush neighborhood of Brooklyn collapsing into a construction site. At least eight people were killed.`\
+https://www.nytimes.com/video/nyregion/100000011294190/mta-bus-captures-brooklyn-building-collapse.html
+
+**‘Madden’ Review: Nicolas Cage Goes Big in N.F.L. Biopic**\
+`The eager-to-please movie charts the highs and lows of its bejowled title character, from his years coaching the Oakland Raiders to his video game celebrity.`\
+https://www.nytimes.com/2026/11/18/movies/madden-review-nicolas-cage.html
+
 **Watch: Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
 `Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
 https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
