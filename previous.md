@@ -1,3 +1,11 @@
+**Irish Man Sabotaged U.S. Military Plane With Ax and Chemicals, Prosecutors Say**\
+`Daithi O’Corrain sealed himself inside a National Guard C-130 at Ireland’s Shannon Airport in April for hours, causing so much damage that the aircraft was retired from service, prosecutors said.`\
+https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-military-plane.html
+
+**Hospitals Rush to Patch Java Vulnerabilities**\
+`Artificial intelligence is accelerating the threats facing health systems that have been under attack from hackers for years.`\
+https://www.nytimes.com/2026/11/18/business/hospitals-java-artificial-intelligence.html
+
 **Economic and Political Uncertainty Will Be Focus of DealBook Summit**\
 `The 2026 summit comes amid concerns about the sustainability of the A.I. rally and a midterm election that reset the balance of power in Washington.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-what-to-watch.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/18/movies/emily-the-bride-streaming-movies.html
 **The Supreme Court Deserves Celebration, Not Condemnation**\
 `The court has shown remarkable independence and competence.`\
 https://www.nytimes.com/2026/11/18/opinion/supreme-court-reform.html
-
-**A Baking Competition for the Architecture Set**\
-`A baking competition for building nerds channeled the spirit of the famed midcentury architect.`\
-https://www.nytimes.com/2026/11/18/realestate/john-lautner-cake-architecture-competition.html
-
-**Boris Grebenshchikov, a Russian Rock Musician With a ‘Need to Rebel’**\
-`In the 1980s, Boris Grebenshchikov led a revered Russian underground band. A rereleased documentary from that era is bringing new attention to his work.`\
-https://www.nytimes.com/2026/11/18/world/europe/russia-rock-music-boris-grebenshchikov.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
