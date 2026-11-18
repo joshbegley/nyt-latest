@@ -1,3 +1,11 @@
+**Sam Altman Talks About Not Taking Equity in OpenAI**\
+`The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
+https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html
+
+**NYC, LA and Chicago School Districts Weigh Breaking Up With Google Search Over A.I.**\
+`Google’s refusal to unbundle A.I. features from search for students prompted a backlash. Now schools are looking for alternatives.`\
+https://www.nytimes.com/2026/11/18/technology/google-gemini-ai-search-schools-nyc-la-chicago.html
+
 **Mark Carney Says Canada Will Not Back Down in Trade Talks With U.S.**\
 `Conversely, the prime minister of Canada said that talks with China were “going exceptionally well.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/mark-carney-canada-us-trade.html

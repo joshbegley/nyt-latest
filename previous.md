@@ -1,3 +1,11 @@
+**Sam Altman Talks About Not Taking Equity in OpenAI**\
+`The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
+https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html
+
+**NYC, LA and Chicago School Districts Weigh Breaking Up With Google Search Over A.I.**\
+`Google’s refusal to unbundle A.I. features from search for students prompted a backlash. Now schools are looking for alternatives.`\
+https://www.nytimes.com/2026/11/18/technology/google-gemini-ai-search-schools-nyc-la-chicago.html
+
 **Mark Carney Says Canada Will Not Back Down in Trade Talks With U.S.**\
 `Conversely, the prime minister of Canada said that talks with China were “going exceptionally well.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/mark-carney-canada-us-trade.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/18/world/asia/xi-jinping-china-sanae-takaichi-ja
 **Philippines President Says He Had Jollibee Fried Chicken Sent to Trump**\
 `President Ferdinand R. Marcos Jr. of the Philippines said he had fried chicken from Jollibee delivered to President Trump during his overnight stay in Manila.`\
 https://www.nytimes.com/video/world/asia/100000011292385/trump-jollibee-fried-chicken-philippines.html
-
-**Closing Time**\
-`We look at the challenges facing schools in the United States.`\
-https://www.nytimes.com/2026/11/18/briefing/school-closures.html
-
-**The DealBook Summit’s Candid Conversations Through the Years**\
-`Highlights from the annual gathering of leaders from the world of business, politics and culture.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-history.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
