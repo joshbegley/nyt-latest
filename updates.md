@@ -1,3 +1,7 @@
+**Democrats Claim 56 Senate Seats After Mary Peltola Wins in Alaska**\
+`Ms. Peltola defeated Senator Dan S. Sullivan, a two-term incumbent, to become the first Democrat to represent the conservative state in the Senate since 2015.`\
+https://www.nytimes.com/2026/11/17/us/politics/alaska-senate-sullivan-peltola.html
+
 **Marcos Is Hosting Trump on Grounds Where He Spent Much of His Childhood**\
 `President Trump met the Philippine leader Ferdinand R. Marcos Jr. at Malacañang Palace, which his family fled after his father was ousted from power 40 years ago.`\
 https://www.nytimes.com/2026/11/17/world/asia/trump-marcos-philippines-palace.html
