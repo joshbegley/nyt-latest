@@ -1,3 +1,19 @@
+**These Villagers Wonder if They’re on the Front Line of Russia’s Shadow War**\
+`Russia is accused of clandestine attacks on Ukraine’s allies in Europe, most notably at Leipzig/Halle airport in eastern Germany. That has changed life for villagers nearby.`\
+https://www.nytimes.com/2026/11/18/world/europe/liepzig-airport-drone-attack-russia-ukraine-war.html
+
+**Quote of the Day: Americans Face ‘New Wild West’ of Measles Cases**\
+`Quotation of the Day for Wednesday, November 18, 2026.`\
+https://www.nytimes.com/2026/11/18/pageoneplus/quote-of-the-day-americans-face-new-wild-west-of-measles-cases.html
+
+**Japan Attempts to Revive U.S. Steel**\
+`After its fraught takeover of steel maker U.S. Steel, a Japanese manufacturer is attempting to revitalize the American company’s facilities, including its oldest mill outside Pittsburgh.`\
+https://www.nytimes.com/2026/11/18/business/us-steel-nippon-takeover-japan.html
+
+**From the Front Page: Spain Moves Toward Democracy on Nov. 18, 1976**\
+`Nearly a year after the death of dictator Francisco Franco, Spain’s Parliament voted to pave the way for general elections after almost four decades of dictatorship.`\
+https://www.nytimes.com/2026/11/18/learning/from-the-front-page-spain-moves-toward-democracy-on-nov-18-1976.html
+
 **Rubio Says Rush to Secure Systems May Be Causing Failures**\
 `Secretary of State Marco Rubio suggested the rush to patch systems, whose vulnerabilities are exposed by A.I., may explain recent failures with air traffic controls, banks and government agencies.`\
 https://www.nytimes.com/2026/11/17/world/asia/tech-outages-cyberattack-hack-rubio.html
@@ -161,20 +177,4 @@ https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 **Frieze Abu Dhabi Opens Its Doors for the First time**\
 `Frieze, the international art fair network that started in London in 2003, is starting a new venture in Abu Dhabi.`\
 https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi.html
-
-**Stocks Down Just Ahead of Nvidia’s Earnings Report**\
-`The chip maker is scheduled to release its quarterly results amid broader jitters about the A.I. trade.`\
-https://www.nytimes.com/2026/11/17/business/economy/stock-market-nvidia-earnings.html
-
-**Frieze Abu Dhabi’s Maiden Voyage Sails the Indian Ocean**\
-`At the first Frieze Abu Dhabi, one section will be devoted to some less-seen ways that the Indian Ocean shaped human civilization.`\
-https://www.nytimes.com/2026/11/17/arts/design/frieze-abu-dhabi-indian-ocean.html
-
-**Sisters Open a Homey Spot for Comfort Food**\
-`Swaine’s melds Italian and Irish delights in Williamsburg, Brooklyn; a new home for Kappo Sono in Midtown; and more restaurant news.`\
-https://www.nytimes.com/2026/11/17/dining/swaines-new-york-restaurant-openings.html
-
-**At Burberry’s Holiday Party, Gwyneth Paltrow’s Son Plays a Set for Teyana Taylor**\
-`Burberry brought the stars out for a red tartan takeover of an Upper East Side hotel.`\
-https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor-moses-martin.html
 
