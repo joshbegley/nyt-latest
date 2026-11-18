@@ -1,3 +1,7 @@
+**Masih Alinejad Sues Tehran, Claiming the Iranian Government Tried to Kill Her**\
+`Though Iran has faced U.S. lawsuits over the years, Masih Alinejad’s suit is the rare one to follow criminal prosecutions in an American court.`\
+https://www.nytimes.com/2026/11/18/nyregion/masih-alinejad-lawsuit-iran-assassination-attempts.html
+
 **Google Buys Worker Data From Spirit Airlines in a New Market to Feed A.I.**\
 `A flight attendants’ union challenged Google’s plans to protect personal information in the data in court, saying the company’s measures were not enough to protect Spirit’s employees.`\
 https://www.nytimes.com/2026/11/18/business/economy/google-spirit-employee-data-ai.html
@@ -122,8 +126,8 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 `Andrew Ross Sorkin will interview some of the most powerful people from politics, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
-**DealBook Summit Live Updates: OpenAI Executives Speaking at Gathering of Business and Political Leaders**\
-`Sam Altman and Greg Brockman of OpenAI are onstage now with Andrew Ross Sorkin. Prime Minister Mark Carney of Canada, Elon Musk and Mayor Zohran Mamdani of New York are expected later.`\
+**DealBook Summit Live Updates: Mark Carney Speaking at Gathering of Business and Political Leaders**\
+`Mr. Carney, the Canadian prime minister, is appearing now with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/pageoneplus/corrections-nov-18-2026.html
 **Would You Want to Be an Influencer?**\
 `Haley DeKreek, a 20-year-old junior, is part of the sorority TikTok boom, with 45,000 TikTok followers and several paid brand deals. Is that a life you would like for yourself — even if it means always having the camera on?`\
 https://www.nytimes.com/2026/11/18/learning/would-you-want-to-be-an-influencer.html
-
-**Putin Will Continue Ukraine War Despite Plans to Meet Trump, Intelligence Says**\
-`President Trump plans to discuss Ukraine with the leaders of Russia and China. He has halted some sanctions on Russia and announced that the United States will buy Russian diesel.`\
-https://www.nytimes.com/2026/11/18/us/politics/trump-putin-ukraine-war.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

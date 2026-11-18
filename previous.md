@@ -1,3 +1,11 @@
+**Google Buys Worker Data From Spirit Airlines in a New Market to Feed A.I.**\
+`A flight attendants’ union challenged Google’s plans to protect personal information in the data in court, saying the company’s measures were not enough to protect Spirit’s employees.`\
+https://www.nytimes.com/2026/11/18/business/economy/google-spirit-employee-data-ai.html
+
+**The Morning: Tell Us About the Best Gift You Ever Received**\
+`We want to hear the gift memories that readers most cherish.`\
+https://www.nytimes.com/2026/11/18/briefing/the-morning-reader-gift-callout.html
+
 **Inca Children Were Given Cocaine and Ayahuasca Before Being Sacrificed**\
 `A toxicological study of frozen mummies from the Andes sheds light on what happened before a sacred ritual of the Inca Empire.`\
 https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca-sacrifices.html
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/18/learning/would-you-want-to-be-an-influencer.h
 **Putin Will Continue Ukraine War Despite Plans to Meet Trump, Intelligence Says**\
 `President Trump plans to discuss Ukraine with the leaders of Russia and China. He has halted some sanctions on Russia and announced that the United States will buy Russian diesel.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-putin-ukraine-war.html
-
-**What to Know About the Myanmar Genocide Case at the World Court**\
-`The International Court of Justice is issuing a landmark verdict on whether the state of Myanmar committed genocide.`\
-https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-world-court.html
-
-**American A.I. Models Have Potential to Be Turned Against U.S., Study Finds**\
-`An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
-https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

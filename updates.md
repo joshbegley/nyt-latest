@@ -1,3 +1,11 @@
+**Google Buys Worker Data From Spirit Airlines in a New Market to Feed A.I.**\
+`A flight attendants’ union challenged Google’s plans to protect personal information in the data in court, saying the company’s measures were not enough to protect Spirit’s employees.`\
+https://www.nytimes.com/2026/11/18/business/economy/google-spirit-employee-data-ai.html
+
+**The Morning: Tell Us About the Best Gift You Ever Received**\
+`We want to hear the gift memories that readers most cherish.`\
+https://www.nytimes.com/2026/11/18/briefing/the-morning-reader-gift-callout.html
+
 **G.T.A. 6 Review: This Release Will Steal Your Heart**\
 `The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
