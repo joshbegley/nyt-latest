@@ -1,3 +1,7 @@
+**Seta Manoukian, a Painter and Buddhist Nun, Tells Her Story**\
+`Seta Manoukian says there is no separation between her art and her spiritual practice.`\
+https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.html
+
 **An Incubator for Arts in Abu Dhabi Quietly Supports New Talent**\
 `As the arts scene in the U.A.E. continues to expand, the 421 Arts Campus provides space, time and funding to help artists develop their visions and skills.`\
 https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-421-arts.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 **N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
 `The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
 https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
-
-**$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
-`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
-https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
 
