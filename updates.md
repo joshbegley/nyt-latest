@@ -1,3 +1,15 @@
+**The Word of the Year**\
+`Cambridge Dictionary’s choice says a lot.`\
+https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
+
+**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
+`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
+https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
+
+**Do Not Give Sean Duffy $50 Billion**\
+`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
+https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
+
 **DealBook Summit Live Updates: David Ellison Speaking Next at Gathering of Business and Political Leaders**\
 `Mr. Ellison, the Skydance chief executive, will soon take the stage with Andrew Ross Sorkin. Elon Musk, Hailey Bieber and Mayor Zohran Mamdani of New York are among those expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news

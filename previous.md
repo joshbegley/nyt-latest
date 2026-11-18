@@ -1,3 +1,15 @@
+**The Word of the Year**\
+`Cambridge Dictionary’s choice says a lot.`\
+https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
+
+**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
+`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
+https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
+
+**Do Not Give Sean Duffy $50 Billion**\
+`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
+https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
+
 **Democrats Nominate Jeffries as Speaker, Making History**\
 `The vote put Representative Hakeem Jeffries of New York in line to become the first Black lawmaker to win the post second in line to the presidency.`\
 https://www.nytimes.com/2026/11/18/us/politics/hakeem-jeffries-speaker-of-the-house-democrats.html
@@ -177,18 +189,6 @@ https://www.nytimes.com/2026/11/18/upshot/sister-snl-elder-care.html
 **Modern Love: Billie Jean King Talks About 3 Loves That Changed Her Life**\
 `Off the court, the tennis champion struggled to find the right partner.`\
 https://www.nytimes.com/2026/11/18/podcasts/billie-jean-king-modern-love.html
-
-**House Democrats Cast Wide Net as They Prepare Trump Investigations**\
-`The inquiries would focus on President Trump, his family and top officials in his administration and would include a look at Commerce Secretary Howard Lutnick and policies related to Nvidia.`\
-https://www.nytimes.com/2026/11/18/us/politics/democrats-cast-investigative-net.html
-
-**The U.S. Could Hit Its Debt Limit by February**\
-`The Bipartisan Policy Center estimates that the United States will soon run up against a limit to how much debt it can issue.`\
-https://www.nytimes.com/2026/11/18/business/economy/us-debt-limit.html
-
-**Corrections: Nov. 18, 2026**\
-`Corrections that appeared in print on Wednesday, Nov. 18, 2026.`\
-https://www.nytimes.com/2026/11/18/pageoneplus/corrections-nov-18-2026.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
