@@ -1,3 +1,11 @@
+**Californians Approved Funding for Medical Research. Critics Say a Billionaire’s Pet Project Stands to Benefit Most.**\
+`A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
+https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
+
+**New James Bond, New James Bond Style?**\
+`As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
+https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
+
 **2 Solo Plays Wrestle With the Power of Monologues**\
 `The Off Broadway productions of “The Exhibitionist” and “The Good Thief” both feature terrific performers engaged in acts of storytelling.`\
 https://www.nytimes.com/2026/11/18/theater/exhibitionist-good-thief-review-hiller.html

@@ -1,3 +1,7 @@
+**Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
+`Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
+https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
+
 **Californians Approved Funding for Medical Research. Critics Say a Billionaire’s Pet Project Stands to Benefit Most.**\
 `A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
 https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/science/nasa-voyager-1-earth-light-day.html
 **How Much Do You Know About NASA’s Voyager Mission?**\
 `Voyagers 1 and 2 have gone farther and lasted longer than any other spacecraft that humans have sent out into the cosmos. Test your knowledge about their epic and ongoing journey.`\
 https://www.nytimes.com/quiz/2026/11/18/science/voyager-lightday.html
-
-**Europe Is Racing to Make Air Defenses ‘Cheaper Than What We Are Shooting Down’**\
-`Defense companies are facing calls to increase production, cut costs and keep pace with rapidly evolving technology as the Russian threat intensifies.`\
-https://www.nytimes.com/2026/11/18/business/russia-europe-defense-tytan-leonardo.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
