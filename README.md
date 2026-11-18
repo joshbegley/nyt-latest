@@ -174,7 +174,7 @@ https://www.nytimes.com/2026/11/17/style/burberry-mark-hotel-party-teyana-taylor
 `The disruption followed days of unrelated problems in the past week that interrupted air travel and work at offices, schools and government.`\
 https://www.nytimes.com/2026/11/17/technology/apple-down-outage-issues.html
 
-**Ukraine Strikes Symbolic Bridge Connecting Crimea to Russia**\
-`Video verified by The New York Times shows the Kerch Strait Bridge, the only one connecting Russia to the occupied Crimean Peninsula, collapsed.`\
-https://www.nytimes.com/video/world/europe/100000011289672/ukraine-kyiv-russia-kerch-bridge-crimea.html
+**Live Updates: Trump Meets Philippine Leader Before Flying to China**\
+`The next stop on President Trump’s whirlwind Asia trip is the city of Shenzhen, where he is expected to meet with Xi Jinping of China and President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit
 
