@@ -1,3 +1,15 @@
+**Closing Time**\
+`We look at the challenges facing schools in the United States.`\
+https://www.nytimes.com/2026/11/18/briefing/school-closures.html
+
+**The DealBook Summit’s Candid Conversations Through the Years**\
+`Highlights from the annual gathering of leaders from the world of business, politics and culture.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-history.html
+
+**Carney and Trump to Hold Unscheduled Trade Meeting at Asia Summit**\
+`The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
+https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
+
 **Grand Theft Auto VI Review: It Will Steal Your Heart**\
 `The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-miami-florida.html
 **Will Salmon Sperm Make You Look Younger?**\
 `Sellers of PDRN claim that fragments of fish DNA can absorb into the skin and revitalize it. Is that true?`\
 https://www.nytimes.com/2026/11/18/well/pdrn-skin-treatment-salmon-dna.html
-
-**Word of the Day: amphibious**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/18/learning/word-of-the-day-amphibious.html
-
-**Big Oil Says Recycled Fracking Wastewater Is Safe. Texas Is About to Test It.**\
-`Fracking produces toxic wastewater filled with secret chemicals. Texas and the Trump Administration may send that treated water into rivers and on farmland.`\
-https://www.nytimes.com/2026/11/18/climate/texas-wastewater-treatment-pecos.html
-
-**The Sound of G.T.A. VI Was Born on the Dance Floor**\
-`Drawing on their deep roots in rave culture, creators at Rockstar stuffed the new Grand Theft Auto with the music of Justice and a radio station featuring CircoLoco D.J.s.`\
-https://www.nytimes.com/2026/11/18/arts/music/grand-theft-auto-vi-circoloco-justice.html
 
