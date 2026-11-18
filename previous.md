@@ -1,3 +1,11 @@
+**Trump Arrives in China Focused on Friendship, Not Spy Scandal**\
+`President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
+
+**Skydance C.E.O. David Ellison Praises Elon Musk**\
+`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday, following Mr. Musk’s recent $1 billion investment in the CBS and CNN parent company.`\
+https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
+
 **Robert Pattinson Will Make James Bond an Antihero**\
 `He’s well positioned to reinvent the role of Bond into a full-blown antihero.`\
 https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
@@ -185,14 +193,6 @@ https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec
 **DealBook Has Covered Wall Street and the World for a Quarter Century**\
 `For more than two decades, DealBook has scored scoops and high-profile interviews.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html
-
-**How Mary Peltola Triumphed in Alaska’s Senate Race**\
-`Beleaguered by high fuel costs and wary of overfishing, Alaskans were drawn to the Democrat’s hyperlocal pitch.`\
-https://www.nytimes.com/2026/11/18/us/politics/peltola-victory-alaska-senate.html
-
-**Leaders of China and Japan Meet Amid Political Feud**\
-`Xi Jinping, China’s leader, greeted Sanae Takaichi, Japan’s prime minister, in Shenzhen a year after China began punishing Japan over her comments on Taiwan.`\
-https://www.nytimes.com/2026/11/18/world/asia/xi-jinping-china-sanae-takaichi-japan.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

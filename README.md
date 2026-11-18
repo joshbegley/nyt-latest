@@ -1,3 +1,7 @@
+**David Ellison Confirms Elon Musk Invested in Skydance**\
+`Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
+
 **Trump Arrives in China Focused on Friendship, Not Spy Scandal**\
 `President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
 **Trump Arrives in China Ahead of Meeting With Xi and Putin**\
 `President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
-
-**DealBook Has Covered Wall Street and the World for a Quarter Century**\
-`For more than two decades, DealBook has scored scoops and high-profile interviews.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-anniversary-history.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

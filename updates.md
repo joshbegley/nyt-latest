@@ -1,3 +1,11 @@
+**Trump Arrives in China Focused on Friendship, Not Spy Scandal**\
+`President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
+
+**Skydance C.E.O. David Ellison Praises Elon Musk**\
+`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday, following Mr. Musk’s recent $1 billion investment in the CBS and CNN parent company.`\
+https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
+
 **Robert Pattinson Will Make James Bond an Antihero**\
 `He’s well positioned to reinvent the role of Bond into a full-blown antihero.`\
 https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
