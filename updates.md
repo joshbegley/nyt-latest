@@ -1,3 +1,19 @@
+**Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
+`The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
+https://www.nytimes.com/2026/11/18/arts/jeff-bezos-pick-robert-pattinson-james-bond.html
+
+**What Nvidia’s Interim CEO, Colette Kress, Said to Employees After Jensen Huang’s Resignation**\
+`At an all-hands meeting with employees, Colette Kress sought to put the indiscretions of Nvidia’s co-founder, Jensen Huang, behind them.`\
+https://www.nytimes.com/2026/11/18/technology/nvidia-jensen-huang-affair-colette-kress.html
+
+**Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.**\
+`The steel arch that is now gone took about two years to produce, assemble and install. Replacing it will be complicated, if possible at all in wartime.`\
+https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html
+
+**Skydance C.E.O. David Ellison Praises Elon Musk**\
+`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday.`\
+https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
+
 **David Ellison Confirms Elon Musk Invested in Skydance**\
 `Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html

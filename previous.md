@@ -1,3 +1,15 @@
+**Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
+`The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
+https://www.nytimes.com/2026/11/18/arts/jeff-bezos-pick-robert-pattinson-james-bond.html
+
+**What Nvidia’s Interim CEO, Colette Kress, Said to Employees After Jensen Huang’s Resignation**\
+`At an all-hands meeting with employees, Colette Kress sought to put the indiscretions of Nvidia’s co-founder, Jensen Huang, behind them.`\
+https://www.nytimes.com/2026/11/18/technology/nvidia-jensen-huang-affair-colette-kress.html
+
+**Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.**\
+`The steel arch that is now gone took about two years to produce, assemble and install. Replacing it will be complicated, if possible at all in wartime.`\
+https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html
+
 **David Ellison Confirms Elon Musk Invested in Skydance**\
 `Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
@@ -7,7 +19,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
 
 **Skydance C.E.O. David Ellison Praises Elon Musk**\
-`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday, following Mr. Musk’s recent $1 billion investment in the CBS and CNN parent company.`\
+`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday.`\
 https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
 
 **Robert Pattinson Will Make James Bond an Antihero**\
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-m
 **Hospitals Rush to Patch Java Vulnerabilities**\
 `Artificial intelligence is accelerating the threats facing health systems that have been under attack from hackers for years.`\
 https://www.nytimes.com/2026/11/18/business/hospitals-java-artificial-intelligence.html
-
-**Economic and Political Uncertainty Will Be Focus of DealBook Summit**\
-`The 2026 summit comes amid concerns about the sustainability of the A.I. rally and a midterm election that reset the balance of power in Washington.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-what-to-watch.html
-
-**Cranberry Crème Brûlée**\
-`Not many desserts feel more “special occasion” than crème brûlée, especially when torched tableside. This cranberry-orange version brings all the flavor, flair and drama of the holidays.`\
-https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
-
-**Trump Arrives in China Ahead of Meeting With Xi and Putin**\
-`President Trump on Wednesday arrived in Shenzhen, China, where he is expected to meet with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia.`\
-https://www.nytimes.com/video/world/asia/100000011291964/trump-xi-putin-kim-apec.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
