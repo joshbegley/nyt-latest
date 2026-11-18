@@ -1,3 +1,7 @@
+**Trump Briefly Met an Old Friend in Manila: Imelda Marcos**\
+`President Trump and the former first lady of the Philippines know each other well, her son, the country’s leader, has said.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-imelda-marcos.html
+
 **15-Minute Lesson Plan: El Niño**\
 `What is this “chaos agent,” and how may it affect your community and the rest of the planet this year?`\
 https://www.nytimes.com/2026/11/18/learning/15-minute-lesson-plan-el-nino.html
