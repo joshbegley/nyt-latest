@@ -1,3 +1,11 @@
+**Trump, Putin and Xi to Meet for the First Time**\
+`Also, Democrats nominate Jeffries as speaker, making history. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/11/18/briefing/trump-putin-xi-meeting.html
+
+**Fight Over Deportation Protections for Venezuelans Returns to Supreme Court**\
+`The justices previously allowed the Trump administration to lift protections for Venezuelans covered by the program known as Temporary Protected Status.`\
+https://www.nytimes.com/2026/11/18/us/politics/supreme-court-trump-deportation-venezuelans.html
+
 **Polymarket CEO Says Donald Trump Jr.’s Involvement Is ‘Overblown’**\
 `At the DealBook Summit, Shayne Coplan, the founder of Polymarket, defended the investment by a firm associated with President Trump’s oldest son.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/polymarket-donald-trump-jr-shayne-coplan.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon
 **Trump Arrives in China Focused on Friendship With Xi, Not Nvidia Spy Scandal**\
 `President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
-
-**Skydance C.E.O. David Ellison Praises Elon Musk**\
-`The Skydance C.E.O. David Ellison spoke warmly about Elon Musk at The New York Times DealBook Summit on Wednesday.`\
-https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
-
-**Robert Pattinson Will Make James Bond an Antihero**\
-`He’s well positioned to reinvent the role.`\
-https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
 

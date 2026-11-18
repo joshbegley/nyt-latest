@@ -1,3 +1,11 @@
+**Polymarket CEO Says Donald Trump Jr.’s Involvement Is ‘Overblown’**\
+`At the DealBook Summit, Shayne Coplan, the founder of Polymarket, defended the investment by a firm associated with President Trump’s oldest son.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/polymarket-donald-trump-jr-shayne-coplan.html
+
+**Judge Extends Block on Building Trump’s Triumphal Arch**\
+`Judge Tanya Chutkan barred the government from beginning work on the project for another two weeks.`\
+https://www.nytimes.com/2026/11/18/us/politics/judge-block-trump-arch.html
+
 **Polymarket Founder Defends Partnership With Donald Trump Jr.**\
 `At the DealBook Summit on Wednesday, Polymarket founder Shayne Coplan said the media attention surrounding his company’s relationship with the president’s eldest son, Donald Trump Jr., has been “heavily overblown.”`\
 https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trump.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
 **Robert Pattinson Will Make James Bond an Antihero**\
 `He’s well positioned to reinvent the role.`\
 https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
-
-**Watch: OpenAI’s Top Executives Talk Rogue Agents and A.I. Security**\
-`In an interview at the DealBook Summit, the co-founders Sam Altman and Greg Brockman discussed how to strike a balance between safety and risk.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
-
-**Sam Altman Talks About Not Taking Equity in OpenAI**\
-`The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
-https://www.nytimes.com/video/business/dealbook/100000011293234/sam-altman-openai-equity.html
 
