@@ -1,3 +1,23 @@
+**Mark Carney Says Canada Will Not Back Down in Trade Talks With U.S.**\
+`Conversely, the prime minister of Canada said that talks with China were “going exceptionally well.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/mark-carney-canada-us-trade.html
+
+**Trump, Putin and Xi Will Meet in China, Each With a Different Agenda**\
+`In a historic meeting, President Trump is set to discuss denuclearization with President Xi Jinping of China and President Vladimir V. Putin of Russia. Our White House and national security correspondent, David Sanger, explains their conflicting interests on this topic, and why the meeting is symbolic for each of them, but for different reasons.`\
+https://www.nytimes.com/video/us/100000011283396/trump-putin-and-xi-will-meet-in-china-each-with-a-different-agenda.html
+
+**Senator Bill Cassidy Blocks Trump Pick to Head Science Agency**\
+`A venture capitalist and Peter Thiel acolyte, Jim O’Neill faced bipartisan concern over whether he would stand up for science.`\
+https://www.nytimes.com/2026/11/18/us/politics/bill-cassidy-jim-oneill-science.html
+
+**OpenAI’s Sam Altman on A.I. Safety**\
+`Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
+https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
+
+**A Massachusetts Town Revolts Against Amazon’s Delivery Drones**\
+`Amazon wants to offer faster delivery. Residents want quiet skies. A Massachusetts suburb wages an epic battle for control of its airspace.`\
+https://www.nytimes.com/2026/11/18/us/politics/amazon-delivery-drones-massachusetts.html
+
 **Carney Talks Trade Negotiations Amid Tense Relationship with Trump**\
 `Prime Minister Mark Carney of Canada talked about his country’s tense relationship with the United States at the New York Time’s DealBook summit on Wednesday.`\
 https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdeal-trump.html
