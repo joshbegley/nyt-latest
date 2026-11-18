@@ -1,3 +1,7 @@
+**Rio Tinto to Pay $250 Million to Address Mine’s Environmental Damage**\
+`The landmark deal will also go toward remedying human rights problems caused by the long-closed Papua New Guinea mine.`\
+https://www.nytimes.com/2026/11/18/world/asia/rio-tinto-papua-new-guinea-mine.html
+
 **Mary Peltola Wins Senate Seat in Alaska**\
 `Mary Peltola’s win in Alaska means Democrats will hold 56 seats in the Senate next year, their largest tally in more than a decade.`\
 https://www.nytimes.com/video/us/politics/100000011291983/alaska-senate-mary-peltola.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/17/style/gta-6-grand-theft-auto-south-park.html
 **With House Democratic Majority Still Growing, Recounts Are Starting in Closest Races**\
 `The exact size of the Democratic majority in Congress was undetermined as recounts were sought in two races in North Carolina and one in Minnesota two weeks after the elections.`\
 https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carolina-minnesota.html
-
-**Columbia’s Neighbors File Appeal to Reopen the Campus to the Public**\
-`Plaintiffs in the class action lawsuit argue that the university must reopen its gates in Manhattan, which have been closed since pro-Palestinian demonstrations in 2023.`\
-https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public-closure.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
