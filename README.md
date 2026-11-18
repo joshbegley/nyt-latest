@@ -168,7 +168,7 @@ https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
 
 **30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
 `Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
-https://www.nytimes.com/2026/11/18/arts/design/30-years-ago-robert-am-stern-asked-new-york-to-preserve-these-modern-buildings.html
+https://www.nytimes.com/2026/11/18/arts/design/robert-am-stern-new-york-building-preservation.html
 
 **‘Emily,’ ‘The Bride!’ and More Streaming Gems**\
 `A fascinating flop, an atypical biographical drama and a pair of fabulous documentaries are among this month’s recommendations for hidden gems on your streaming subscription services.`\
