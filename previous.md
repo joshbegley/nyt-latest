@@ -1,3 +1,7 @@
+**When Americans Sing Together**\
+`While campaigning, Rob Sand, now Iowa’s governor-elect, invited audiences at his town halls to sing “America the Beautiful” together. On “The Ezra Klein Show,” Sand describes what this practice means to him.`\
+https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-together.html
+
 **Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
 `While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
@@ -46,7 +50,7 @@ https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-so
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
 
-**Fed Saw Need to Continue Raising Rates Despite October Skip**\
+**Fed Saw a Need to Continue Raising Rates, Despite Holding Steady in October**\
 `Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
 https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/well/rfk-jr-uspstf-health-care.html
 **ECB President Christine Lagarde on Why She’s Stepping Down Early**\
 `The president of the European Central Bank said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” in European elections.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-central-bank.html
-
-**The Word of the Year**\
-`Cambridge Dictionary’s choice says a lot.`\
-https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
 

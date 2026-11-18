@@ -1,3 +1,11 @@
+**When Americans Sing Together**\
+`While campaigning, Rob Sand, now Iowa’s governor-elect, invited audiences at his town halls to sing “America the Beautiful” together. On “The Ezra Klein Show,” Sand describes what this practice means to him.`\
+https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-together.html
+
+**Fed Saw a Need to Continue Raising Rates, Despite Holding Steady in October**\
+`Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
+https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
+
 **Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
 `While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
