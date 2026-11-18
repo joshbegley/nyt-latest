@@ -1,3 +1,7 @@
+**David Ellison Confirms Elon Musk Invested in Skydance**\
+`Speaking at the DealBook summit, Mr. Ellison said it was “an honor and a privilege” to have Mr. Musk as a shareholder in the company.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-skydance-elon-musk.html
+
 **Trump Arrives in China Focused on Friendship, Not Spy Scandal**\
 `President Xi Jinping of China offered a hug and a red-carpet welcome as President Trump avoided discussing the espionage case that brought down Nvidia’s Jensen Huang.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.html
