@@ -1,3 +1,11 @@
+**What Teenagers Are Saying About the Midterm Elections**\
+`Students react to the “blue tsunami,” analyze the inner-workings of a divided government, and reflect on what this moment means for their generation’s future.`\
+https://www.nytimes.com/2026/11/18/learning/what-teenagers-are-saying-about-the-midterm-elections.html
+
+**$50 Billion Won’t Fix Air Traffic Control. It Needs to Be Scrapped.**\
+`The transportation secretary wants to pour more dollars into an obsolete structure, much like upgrading a Model T for a highway.`\
+https://www.nytimes.com/2026/11/18/opinion/ground-stop-airplanes-sean-duffy.html
+
 **OpenAI Executives Say They Have to Strike a Balance Between A.I. Safety and Progress**\
 `The company’s C.E.O., Sam Altman, and president, Greg Brockman, said they cannot “make everybody happy.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-brockman.html
