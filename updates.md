@@ -1,3 +1,15 @@
+**My Husband Is Planning a Hard Talk With His Father at Thanksgiving. Help!**\
+`A reader asks whether there’s any way to keep a conversation about her father-in-law’s worsening Alzheimer’s disease from torpedoing her plans for a joyful holiday.`\
+https://www.nytimes.com/2026/11/18/style/son-mistaken-for-girl-how-to-respond.html
+
+**A Massachusetts Town Revolts Against Amazon’s Delivery Drones**\
+`Amazon wants to offer fast delivery. Residents want quiet skies. A Massachusetts suburb wages an epic battle over control of its airspace.`\
+https://www.nytimes.com/2026/11/18/us/politics/amazon-delivery-drones-massachusetts.html
+
+**Xi Greets Trump With a Hug as He Arrives in China**\
+`The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
+
 **Irish Man Sabotaged U.S. Military Plane With Ax and Chemicals, Prosecutors Say**\
 `Daithi O’Corrain sealed himself inside a National Guard C-130 at Ireland’s Shannon Airport in April for hours, causing so much damage that the aircraft was retired from service, prosecutors said.`\
 https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-military-plane.html

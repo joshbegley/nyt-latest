@@ -1,3 +1,11 @@
+**My Husband Is Planning a Hard Talk With His Father at Thanksgiving. Help!**\
+`A reader asks whether there’s any way to keep a conversation about her father-in-law’s worsening Alzheimer’s disease from torpedoing her plans for a joyful holiday.`\
+https://www.nytimes.com/2026/11/18/style/son-mistaken-for-girl-how-to-respond.html
+
+**A Massachusetts Town Revolts Against Amazon’s Delivery Drones**\
+`Amazon wants to offer fast delivery. Residents want quiet skies. A Massachusetts suburb wages an epic battle over control of its airspace.`\
+https://www.nytimes.com/2026/11/18/us/politics/amazon-delivery-drones-massachusetts.html
+
 **Irish Man Sabotaged U.S. Military Plane With Ax and Chemicals, Prosecutors Say**\
 `Daithi O’Corrain sealed himself inside a National Guard C-130 at Ireland’s Shannon Airport in April for hours, causing so much damage that the aircraft was retired from service, prosecutors said.`\
 https://www.nytimes.com/2026/11/18/world/europe/man-charged-ireland-shannon-us-military-plane.html
@@ -70,7 +78,7 @@ https://www.nytimes.com/2026/11/18/crosswords/wordle-review-1979.html
 `Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
 https://www.nytimes.com/2026/11/18/crosswords/strands-sidekick-991.html
 
-**In a Rare Move, Xi Greets Trump as He Lands in China**\
+**Xi Greets Trump With a Hug as He Arrives in China**\
 `The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
 
@@ -162,13 +170,13 @@ https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-w
 `An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
 https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
 
-**The Greed of Youth Sports Has No Limits**\
-`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
-https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
-
 **In ‘The Rings of Power,’ I.P.-Based TV Loses Its Magic**\
 `The costly Tolkien extravaganza, now in its third season, is a monument to the scale and forgettability of many of TV’s franchise spinoffs.`\
 https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-of-power-review.html
+
+**The Greed of Youth Sports Has No Limits**\
+`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
+https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
 
 **‘The Host’: Attack of the Giant Tadpole From Hell**\
 `Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
@@ -185,14 +193,6 @@ https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
 **30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
 `Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
 https://www.nytimes.com/2026/11/18/arts/design/robert-am-stern-new-york-building-preservation.html
-
-**‘Emily,’ ‘The Bride!’ and More Streaming Gems**\
-`A fascinating flop, an atypical biographical drama and a pair of fabulous documentaries are among this month’s recommendations for hidden gems on your streaming subscription services.`\
-https://www.nytimes.com/2026/11/18/movies/emily-the-bride-streaming-movies.html
-
-**The Supreme Court Deserves Celebration, Not Condemnation**\
-`The court has shown remarkable independence and competence.`\
-https://www.nytimes.com/2026/11/18/opinion/supreme-court-reform.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
