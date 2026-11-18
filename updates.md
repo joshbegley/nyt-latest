@@ -1,3 +1,7 @@
+**Christine Lagarde Explains Why She Is Stepping Down**\
+`Christine Lagarde, president of European Central Bank, said she wants to use her voice and decades of experience in international finance to speak against what she called “fake news” and “misrepresentations” in European elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagarde-european-central-bank.html
+
 **‘Shocking’ Signs of Climate Change Add Urgency to COP31 Talks**\
 `From the Arctic to the tropics, unusual weather and extreme heat is sparking worry about how quickly humans are reshaping the Earth’s natural processes.`\
 https://www.nytimes.com/2026/11/18/climate/cop31-climate-global-warming.html

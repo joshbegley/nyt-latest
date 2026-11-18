@@ -1,3 +1,7 @@
+**Christine Lagarde Explains Why She Is Stepping Down**\
+`Christine Lagarde, president of European Central Bank, said she wants to use her voice and decades of experience in international finance to speak against what she called “fake news” and “misrepresentations” in European elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagarde-european-central-bank.html
+
 **‘Shocking’ Signs of Climate Change Add Urgency to COP31 Talks**\
 `From the Arctic to the tropics, unusual weather and extreme heat is sparking worry about how quickly humans are reshaping the Earth’s natural processes.`\
 https://www.nytimes.com/2026/11/18/climate/cop31-climate-global-warming.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/podcasts/the-daily/anthropic-ipo-ai-industry.
 **Today’s Wordle Hints for November 19. 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
 https://www.nytimes.com/2026/11/18/crosswords/wordle-review-1979.html
-
-**NYT Strands Hints for November 19, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
-https://www.nytimes.com/2026/11/18/crosswords/strands-sidekick-991.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

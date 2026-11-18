@@ -1,3 +1,11 @@
+**OpenAI’s Sam Altman on A.I. Safety**\
+`Sam Altman, the C.E.O. of OpenAI, spoke about the balance between safety and progress with A.I. during a conversation with Andrew Ross Sorkin, editor-at-large, at the DealBook Summit.`\
+https://www.nytimes.com/video/business/dealbook/100000011293027/sam-altman-openai-safety-dealbook.html
+
+**Nepal Came to COP31 in Dire Need. It’s a Test for the World.**\
+`A deadly glacier collapse left the country with $5 billion in recovery costs. So far, few have stepped up with aid.`\
+https://www.nytimes.com/2026/11/18/climate/nepal-disaster-aid-cop31.html
+
 **Christine Lagarde Explains Why She Is Stepping Down**\
 `Christine Lagarde, president of European Central Bank, said she wants to use her voice and decades of experience in international finance to speak against what she called “fake news” and “misrepresentations” in European elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagarde-european-central-bank.html
@@ -38,7 +46,7 @@ https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
 `A recently passed ballot proposition allows for billions of dollars in resources to be directed to one particular research institute. Critics contend the move could be unconstitutional.`\
 https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.html
 
-**How Will Robert Pattinson’s James Bond Be Dressed?**\
+**How Robert Pattinson Could Shape a New James Bond Style**\
 `As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
 https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
 
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/18/crosswords/connections-companion-1257.html
 **Tech Outages Rattle the U.S., and Democrats Win Alaska’s Senate Race**\
 `Plus, the new video game set to bring in billions.`\
 https://www.nytimes.com/2026/11/18/podcasts/the-headlines/tech-outages-alaska-senate-race.html
-
-**How Stable Is the A.I. Industry? We’re About to Find Out.**\
-`Anthropic is a barometer of the economy at a volatile time. Its initial public offering will have widespread implications.`\
-https://www.nytimes.com/2026/11/18/podcasts/the-daily/anthropic-ipo-ai-industry.html
-
-**Today’s Wordle Hints for November 19. 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
-https://www.nytimes.com/2026/11/18/crosswords/wordle-review-1979.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
