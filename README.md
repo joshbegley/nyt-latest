@@ -1,3 +1,7 @@
+**Mary Peltola Wins Senate Seat in Alaska**\
+`Mary Peltola’s win in Alaska means Democrats will hold 56 seats in the Senate next year, their largest tally in more than a decade.`\
+https://www.nytimes.com/video/us/politics/100000011291983/alaska-senate-mary-peltola.html
+
 **Michael Kosta Faults Trump for Shrugging Off Mass Tech Failures**\
 `“Maybe for Trump it’s fine,” Kosta said on “The Daily Show.” “He doesn’t fly commercial, he doesn’t know how to use email, his bank is a guy from Qatar. For the rest of us though, it’s not fine.”`\
 https://www.nytimes.com/2026/11/18/arts/television/late-night-michael-kosta-trump-technology.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/17/us/elections/recounts-house-races-north-carol
 **Columbia’s Neighbors File Appeal to Reopen the Campus to the Public**\
 `Plaintiffs in the class action lawsuit argue that the university must reopen its gates in Manhattan, which have been closed since pro-Palestinian demonstrations in 2023.`\
 https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public-closure.html
-
-**A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
-`The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
-https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
