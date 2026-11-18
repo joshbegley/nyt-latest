@@ -1,3 +1,7 @@
+**2 Solo Plays Wrestle With the Power of Monologues**\
+`The Off Broadway productions of “The Exhibitionist” and “The Good Thief” both feature terrific performers engaged in acts of storytelling.`\
+https://www.nytimes.com/2026/11/18/theater/exhibitionist-good-thief-review-hiller.html
+
 **A.I. Bubble Talk Enters the Conversation at DealBook Summit**\
 `This morning’s sessions included Christine Lagarde, president of the E.C.B., and Sam Altman, chief executive of OpenAI, discussing the A.I. bubble and sky-high valuations.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/ai-bubble-dealbook-summit.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/nyregion/big-oyster-hudson-river.html
 **‘It’s Easier Said Than Done’: 3 Opinion Writers on How to Check Trump**\
 `Presidents usually have wide latitude on foreign policy. Will the next Congress change that?`\
 https://www.nytimes.com/2026/11/18/opinion/trump-iran-us-foreign-policy.html
-
-**Which $330,000 Home Would You Choose?**\
-`For sale: homes in Enfield, Conn., Lynchburg, Va., and Pittsburgh.`\
-https://www.nytimes.com/2026/11/18/realestate/ensfield-lynchburg-pittsburgh-home-prices.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

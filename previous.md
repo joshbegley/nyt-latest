@@ -1,10 +1,14 @@
+**A.I. Bubble Talk Enters the Conversation at DealBook Summit**\
+`This morning’s sessions included Christine Lagarde, president of the E.C.B., and Sam Altman, chief executive of OpenAI, discussing the A.I. bubble and sky-high valuations.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/ai-bubble-dealbook-summit.html
+
 **Intolerance of Uncertainty Is Rising in Young Adults**\
 `Researchers suggest their distress may be related to changes in technology, the economy and political polarization.`\
 https://www.nytimes.com/2026/11/18/well/mind/uncertainty-anxiety-jama-study.html
 
 **The Anti-A.I. Campus Movement Is Growing**\
 `Some students are refusing to use A.I., and others are starting petitions to limit it across entire campuses. Colleges have taken notice.`\
-https://www.nytimes.com/2026/11/18/us/the-anti-ai-campus-movement-is-growing.html
+https://www.nytimes.com/2026/11/18/us/anti-ai-protests-petitions-colleges.html
 
 **How RFK Jr. Upended a Group Guiding Health Care for All Americans**\
 `Fifteen former members and federal employees told The Times that, over two years, the administration blocked their work and ended the U.S. Preventive Services Task Force’s scientific independence.`\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/opinion/trump-iran-us-foreign-policy.html
 **Which $330,000 Home Would You Choose?**\
 `For sale: homes in Enfield, Conn., Lynchburg, Va., and Pittsburgh.`\
 https://www.nytimes.com/2026/11/18/realestate/ensfield-lynchburg-pittsburgh-home-prices.html
-
-**The Anthropic I.P.O. Will Change the Future of A.I.**\
-`The A.I. company believes they are humanity’s best chance to develop safe superintelligence.`\
-https://www.nytimes.com/2026/11/18/opinion/anthropic-ai-openai.html
 
 **Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

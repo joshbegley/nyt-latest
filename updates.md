@@ -1,3 +1,11 @@
+**A.I. Bubble Talk Enters the Conversation at DealBook Summit**\
+`This morning’s sessions included Christine Lagarde, president of the E.C.B., and Sam Altman, chief executive of OpenAI, discussing the A.I. bubble and sky-high valuations.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/ai-bubble-dealbook-summit.html
+
+**The Anti-A.I. Campus Movement Is Growing**\
+`Some students are refusing to use A.I., and others are starting petitions to limit it across entire campuses. Colleges have taken notice.`\
+https://www.nytimes.com/2026/11/18/us/anti-ai-protests-petitions-colleges.html
+
 **Intolerance of Uncertainty Is Rising in Young Adults**\
 `Researchers suggest their distress may be related to changes in technology, the economy and political polarization.`\
 https://www.nytimes.com/2026/11/18/well/mind/uncertainty-anxiety-jama-study.html
