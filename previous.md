@@ -1,3 +1,27 @@
+**The Permitting Bill Is Splitting the Environmental Movement**\
+`Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
+https://www.nytimes.com/2026/11/18/climate/the-bill-thats-splitting-the-environmental-movement.html
+
+**Crime in American Cities May Never Have Been Lower. Why?**\
+`Urban crime rates are near record lows.`\
+https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
+
+**Thanksgiving Teaching Ideas**\
+`We have a bounty of ideas to choose from, each of which links to a free Times article, photo essay, video, quiz, podcast, map and more.`\
+https://www.nytimes.com/2026/11/18/learning/food-family-history-and-culture-thanksgiving-across-the-curriculum.html
+
+**Ground Stop Came as Duffy Pushed to Rapidly Upgrade Aviation Systems**\
+`Current and former officials say that Transportation Secretary Sean Duffy’s push to quickly finish modernization during President Trump’s second term could continue to disrupt air travel.`\
+https://www.nytimes.com/2026/11/18/us/sean-duffy-ground-stop-faa-trump.html
+
+**Watch: Canada’s Prime Minister on Negotiating With President Trump**\
+`He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
+https://www.nytimes.com/2026/11/18/podcasts/carney-canada-trade-deal-trump.html
+
+**New Members Get a Congress Crash Course With Grade School Vibes**\
+`Newly elected House members are attending freshman orientation on Capitol Hill, where their introduction to Congress feels a lot like the first days of school.`\
+https://www.nytimes.com/2026/11/18/us/politics/new-members-congress.html
+
 **When Americans Sing Together**\
 `While campaigning, Rob Sand, now Iowa’s governor-elect, invited audiences at his town halls to sing “America the Beautiful” together. On “The Ezra Klein Show,” Sand describes what this practice means to him.`\
 https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-together.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/18/science/california-prop-38-gary-michelson.htm
 **How Robert Pattinson Could Shape a New James Bond Style**\
 `As the Robert Pattinson era begins, many of the defining Bond brands may be about to change.`\
 https://www.nytimes.com/2026/11/18/style/robert-pattinson-james-bond-style-watches-suits.html
-
-**2 Solo Plays Wrestle With the Power of Monologues**\
-`The Off Broadway productions of “The Exhibitionist” and “The Good Thief” both feature terrific performers engaged in acts of storytelling.`\
-https://www.nytimes.com/2026/11/18/theater/exhibitionist-good-thief-review-hiller.html
-
-**A.I. Bubble Talk Enters the Conversation at DealBook Summit**\
-`This morning’s sessions included Christine Lagarde, president of the E.C.B., and Sam Altman, chief executive of OpenAI, discussing the A.I. bubble and sky-high valuations.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/ai-bubble-dealbook-summit.html
-
-**Intolerance of Uncertainty Is Rising in Young Adults**\
-`Researchers suggest their distress may be related to changes in technology, the economy and political polarization.`\
-https://www.nytimes.com/2026/11/18/well/mind/uncertainty-anxiety-jama-study.html
-
-**The Anti-A.I. Campus Movement Is Growing**\
-`Some students are refusing to use A.I., and others are starting petitions to limit it across entire campuses. Colleges have taken notice.`\
-https://www.nytimes.com/2026/11/18/us/anti-ai-protests-petitions-colleges.html
-
-**How RFK Jr. Upended a Group Guiding Health Care for All Americans**\
-`Fifteen former members and federal employees told The Times that, over two years, the administration blocked their work and ended the U.S. Preventive Services Task Force’s scientific independence.`\
-https://www.nytimes.com/2026/11/18/well/rfk-jr-uspstf-health-care.html
-
-**ECB President Christine Lagarde on Why She’s Stepping Down Early**\
-`The president of the European Central Bank said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” in European elections.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-central-bank.html
 

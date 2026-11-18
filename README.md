@@ -2,7 +2,7 @@
 `Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
 https://www.nytimes.com/2026/11/18/climate/the-bill-thats-splitting-the-environmental-movement.html
 
-**Crime in American Cities May Never Have Been Lower. Why?**\
+**Crime in American Cities May Have Never Been Lower. Why?**\
 `Urban crime rates are near record lows.`\
 https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
 
@@ -74,7 +74,7 @@ https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-so
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
 
-**Fed Saw a Need to Continue Raising Rates, Despite Holding Steady in October**\
+**Fed Saw Need to Keep Raising Interest Rates Despite Holding Steady in October**\
 `Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
 https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
 

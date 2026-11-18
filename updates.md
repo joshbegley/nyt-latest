@@ -1,3 +1,27 @@
+**The Permitting Bill Is Splitting the Environmental Movement**\
+`Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
+https://www.nytimes.com/2026/11/18/climate/the-bill-thats-splitting-the-environmental-movement.html
+
+**Crime in American Cities May Never Have Been Lower. Why?**\
+`Urban crime rates are near record lows.`\
+https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
+
+**Thanksgiving Teaching Ideas**\
+`We have a bounty of ideas to choose from, each of which links to a free Times article, photo essay, video, quiz, podcast, map and more.`\
+https://www.nytimes.com/2026/11/18/learning/food-family-history-and-culture-thanksgiving-across-the-curriculum.html
+
+**Ground Stop Came as Duffy Pushed to Rapidly Upgrade Aviation Systems**\
+`Current and former officials say that Transportation Secretary Sean Duffy’s push to quickly finish modernization during President Trump’s second term could continue to disrupt air travel.`\
+https://www.nytimes.com/2026/11/18/us/sean-duffy-ground-stop-faa-trump.html
+
+**Watch: Canada’s Prime Minister on Negotiating With President Trump**\
+`He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
+https://www.nytimes.com/2026/11/18/podcasts/carney-canada-trade-deal-trump.html
+
+**New Members Get a Congress Crash Course With Grade School Vibes**\
+`Newly elected House members are attending freshman orientation on Capitol Hill, where their introduction to Congress feels a lot like the first days of school.`\
+https://www.nytimes.com/2026/11/18/us/politics/new-members-congress.html
+
 **When Americans Sing Together**\
 `While campaigning, Rob Sand, now Iowa’s governor-elect, invited audiences at his town halls to sing “America the Beautiful” together. On “The Ezra Klein Show,” Sand describes what this practice means to him.`\
 https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-together.html
