@@ -1,3 +1,7 @@
+**Grand Theft Auto: An American Icon, Born in Britain**\
+`The game franchise is a cultural juggernaut, played around the world as a violent, immersive ride through American cities. But the series originated in Scotland from a pop culture collage.`\
+https://www.nytimes.com/2026/11/18/world/europe/grand-theft-auto-america-scotland-global-reaction.html
+
 **Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
 `Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html

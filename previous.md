@@ -1,3 +1,7 @@
+**Grand Theft Auto: An American Icon, Born in Britain**\
+`The game franchise is a cultural juggernaut, played around the world as a violent, immersive ride through American cities. But the series originated in Scotland from a pop culture collage.`\
+https://www.nytimes.com/2026/11/18/world/europe/grand-theft-auto-america-scotland-global-reaction.html
+
 **Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
 `Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/mark-carney-canada-us-trade
 **Trump, Putin and Xi Will Meet in China, Each With a Different Agenda**\
 `In a historic meeting, President Trump is set to discuss denuclearization with President Xi Jinping of China and President Vladimir V. Putin of Russia. Our White House and national security correspondent, David Sanger, explains their conflicting interests on this topic, and why the meeting is symbolic for each of them, but for different reasons.`\
 https://www.nytimes.com/video/us/100000011283396/trump-putin-and-xi-will-meet-in-china-each-with-a-different-agenda.html
-
-**Senator Bill Cassidy Blocks Trump Pick to Head Science Agency**\
-`A venture capitalist and Peter Thiel acolyte, Jim O’Neill faced bipartisan concern over whether he would stand up for science.`\
-https://www.nytimes.com/2026/11/18/us/politics/bill-cassidy-jim-oneill-science.html
 
