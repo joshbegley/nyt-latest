@@ -1,3 +1,7 @@
+**Live Updates: Xi and Putin Meet Ahead of Trump’s Arrival in China**\
+`After flying to the city of Shenzhen from the Philippines, President Trump will attend an economic summit and meet with Xi Jinping of China and Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
 `A judge has ruled that Bill Essayli was acting “unlawfully” as U.S. attorney in Los Angeles. He is one of three prosecutors appointed by the Trump administration through a unique process.`\
 https://www.nytimes.com/2026/11/18/us/trump-administration-presses-ahead-in-legal-battle-over-us-attorneys.html

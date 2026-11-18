@@ -1,3 +1,7 @@
+**The Youth Movement We’ve All Been Waiting for Has Finally Arrived**\
+`Millennials are in the House. And the Senate. And the governor’s mansions.`\
+https://www.nytimes.com/2026/11/18/opinion/midterms-millennials-boomers-talarico.html
+
 **Live Updates: Xi and Putin Meet Ahead of Trump’s Arrival in China**\
 `After flying to the city of Shenzhen from the Philippines, President Trump will attend an economic summit and meet with Xi Jinping of China and Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/17/nyregion/columbia-college-walk-pathway-public
 **A.I. Helps Find Major Security Bug in Java, a Software Platform Vital to the Internet**\
 `The discovery by security company Calif shows A.I.’s ability to find gaping security holes in popular software. The Java flaw pointed to vulnerabilities in systems used by nearly all Fortune 500 companies.`\
 https://www.nytimes.com/2026/11/17/us/politics/ai-security-bug-java.html
-
-**Ask The Morning: Your Nvidia Questions**\
-`Do you have questions about the company? We’ll find answers.`\
-https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-questions.html
 
 **Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
