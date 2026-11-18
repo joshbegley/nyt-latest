@@ -1,3 +1,7 @@
+**30 Years Ago, Robert A.M. Stern Asked New York to Preserve These Modern Buildings**\
+`Two from the architect’s 1996 list of 35 have been demolished. Here’s what happened to the rest of the structures Stern sought to protect.`\
+https://www.nytimes.com/2026/11/18/arts/design/robert-am-stern-new-york-building-preservation.html
+
 **Cranberry Crème Brûlée**\
 `Not many desserts feel more “special occasion” than crème brûlée, especially when torched tableside. This cranberry-orange version brings all the flavor, flair and drama of the holidays.`\
 https://www.nytimes.com/video/dining/100000011288611/cranberry-creme-brulee.html
