@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/11/18/arts/television/late-night-michael-kosta-trum
 https://www.nytimes.com/2026/11/18/opinion/midterms-millennials-boomers-talarico.html
 
 **Live Updates: Xi Greets Trump as He Lands in China**\
-`The Chinese leader hugged President Trump on the tarmac as he arrived in Shenzhen, where he will attend an economic summit.`\
+`The Chinese leader hugged President Trump on the tarmac in Shenzhen. They are expected to hold a summit on Thursday with President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
 
 **Trump Administration Presses Ahead in Legal Battle Over U.S. Attorneys**\
