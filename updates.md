@@ -1,3 +1,7 @@
+**Inca Children Were Given Cocaine and Ayahuasca Before Being Sacrificed**\
+`A toxicological study of frozen mummies from the Andes sheds light on what happened before a sacred ritual of the Inca Empire.`\
+https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca-sacrifices.html
+
 **The Shadow of Yalta Hangs Over Trump’s Summit in China**\
 `A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
