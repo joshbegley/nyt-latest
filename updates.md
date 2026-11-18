@@ -1,3 +1,7 @@
+**Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
+`Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html
+
 **Our Favorite Fair Isle Sweaters**\
 `The traditional Scottish knitwear design is everywhere this fall. Here are a range of cozy new options.`\
 https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-knitwear.html

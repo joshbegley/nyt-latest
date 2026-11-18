@@ -1,3 +1,7 @@
+**Restaurant Review: Ngon Vietnamese Kitchen in New York**\
+`With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
+https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
+
 **Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
 `Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/business/dealbook/100000011293061/christine-lagard
 **‘Shocking’ Signs of Climate Change Add Urgency to COP31 Talks**\
 `From the Arctic to the tropics, unusual weather and extreme heat is sparking worry about how quickly humans are reshaping the Earth’s natural processes.`\
 https://www.nytimes.com/2026/11/18/climate/cop31-climate-global-warming.html
-
-**Anthropic Is Set to Finalize Pricing for Blockbuster I.P.O.**\
-`The A.I. company is expected to officially price its shares on Wednesday, and its stock will begin trading on Thursday.`\
-https://www.nytimes.com/2026/11/18/technology/anthropic-ipo-pricing.html
 
