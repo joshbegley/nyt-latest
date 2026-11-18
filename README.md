@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/11/17/briefing/ask-the-morning-your-nvidia-question
 `Anthropic’s prospectus for its blockbuster I.P.O. this week reads like dystopian science fiction.`\
 https://www.nytimes.com/2026/11/17/world/18int-theworld-anthropic-ukraine-nvidia.html
 
-**Live Updates: Nvidia Earnings and Forecasts Beat Expectations**\
+**Nvidia Earnings and Forecasts Beat Expectations**\
 `The earnings report covered a period before the resignation of its chief executive Jensen Huang. The board chair said there were no plans to bring back Mr. Huang, who earlier Tuesday said he would be open to returning.`\
 https://www.nytimes.com/live/2026/11/17/technology/nvidia-earnings-stock-price
 
