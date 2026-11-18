@@ -1,3 +1,7 @@
+**Inca Children Were Given Cocaine and Ayahuasca Before Being Sacrificed**\
+`A toxicological study of frozen mummies from the Andes sheds light on what happened before a sacred ritual of the Inca Empire.`\
+https://www.nytimes.com/2026/11/18/science/inca-children-drugs-cocaine-ayahuasca-sacrifices.html
+
 **The Shadow of Yalta Hangs Over Trump’s Summit in China**\
 `A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
 https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/world/asia/myanmar-rohingya-muslim-genocide-w
 **American A.I. Models Have Potential to Be Turned Against U.S., Study Finds**\
 `An investigation by the Government Accountability Office found that researchers were able to prod chatbots into generating data that could be used in planning or conducting mass-casualty attacks.`\
 https://www.nytimes.com/2026/11/18/us/politics/audit-ai-terrorist-attack-plans.html
-
-**The Greed of Youth Sports Has No Limits**\
-`Businesses are trying to sell us charter flights for travel teams. We need to stop the madness.`\
-https://www.nytimes.com/2026/11/18/opinion/greed-youth-sports.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

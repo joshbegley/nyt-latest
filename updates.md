@@ -1,3 +1,15 @@
+**The Shadow of Yalta Hangs Over Trump’s Summit in China**\
+`A 1945 meeting of Churchill, Stalin and Franklin Roosevelt set Europe’s course for decades. Here’s what happened.`\
+https://www.nytimes.com/2026/11/18/world/asia/trump-xi-putin-summit-yalta.html
+
+**Foot by Rocky Foot, New Hudson River Rail Tunnel Begins to Take Shape**\
+`As the long-awaited Gateway project proceeds, two boring machines have begun digging side-by-side through some of the earth’s hardest rock.`\
+https://www.nytimes.com/2026/11/18/nyregion/foot-by-rocky-foot-new-hudson-river-rail-tunnel-begins-to-take-shape.html
+
+**‘It’s Easier Said Than Done’: 3 Opinion Writers on How to Check Trump**\
+`Presidents usually have wide latitude on foreign policy. Will the next Congress change that?`\
+https://www.nytimes.com/2026/11/18/opinion/trump-iran-us-foreign-policy.html
+
 **DealBook Summit Live Updates: OpenAI Executives Speaking at Gathering of Business and Political Leaders**\
 `Sam Altman and Greg Brockman of OpenAI are onstage now with Andrew Ross Sorkin. Prime Minister Mark Carney of Canada, Elon Musk and Mayor Zohran Mamdani of New York are expected later.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
