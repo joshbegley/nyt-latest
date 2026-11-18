@@ -1,3 +1,15 @@
+**Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
+`Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
+https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html
+
+**Storm Brings Torrential Rain and Floods to the San Francisco Bay Area**\
+`A Microsoft conference was forced to evacuate people, and restaurants and other businesses closed up shop for the day.`\
+https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
+
+**Crime Rates in American Cities Have Never Been Lower. Why?**\
+`New York City is on track to be safer than Berlin, Barcelona and Madrid.`\
+https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
+
 **Florida’s El Niño Rains Bring Hail and High Water**\
 `Officials point to particularly strong El Niño conditions, a climate pattern that delivers wetter weather to parts of the southern United States, as Florida faces torrential rain.`\
 https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
