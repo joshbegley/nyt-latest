@@ -1,3 +1,7 @@
+**N.Y.C. Bus Fare Inspectors Could Be Fired Over Altercations With Riders**\
+`After halting the work of a unit that tickets fare evaders, M.T.A. officials now seek to fire nine of its members.`\
+https://www.nytimes.com/2026/11/18/nyregion/mta-fare-enforcement-firing.html
+
 **Watch: Zohran Mamdani on Finding Common Ground With Trump**\
 `The mayor of New York also stood by his positions on Israel and Gaza. “I have a politics of universality,” he said in a wide-ranging interview at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-common-ground-with-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-so
 **Grand Theft Auto VI Enters the Gaming Pantheon With Rapturous Reviews**\
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
-
-**Fed Saw Need to Keep Raising Interest Rates Despite Holding Steady in October**\
-`Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
-https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
 

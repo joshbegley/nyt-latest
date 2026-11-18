@@ -1,3 +1,15 @@
+**Watch: Zohran Mamdani on Finding Common Ground With Trump**\
+`The mayor of New York also stood by his positions on Israel and Gaza. “I have a politics of universality,” he said in a wide-ranging interview at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-common-ground-with-trump.html
+
+**Trump Weighs New Strikes on Iran as Israel Presses for Action, Officials Say**\
+`Warnings that Iran is rebuilding its missile stockpile and advancing biological and chemical programs have divided the Trump administration.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
+
+**Watch: Can Zohran Mamdani Fix the Cost of Living in New York City?**\
+`Mayor Zohran Mamdani of New York City speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
+https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
+
 **Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
 `In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
 https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
