@@ -1,3 +1,7 @@
+**Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
+`While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
+
 **Seta Manoukian, a Painter and Buddhist Nun, Tells Her Story**\
 `Seta Manoukian says there is no separation between her art and her spiritual practice.`\
 https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/christine-lagarde-european-
 **The Word of the Year**\
 `Cambridge Dictionary’s choice says a lot.`\
 https://www.nytimes.com/2026/11/18/briefing/the-word-of-the-year.html
-
-**N.I.H. Will Move Final Group of Retired Research Chimps to Sanctuary**\
-`The National Institutes of Health, which stopped supporting invasive research on chimpanzees in 2015, previously said the animals were too old and frail to move.`\
-https://www.nytimes.com/2026/11/18/science/nih-chimpanzees-sanctuary.html
 
