@@ -1,3 +1,11 @@
+**Economic and Political Uncertainty Will Be Focus of DealBook Summit**\
+`The 2026 summit comes amid concerns about the sustainability of the A.I. rally and a midterm election that reset the balance of power in Washington.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-what-to-watch.html
+
+**Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
+`China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
+
 **Carney and Trump Hold Unscheduled Trade Meeting at Asia Summit**\
 `The bilateral meeting between the neighbors follows trade gains for Canada’s prime minister this week with China and the Philippines.`\
 https://www.nytimes.com/2026/11/18/world/canada/trump-carney-meeting-asia-us-canada-trade.html
