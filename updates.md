@@ -1,3 +1,27 @@
+**Our Favorite Fair Isle Sweaters**\
+`The traditional Scottish knitwear design is everywhere this fall. Here are a range of cozy new options.`\
+https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-knitwear.html
+
+**Film Club: ‘Prison and Time’**\
+`What can the reflections of Marvin Wade, who was incarcerated for 25 years, teach us about befriending time?`\
+https://www.nytimes.com/2026/11/18/learning/film-club-prison-and-time.html
+
+**Watch: David Ellison on Elon Musk’s Investment in Skydance**\
+`The C.E.O. of the media giant confirmed that the SpaceX founder had invested in the company formed by the $110 billion merger with Warner Bros. Discovery.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-elon-musk-skydance-investment.html
+
+**Watch: Canada’s Prime Minister on Negotiating With President Trump**\
+`He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/carney-canada-trade-deal-trump.html
+
+**Robert Pattinson Will Make James Bond an Antihero**\
+`He’s well positioned to reinvent the role.`\
+https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
+
+**Watch: OpenAI’s Top Executives Talk Rogue Agents and A.I. Security**\
+`In an interview at the DealBook Summit, the co-founders Sam Altman and Greg Brockman discussed how to strike a balance between safety and risk.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
+
 **Undoing Brexit**\
 `Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
 https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html

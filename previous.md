@@ -1,3 +1,11 @@
+**Our Favorite Fair Isle Sweaters**\
+`The traditional Scottish knitwear design is everywhere this fall. Here are a range of cozy new options.`\
+https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-knitwear.html
+
+**Film Club: ‘Prison and Time’**\
+`What can the reflections of Marvin Wade, who was incarcerated for 25 years, teach us about befriending time?`\
+https://www.nytimes.com/2026/11/18/learning/film-club-prison-and-time.html
+
 **Undoing Brexit**\
 `Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
 https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html
@@ -16,7 +24,7 @@ https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader
 
 **Watch: David Ellison on Elon Musk’s Investment in Skydance**\
 `The C.E.O. of the media giant confirmed that the SpaceX founder had invested in the company formed by the $110 billion merger with Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/11/18/podcasts/david-ellison-elon-musk-skydance-investment.html
+https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-elon-musk-skydance-investment.html
 
 **The Permitting Bill Is Splitting the Environmental Movement**\
 `Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
@@ -36,7 +44,7 @@ https://www.nytimes.com/2026/11/18/us/sean-duffy-ground-stop-faa-trump.html
 
 **Watch: Canada’s Prime Minister on Negotiating With President Trump**\
 `He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
-https://www.nytimes.com/2026/11/18/podcasts/carney-canada-trade-deal-trump.html
+https://www.nytimes.com/2026/11/18/business/dealbook/carney-canada-trade-deal-trump.html
 
 **New Members Get a Congress Crash Course With Grade School Vibes**\
 `Newly elected House members are attending freshman orientation on Capitol Hill, where their introduction to Congress feels a lot like the first days of school.`\
@@ -135,12 +143,12 @@ https://www.nytimes.com/2026/11/18/us/politics/trump-xi-shenzhen-spy-scandal.htm
 https://www.nytimes.com/video/us/100000011293275/deal-book-ellison-musk.html
 
 **Robert Pattinson Will Make James Bond an Antihero**\
-`He’s well positioned to reinvent the role of Bond into a full-blown antihero.`\
+`He’s well positioned to reinvent the role.`\
 https://www.nytimes.com/2026/11/18/opinion/robert-pattinson-james-bond.html
 
 **Watch: OpenAI’s Top Executives Talk Rogue Agents and A.I. Security**\
 `In an interview at the DealBook Summit, the co-founders Sam Altman and Greg Brockman discussed how to strike a balance between safety and risk.`\
-https://www.nytimes.com/2026/11/18/podcasts/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-openais-top-executives-talk-rogue-agents-and-ai-security.html
 
 **Sam Altman Talks About Not Taking Equity in OpenAI**\
 `The C.E.O of OpenAI, Sam Altman, discusses whether he regrets not taking an equity stake in the company during an interview at the DealBook summit with Andrew Ross Sorkin, editor at large.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/technology/anthropic-ipo-pricing.html
 **What Teenagers Are Saying About the Midterm Elections**\
 `Students react to the “blue tsunami,” analyze the inner-workings of a divided government, and reflect on what this moment means for their generation’s future.`\
 https://www.nytimes.com/2026/11/18/learning/what-teenagers-are-saying-about-the-midterm-elections.html
-
-**OpenAI Executives Say They Have to Strike a Balance Between A.I. Safety and Progress**\
-`The company’s C.E.O., Sam Altman, and president, Greg Brockman, said they cannot “make everybody happy.”`\
-https://www.nytimes.com/2026/11/18/business/dealbook/openai-sam-altman-greg-brockman.html
-
-**Should I Tell a Judge That My Son-in-Law Is a Better Parent Than My Daughter?**\
-`I strongly believe that, in the children’s best interests, the parents should share custody equally.`\
-https://www.nytimes.com/2026/11/18/magazine/judge-custody-daughter-ethics.html
 
