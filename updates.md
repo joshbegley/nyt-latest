@@ -1,3 +1,7 @@
+**Florida’s El Niño Rains Bring Hail and High Water**\
+`Officials point to particularly strong El Niño conditions, a climate pattern that delivers wetter weather to parts of the southern United States, as Florida faces torrential rain.`\
+https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
+
 **Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
 `The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
 https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html

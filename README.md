@@ -1,3 +1,7 @@
+**Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
+`Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
+https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html
+
 **Florida’s El Niño Rains Bring Hail and High Water**\
 `Officials point to particularly strong El Niño conditions, a climate pattern that delivers wetter weather to parts of the southern United States, as Florida faces torrential rain.`\
 https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.h
 `A Glossary of AI Terms You Should Know`\
 https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html
 
-**Torrential Rain Swamps the San Francisco Bay Area**\
+**Storm Brings Torrential Rain and Floods to the San Francisco Bay Area**\
 `A Microsoft conference was forced to evacuate people, and restaurants and other businesses closed up shop for the day.`\
 https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
 
@@ -54,8 +58,8 @@ https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-elon-musk-sky
 `Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
 https://www.nytimes.com/2026/11/18/climate/permitting-bill-baaja-environmentalists-energy.html
 
-**Crime in American Cities May Have Never Been Lower. Why?**\
-`Urban crime rates are near record lows.`\
+**Crime Rates in American Cities Have Never Been Lower. Why?**\
+`New York City is on track to be safer than Berlin, Barcelona and Madrid.`\
 https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
 
 **Thanksgiving Teaching Ideas**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/100000011283396/trump-putin-and-xi-will-meet-in
 **Senator Bill Cassidy Blocks Trump Pick to Head Science Agency**\
 `A venture capitalist and Peter Thiel acolyte, Jim O’Neill faced bipartisan concern over whether he would stand up for science.`\
 https://www.nytimes.com/2026/11/18/us/politics/bill-cassidy-jim-oneill-science.html
-
-**Carney Talks Trade Negotiations Amid Tense Relationship with Trump**\
-`Prime Minister Mark Carney of Canada talked about his country’s tense relationship with the United States at the New York Time’s DealBook summit on Wednesday.`\
-https://www.nytimes.com/video/world/canada/100000011292979/carney-canada-bookdeal-trump.html
 
