@@ -190,10 +190,6 @@ https://www.nytimes.com/2026/11/18/movies/the-host-screening-ifc-center-restorat
 `The horses are hand-carved. The rides are free. But if the carousels can’t keep spinning, will the greater Binghamton area of New York maintain its reputation?`\
 https://www.nytimes.com/2026/11/18/nyregion/-carousel-capital-binghamton-new-york.html
 
-**Fans Flock to This Famous Sign. Neighbors Say, Get Off My Road.**\
-`The residents of the Hollywood Hills have sued Los Angeles, saying the city has not done enough to address the dangerous conditions created by tourists vying for a glimpse of the iconic Hollywood sign.`\
-https://www.nytimes.com/2026/11/18/us/hollywood-sign-lawsuit.html
-
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
