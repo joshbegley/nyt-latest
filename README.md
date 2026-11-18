@@ -142,7 +142,7 @@ https://www.nytimes.com/2026/11/18/opinion/press-freedom-journalists.html
 `A memorable Léa Seydoux anchors this deeply unsettling drama about a young mother confronted by her husband’s unspeakable secret.`\
 https://www.nytimes.com/2026/11/18/movies/gentle-monster-review.html
 
-**That ‘S.N.L.’ Sketch About Sister? It’s More Like Nonfiction.**\
+**That ‘SNL’ Sister Sketch: It’s More Like Nonfiction**\
 `“Saturday Night Live” exposed a truth about gender roles in caring for aging parents: While many nations have a federal safety net for older adults, the U.S. has sisters.`\
 https://www.nytimes.com/2026/11/18/upshot/sister-snl-elder-care.html
 
