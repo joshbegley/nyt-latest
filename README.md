@@ -46,7 +46,7 @@ https://www.nytimes.com/video/business/dealbook/100000011293336/hailey-bieber-so
 `It is the first game to receive an aggregated score of 99 on Metacritic since 1998’s The Legend of Zelda: Ocarina of Time.`\
 https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-reviews-metacritic-ocarina-of-time.html
 
-**Fed Saw Need to Continue Raising Rates Despite October Skip**\
+**Fed Saw Need to Keep Raising Rates Despite Holding Steady in October**\
 `Minutes from the Federal Reserve’s most recent gathering underscored that taming inflation remained officials’ top priority.`\
 https://www.nytimes.com/2026/11/18/business/federal-reserve-rate-increase-october-meeting.html
 

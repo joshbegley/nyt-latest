@@ -1,3 +1,7 @@
+**Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
+`While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
+https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
+
 **Jeff Bezos Says He Helped Pick Robert Pattinson as the New James Bond**\
 `The founder of Amazon said he was “heavily involved” in the casting process, which concluded just days ago.`\
 https://www.nytimes.com/2026/11/18/movies/jeff-bezos-pick-robert-pattinson-james-bond.html
