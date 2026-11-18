@@ -1,3 +1,27 @@
+**Grand Theft Auto VI Review: It Will Steal Your Heart**\
+`The series matures beyond its memorable car crashes and stickups with a game about love, relationships and nurturing your partner.`\
+https://www.nytimes.com/2026/11/18/arts/grand-theft-auto-vi-review.html
+
+**NYT Connections Answers for November 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday. Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/connections-companion-1257.html
+
+**Tech Outages Rattle the U.S., and Democrats Win Alaska’s Senate Race**\
+`Plus, the new video game set to bring in billions.`\
+https://www.nytimes.com/2026/11/18/podcasts/the-headlines/tech-outages-alaska-senate-race.html
+
+**How Stable Is the A.I. Industry? We’re About to Find Out.**\
+`Anthropic is a barometer of the economy at a volatile time. Its initial public offering will have widespread implications.`\
+https://www.nytimes.com/2026/11/18/podcasts/the-daily/anthropic-ipo-ai-industry.html
+
+**Today’s Wordle Hints for November 19. 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/wordle-review-1979.html
+
+**NYT Strands Hints for November 19, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/18/crosswords/strands-sidekick-991.html
+
 **In a Rare Move, Xi Greets Trump as He Lands in China**\
 `The appearance was the first time Xi Jinping had personally received a foreign dignitary at an airport during more than a decade as China’s leader.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-china-arrival.html
