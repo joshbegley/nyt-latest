@@ -1,3 +1,7 @@
+**Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
+`The Colombian president said his nation would not allow Americans forces to take part in anti-cartel operations on its soil.`\
+https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
+
 **Who Do Senate Democrats Support for Majority Leader?**\
 `The New York Times is tracking how senators and senators-elect might vote in the Dec. 1 election for majority leader.`\
 https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader-endorsements.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/11/18/podcasts/david-ellison-elon-musk-skydance-inv
 
 **The Permitting Bill Is Splitting the Environmental Movement**\
 `Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
-https://www.nytimes.com/2026/11/18/climate/the-bill-thats-splitting-the-environmental-movement.html
+https://www.nytimes.com/2026/11/18/climate/permitting-bill-baaja-environmentalists-energy.html
 
 **Crime in American Cities May Have Never Been Lower. Why?**\
 `Urban crime rates are near record lows.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-opera
 **Trump Grows Frustrated With Vance Over Iran War Critique**\
 `The tension comes at a critical juncture for the vice president, who is considering whether to run for president in 2028.`\
 https://www.nytimes.com/2026/11/18/us/politics/vance-trump-iran-2028-election-rubio.html
-
-**Dave DeWitt Has Died. He Was the Patron Saint of Fiery Foods.**\
-`Known as the Pope of Peppers, he founded a magazine and then a trade show promoting a new category of food that could “peel the paint off a Pontiac.”`\
-https://www.nytimes.com/2026/11/18/dining/dave-dewitt-dead.html
 

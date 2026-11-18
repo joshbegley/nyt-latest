@@ -1,3 +1,11 @@
+**Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
+`The Colombian president said his nation would not allow Americans forces to take part in anti-cartel operations on its soil.`\
+https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
+
+**The Permitting Bill Is Splitting the Environmental Movement**\
+`Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
+https://www.nytimes.com/2026/11/18/climate/permitting-bill-baaja-environmentalists-energy.html
+
 **Who Do Senate Democrats Support for Majority Leader?**\
 `The New York Times is tracking how senators and senators-elect might vote in the Dec. 1 election for majority leader.`\
 https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader-endorsements.html
