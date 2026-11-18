@@ -1,3 +1,31 @@
+**2 Men Used Ponzi Scheme to Steal Over $600 Million, U.S. Says**\
+`The Indiana investment fund Backward Hat Capital, founded by Phillip Williams and Devin Johnson, reported monthly returns that were “largely illusory,” prosecutors said.`\
+https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.html
+
+**Watch: Executives Discuss the Line Between Prediction Markets and Gambling**\
+`In an interview with Andrew Ross Sorkin at the DealBook Summit, Shayne Coplan, the founder of Polymarket, Vlad Tenev of Robinhood and Adena Friedman, the president and C.E.O. of Nasdaq speak about the future of the prediction market industry.`\
+https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polymarket-nasdaq-prediction-market-dealbook.html
+
+**Watch: Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
+`Palmer Luckey, founder of the defense contractor Anduril Industries, speaks with Andrew Ross Sorkin at the DealBook summit on A.I. development and the war in Iran.`\
+https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-dealbook-ai-politics.html
+
+**Watch: Hailey Bieber on Why She Decided to Sell Rhode**\
+`Hailey Bieber joins Andrew Ross Sorkin at the DealBook summit to talk about her beauty brand, Rhode, and her relationship with social media.`\
+https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rhode-dealbook-beauty.html
+
+**Watch: Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
+`The Microsoft chief executive Satya Nadella speaks with Andrew Ross Sorkin at the DealBook Summit about the future of A.I. and recent tech outages.`\
+https://www.nytimes.com/video/business/dealbook/100000011290885/satya-nadella-microsoft-dealbook-outages.html
+
+**How We Broke Open the Nvidia Investigation**\
+`A global reporting effort by The New York Times included many twists and turns, from surprising photos and shipment records to a big break through astonishing tips from sources.`\
+https://www.nytimes.com/2026/11/18/insider/nvidia-jensen-huang-spying-plot.html
+
+**Uncontacted Awá of Brazil Emerge From Rainforest Seeking Food**\
+`A group of 20 people emerged from the forest and asked for food, an Indigenous peoples’ rights group said, raising fears that environmental degradation had left them with no choice but to reach out.`\
+https://www.nytimes.com/2026/11/18/world/americas/brazil-amazon-indigenous-contact.html
+
 **Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
 `In less than a week, the painting went from top lot to top liability — and back again. On Wednesday it set a record for the artist.`\
 https://www.nytimes.com/2026/11/18/arts/design/van-gogh-painting-auction-sothebys.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.h
 **An Incubator for Arts in Abu Dhabi Quietly Supports New Talent**\
 `As the arts scene in the U.A.E. continues to expand, the 421 Arts Campus provides space, time and funding to help artists develop their visions and skills.`\
 https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-421-arts.html
-
-**Watch: Does Canada Still Want a Trade Deal With the U.S.? Mark Carney Responds.**\
-`Prime Minister Mark Carney of Canada speaks with Andrew Ross Sorkin at the DealBook summit from China about trade negotiations and the future of a tariffs deal with the U.S.`\
-https://www.nytimes.com/video/business/dealbook/100000011289878/mark-carney-canada-trade-deal.html
-
-**Watch: David Ellison Confirms Elon Musk’s Investment in Skydance**\
-`The chairman and C.E.O. of Skydance David Ellison speaks with Andrew Ross Sorkin at the DealBook summit about the future of Skydance and Elon Musk’s $1 billion investment in the company.`\
-https://www.nytimes.com/video/business/dealbook/100000011290586/david-ellison-skydance-musk-investment.html
-
-**The Local: Stressed? Try dirt.**\
-`Also, Kirill and Kirk get offensive.`\
-https://www.nytimes.com/2026/11/18/briefing/garden-fairy.html
-
-**In Abu Dhabi, Finding a Sense of Place Through Public Art**\
-`A collection of 22 art installations for a biennial strives to explore the meaning of home and history for residents of the emirate.`\
-https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-biennial.html
-
-**Julio Iglesias Is Under Criminal Investigation for Sexual Offenses**\
-`A judge said Spain could investigate accusations of crimes said to have occurred in the Bahamas and the Dominican Republic. The singer has previously denied the allegations.`\
-https://www.nytimes.com/2026/11/18/arts/music/julio-iglesias-spain-sexual-offenses.html
-
-**David Ellison on Editorial Independence at CBS News and CNN**\
-`David Ellison, the chief executive of Skydance, promised at The New York Times’s DealBook summit on Wednesday to defend the independence of CBS News and CNN, saying that the goal is to let “the audience decide what is right for them.”`\
-https://www.nytimes.com/video/us/100000011293357/ellison-skydance-cnn-cbs-dealbook.html
-
-**Hailey Bieber Says Social Media Fueled Rhode but Took a Toll on Her Mental Health**\
-`Mrs. Bieber, who sold her beauty brand Rhode last year, said she had felt insecure and depressed in the past by online comments.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/hailey-bieber-rhode-social-media.html
 
