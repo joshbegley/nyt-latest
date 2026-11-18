@@ -1,3 +1,7 @@
+**White House Withdraws Nomination of Heidi Overton to Be F.D.A. Commissioner**\
+`The Senate health committee was scheduled to vote on her nomination Wednesday morning, but it became increasingly clear that she did not have enough support.`\
+https://www.nytimes.com/2026/11/17/us/overton-fda-nomination-withdrawn.html
+
 **National Book Award Finalist May Be Ineligible for the Prize**\
 `The writer Abdelrahman ElGendy was blocked from visiting the United States to attend this year’s National Book Awards ceremony. Though his memoir is a finalist for the nonfiction award, it appears not to qualify.`\
 https://www.nytimes.com/2026/11/17/world/americas/national-book-award-nonfiction-elgendy-eligibility.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/video/dining/100000011288564/sticky-apple-and-miso-spira
 **Ukraine Talks Run Up Against Deep Enmity Between Russia and Europe**\
 `President Trump’s envoys are trying to overcome Russian hostility and European suspicion to craft a postwar security agreement in Europe that could end the war in Ukraine.`\
 https://www.nytimes.com/2026/11/17/us/politics/ukraine-russia-europe-trump.html
-
-**A.I.’s People-Pleasing Problem**\
-`A new report found that popular chatbots often abandon scientific facts to affirm users’ beliefs.`\
-https://www.nytimes.com/2026/11/17/climate/climate-chatbots-people-pleasers.html
 
