@@ -1,3 +1,7 @@
+**The Youth Movement We’ve All Been Waiting for Has Finally Arrived**\
+`Millennials are in the House. And the Senate. And the governor’s mansions.`\
+https://www.nytimes.com/2026/11/18/opinion/midterms-millennials-boomers-talarico.html
+
 **Live Updates: Xi and Putin Meet Ahead of Trump’s Arrival in China**\
 `After flying to the city of Shenzhen from the Philippines, President Trump will attend an economic summit and meet with Xi Jinping of China and Vladimir V. Putin of Russia.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec
