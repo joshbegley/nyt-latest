@@ -1,3 +1,11 @@
+**Gen Z: Tell Us Your Political Hopes**\
+`Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
+https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
+
+**DealBook Summit Live Updates: Political Figures and Business Executives Are Set for a Day of Interviews**\
+`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
+https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
+
 **Iran Fires Missiles and Drones at Gulf Arab States as Peace Talks Falter**\
 `Kuwait and Bahrain said they were targeted on Wednesday, a sign of how the Middle East is stuck in limbo between peace and full-blown war.`\
 https://www.nytimes.com/2026/11/18/world/middleeast/iran-attacks-bahrain-kuwait-ships-hormuz.html

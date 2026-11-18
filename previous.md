@@ -1,3 +1,7 @@
+**Gen Z: Tell Us Your Political Hopes**\
+`Young people are protesting for a better world in countries across the globe. Let’s talk about it.`\
+https://www.nytimes.com/2026/11/18/world/europe/gen-z-protests-politics-what-do-you-want.html
+
 **Iran Fires Missiles and Drones at Gulf Arab States as Peace Talks Falter**\
 `Kuwait and Bahrain said they were targeted on Wednesday, a sign of how the Middle East is stuck in limbo between peace and full-blown war.`\
 https://www.nytimes.com/2026/11/18/world/middleeast/iran-attacks-bahrain-kuwait-ships-hormuz.html
@@ -99,7 +103,7 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
 **DealBook Summit Live Updates: Political Figures and Business Executives Are Set for a Day of Interviews**\
-`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Vice President JD Vance, Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York.`\
+`Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
 **After 49 Years, Voyager 1 Is a Mind-Blowing One Light-Day From Earth**\
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/18/arts/television/lord-of-the-rings-the-rings-o
 **‘The Host’: Attack of the Giant Tadpole From Hell**\
 `Bong Joon Ho’s horror comedy celebrates its 20th anniversary with a 4K restoration, opening Friday at the IFC Center.`\
 https://www.nytimes.com/2026/11/18/movies/the-host-screening-ifc-center-restoration.html
-
-**Can the Country’s ‘Carousel Capital’ Keep Its Merry Going ’Round?**\
-`The horses are hand-carved. The rides are free. But if the carousels can’t keep spinning, will the greater Binghamton area of New York maintain its reputation?`\
-https://www.nytimes.com/2026/11/18/nyregion/-carousel-capital-binghamton-new-york.html
 
 **Live Updates: Trump, Xi and Putin Shake Hands as Leaders Gather in China**\
 `China’s leader, Xi Jinping, earlier hugged President Trump on the tarmac as he arrived for a regional summit in Shenzhen. They are expected to hold a trilateral meeting on Thursday with President Vladimir V. Putin of Russia.`\

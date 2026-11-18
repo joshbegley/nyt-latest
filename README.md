@@ -102,7 +102,7 @@ https://www.nytimes.com/2026/11/18/world/asia/putin-taiwan-japan-korea-vietnam-b
 `Andrew Ross Sorkin will interview some of the most powerful people from Washington, Silicon Valley and Wall Street.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-2026-speaker-lineup.html
 
-**DealBook Summit Live Updates: Political Figures and Business Executives Are Set for a Day of Interviews**\
+**DealBook Summit Live Updates: Leader of European Central Bank Kicks Off Gathering of Business and Political Leaders**\
 `Andrew Ross Sorkin will speak with more than a dozen prominent figures from the worlds of business and politics, including Elon Musk, Sam Altman of OpenAI and Mayor Zohran Mamdani of New York. Vice President JD Vance will not appear as scheduled.`\
 https://www.nytimes.com/live/2026/11/18/business/dealbook-summit-news
 
