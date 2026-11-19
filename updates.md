@@ -1,3 +1,7 @@
+**After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
+`South Korea is sending emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
+https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
+
 **At Gloria Steinem Memorial, Michelle Obama, Hillary Clinton and More Big Names Gather**\
 `Former Secretary of State Hillary Clinton and other luminaries spoke at the event, which also featured performances by Cynthia Erivo and Kathy Sledge.`\
 https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-photos.html
