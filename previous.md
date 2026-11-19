@@ -1,3 +1,15 @@
+**What to Know About Anthropic’s Public Debut**\
+`Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
+https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
+
+**Has the Red Carpet Become a Parody?**\
+`Method dressing reaches its zenith in the new “Hunger Games.”`\
+https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
+
+**Senator Warns Congress to Secure Data From Intrusion by Trump Administration**\
+`Gaps in protections for lawmaker communications loom larger as the administration amplifies its threats to criminally investigate Democrats for aggressive oversight efforts.`\
+https://www.nytimes.com/2026/11/19/us/congress-phone-email-data-doj-wyden.html
+
 **Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
 `The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
 https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
@@ -74,13 +86,13 @@ https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-u
 `The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after a record-setting offering that valued the company at roughly $1.5 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
-**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
-`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
-https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
-
 **Inside a Rohingya Camp After a Genocide Ruling**\
 `On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
 https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
@@ -149,14 +161,6 @@ https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.
 **The Disappearing Iranian Meal**\
 `Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
 https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
-
-**Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
-`The director sounds off on the American “train wreck.”`\
-https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html
-
-**A Data Center Was Coming. The Town Had a Message: Stay Out.**\
-`The battle over artificial intelligence is unfolding in rural communities, which are deciding whether to embrace resource-hungry computer farms.`\
-https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

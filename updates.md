@@ -1,3 +1,15 @@
+**What to Know About Anthropic’s Public Debut**\
+`Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
+https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
+
+**Has the Red Carpet Become a Parody?**\
+`Method dressing reaches its zenith in the new “Hunger Games.”`\
+https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
+
+**Senator Warns Congress to Secure Data From Intrusion by Trump Administration**\
+`Gaps in protections for lawmaker communications loom larger as the administration amplifies its threats to criminally investigate Democrats for aggressive oversight efforts.`\
+https://www.nytimes.com/2026/11/19/us/congress-phone-email-data-doj-wyden.html
+
 **Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
 `The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
 https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
