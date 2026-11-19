@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
 https://www.nytimes.com/2026/11/19/pageoneplus/quote-of-the-day-hi-help-desk-tech-systems-seem-broken.html
 
 **Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
-`Prime Minister Benjamin Netanyahu of Israel had claimed the detention of three opposition activists from an Arab-led party was evidence of vote rigging. His chief of staff has admitted being involved with the initial outreach to police.`\
+`After a historic result for Israel’s Arab-led parties, Prime Minister Benjamin Netanyahu said the vote was rigged, pointing to the detention of three opposition activists. His chief of staff has admitted being involved with the initial outreach to police.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
 
 **A Village Burned, Its People Killed or Exiled. Was It Genocide?**\
@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 `In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
-**Live Updates: Trump, Xi and Putin to Meet for Their First Summit**\
+**Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
 `It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 

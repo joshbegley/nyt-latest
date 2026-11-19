@@ -1,3 +1,11 @@
+**Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
+`After a historic result for Israel’s Arab-led parties, Prime Minister Benjamin Netanyahu said the vote was rigged, pointing to the detention of three opposition activists. His chief of staff has admitted being involved with the initial outreach to police.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
+
+**Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
+`It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: Trump, Xi and Putin to Meet for Their First Summit**\
 `It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec

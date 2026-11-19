@@ -1,3 +1,7 @@
+**Live Updates: U.N. Court to Rule in Rohingya Genocide Case**\
+`The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **NYT Spelling Bee Answers for November 19, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
 **Satya Nadella Explains How A.I. May Cause Future Outages**\
 `Satya Nadella, the C.E.O. of Microsoft, said that the rate at which software bugs are discovered and patched could increase the likelihood of future global software outages.`\
 https://www.nytimes.com/video/business/dealbook/100000011293468/microsoft-satya-nadella-ai-outages.html
-
-**Why the European Central Bank President Stepped Down**\
-`In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
-https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html
-
-**A.I. Makes More Tech Outages Likely, Microsoft’s Chief Warns**\
-`Satya Nadella said that A.I. tools were finding cybersecurity bugs at a breakneck pace, and that companies were having to create fixes and deploy them “instantaneously.”`\
-https://www.nytimes.com/2026/11/18/business/dealbook/microsoft-satya-nadella-outages-ai.html
 
