@@ -1,3 +1,15 @@
+**‘I’m Not MAGA’: Musk Distances Himself From G.O.P. After Midterms**\
+`Elon Musk, chief executive of Starlink and Tesla, said during the DealBook Summit on Wednesday that he felt “foolish” for his large political donations to Republicans.`\
+https://www.nytimes.com/video/admin/100000011294539/musk-midterms-republican-maga.html
+
+**Elon Musk Plays Down G.O.P. Support After Midterm Loss**\
+`The C.E.O. of SpaceX, who spent millions to back Republican candidates, sought to portray himself as a political moderate.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
+
+**Watch: Christine Lagarde Wants to Fight Fake News**\
+`In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
+
 **Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
 `The summit between the three leaders is taking place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
@@ -18,7 +30,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/adena-friedman-vlad-tenev-s
 `Alibaba, the Chinese internet giant behind the company at the center of the Nvidia spy saga, has used its A.I. computing technology to aid a lab with links to China’s military.`\
 https://www.nytimes.com/2026/11/18/technology/nvidia-alibaba-china-military.html
 
-**How Anthropic Stacks Up With the Biggest Tech I.P.O.s Since the ’80s**\
+**How Anthropic’s I.P.O. Valuation Stacks Up With the Biggest Tech Debuts Since the ’80s**\
 `Anthropic’s initial public offering valued the A.I. company at $1.5 trillion on Wednesday, the latest in a wave of humongous tech I.P.O.s.`\
 https://www.nytimes.com/interactive/2026/11/18/technology/anthropic-ipo-compared.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
 **Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
 `The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
 https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html
-
-**A.I. Has Changed How We Talk. Here Are the Words You Need to Know.**\
-`A Glossary of AI Terms You Should Know`\
-https://www.nytimes.com/2026/11/18/science/ai-artificial-intelligence-terminology-glossary.html
-
-**Storm Brings Torrential Rain and Floods to the San Francisco Bay Area**\
-`A Microsoft conference was forced to evacuate people, and restaurants and other businesses closed up shop for the day.`\
-https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
-
-**Restaurant Review: Ngon Vietnamese Kitchen in New York**\
-`With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
-https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
 
