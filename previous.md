@@ -1,3 +1,7 @@
+**Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
+`The ruling by the International Court of Justice deal with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
+https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
+
 **Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
 `Anthropic shares rose in their first day of trading, while both the S&P 500 and Nasdaq indexes fell. There are a few factors at play.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-stock-market.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joi
 **In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
 `People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
 https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
-
-**An Anti-A.I. Campus Movement**\
-`We look at a growing hesitation on campus.`\
-https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\

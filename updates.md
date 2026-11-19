@@ -1,3 +1,7 @@
+**Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
+`The ruling by the International Court of Justice deal with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
+https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
+
 **Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
 `Anthropic shares rose in their first day of trading, while both the S&P 500 and Nasdaq indexes fell. There are a few factors at play.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-stock-market.html
