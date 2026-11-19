@@ -1,3 +1,31 @@
+**After Train Crash, Spain Asks if High-Speed Rail Grew Too Fast**\
+`As an election nears, a railway disaster in Spain has set off debate over whether maintenance of its infrastructure kept pace with its booming population.`\
+https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
+
+**Quote of the Day: Hi, Help Desk, Tech Systems Seem Broken**\
+`Quotation of the Day for Thursday, November 19, 2026.`\
+https://www.nytimes.com/2026/11/19/pageoneplus/quote-of-the-day-hi-help-desk-tech-systems-seem-broken.html
+
+**Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
+`Prime Minister Benjamin Netanyahu of Israel had claimed the detention of three opposition activists from an Arab-led party was evidence of vote rigging. His chief of staff has admitted being involved with the initial outreach to police.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
+
+**A Village Burned, Its People Killed or Exiled. Was It Genocide?**\
+`Zammona’s erasure was part of a wider campaign of violence against Rohingya Muslims. An international court will rule whether Myanmar is culpable for the atrocities.`\
+https://www.nytimes.com/2026/11/19/world/asia/myanmar-rohingya-village-refugee-genocide.html
+
+**Have High Gas Prices Made You Change How You Drive? Tell Us About It.**\
+`Are you driving less? Car pooling? Using a different vehicle? Tell us how the 2026 energy shock has affected you.`\
+https://www.nytimes.com/2026/11/19/business/energy-environment/gas-prices-iran-war-driving-callout.html
+
+**How the War in Iran Will Remake the Global Energy Order**\
+`The International Energy Agency, in its most comprehensive analysis of the war’s fallout, found the oil shock could accelerate adoption of alternative power sources.`\
+https://www.nytimes.com/2026/11/19/business/cop31-energy-iea.html
+
+**From the Front Page: Lincoln Delivers the Gettysburg Address on Nov. 19, 1863**\
+`The president spoke at the dedication of the Soldiers’ National Cemetery near the Civil War battlefield in Pennsylvania.`\
+https://www.nytimes.com/2026/11/19/learning/from-the-front-page-lincoln-delivers-the-gettysburg-address-on-nov-19-1863.html
+
 **How to Decode the Xi-Trump Hug**\
 `The welcome China’s leader, Xi Jinping, offered President Trump appeared to reflect a desire for a measure of stability at a time of growing disagreements.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-hug-shenzhen.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rh
 **Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
 `The Microsoft chief executive Satya Nadella speaks with Andrew Ross Sorkin at the DealBook Summit about the future of A.I. and recent tech outages.`\
 https://www.nytimes.com/video/business/dealbook/100000011290885/satya-nadella-microsoft-dealbook-outages.html
-
-**How We Broke Open the Nvidia Investigation**\
-`A global reporting effort by The New York Times included many twists and turns, from surprising photos and shipment records to a big break through astonishing tips from sources.`\
-https://www.nytimes.com/2026/11/18/insider/nvidia-jensen-huang-spying-plot.html
-
-**Uncontacted Awá of Brazil Emerge From Rainforest Seeking Food**\
-`A group of 20 people emerged from the forest and asked for food, an Indigenous peoples’ rights group said, raising fears that environmental degradation had left them with no choice but to reach out.`\
-https://www.nytimes.com/2026/11/18/world/americas/brazil-amazon-indigenous-contact.html
-
-**Van Gogh Soars to $190.4 Million at Sotheby’s After an 11th-Hour Settlement**\
-`In less than a week, the painting went from top lot to top liability — and back again. On Wednesday it set a record for the artist.`\
-https://www.nytimes.com/2026/11/18/arts/design/van-gogh-painting-auction-sothebys.html
-
-**As Outages Multiply, New Yorkers Are Bracing? For What? No One Is Sure.**\
-`A series of tech disruptions across the country have some people planning for scenarios that are as vague as they are dire. Others are just philosophical.`\
-https://www.nytimes.com/2026/11/18/nyregion/technology-disruptions-new-york-prepping.html
-
-**N.Y.C. Bus Fare Inspectors Could Be Fired Over Altercations With Riders**\
-`After halting the work of a unit that tickets fare evaders, M.T.A. officials now seek to fire nine of its members.`\
-https://www.nytimes.com/2026/11/18/nyregion/mta-fare-enforcement-firing.html
-
-**Watch: Zohran Mamdani on Finding Common Ground With Trump**\
-`The mayor of New York also stood by his positions on Israel and Gaza. “I have a politics of universality,” he said in a wide-ranging interview at the DealBook Summit.`\
-https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-common-ground-with-trump.html
-
-**Trump Weighs New Strikes on Iran as Israel Presses for Action, Officials Say**\
-`Warnings that Iran is rebuilding its missile stockpile and advancing biological and chemical programs have divided the Trump administration.`\
-https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
 
