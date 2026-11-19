@@ -1,5 +1,17 @@
+**Watch: Robinhood’s C.E.O. Says He Shouldn’t Decide What You Can Trade**\
+`Speaking alongside the Nasdaq chief Adena Friedman and the Polymarket founder Shayne Coplan, Vlad Tenev said regular investors should have access to more opportunities.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/adena-friedman-vlad-tenev-shayne-copland-dealbook-summit.html
+
+**How Nvidia Chips Ended Up Within Reach of China’s Military**\
+`Alibaba, the Chinese internet giant behind the company at the center of the Nvidia spy saga, has used its A.I. computing technology to aid a lab with links to China’s military.`\
+https://www.nytimes.com/2026/11/18/technology/nvidia-alibaba-china-military.html
+
+**How Anthropic Stacks Up With the Biggest Tech I.P.O.s Since the ’80s**\
+`Anthropic’s initial public offering valued the A.I. company at $1.5 trillion on Wednesday, the latest in a wave of humongous tech I.P.O.s.`\
+https://www.nytimes.com/interactive/2026/11/18/technology/anthropic-ipo-compared.html
+
 **Watch: Hailey Bieber Says Social Media Has Affected Her Mental Health**\
-`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said online comments can be “distorting to the mind.”`\
+`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said in an interview at the DealBook Summit that online comments can be “distorting to the mind.”`\
 https://www.nytimes.com/2026/11/18/business/watch-hailey-bieber-social-media-mental-health.html
 
 **Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-kn
 **Film Club: ‘Prison and Time’**\
 `What can the reflections of Marvin Wade, who was incarcerated for 25 years, teach us about befriending time?`\
 https://www.nytimes.com/2026/11/18/learning/film-club-prison-and-time.html
-
-**Undoing Brexit**\
-`Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
-https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html
-
-**The Good List: 6 Things to Bring Some Delight to Your Day**\
-`Making friends on airplanes, anticipation music and Truman Capote’s effects.`\
-https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
-
-**Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
-`The Colombian president said his nation would not allow American forces to take part in anti-cartel operations on its soil.`\
-https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
 
