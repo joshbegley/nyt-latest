@@ -1,3 +1,7 @@
+**National Book Award for Nonfiction Goes to Writer Denied Visa to Attend**\
+`The author Abdelrahman ElGendy received one of the major American prizes for nonfiction in absentia for his memoir, “Huna.” Hannah Lillith Assadi won the fiction prize.`\
+https://www.nytimes.com/2026/11/18/books/national-book-award-for-nonfiction-goes-to-writer-denied-visa-to-attend.html
+
 **Was China Sending a Musical Message to Japan’s Takaichi During APEC Welcome?**\
 `A song chosen to welcome Sanae Takaichi at the APEC summit in Shenzhen grew out of protests against the American military presence in Japan.`\
 https://www.nytimes.com/2026/11/18/world/asia/japan-china-takaichi-song-sukiyaki-apec.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
 **Can Zohran Mamdani Fix the Cost of Living in New York City?**\
 `Mayor Zohran Mamdani of New York speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
 https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
-
-**Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
-`In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
-https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
 
