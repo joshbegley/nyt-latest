@@ -1,3 +1,19 @@
+**Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
+`The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
+https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
+
+**Outrage Over Another Cruel ICE Tactic**\
+`Readers react to new reports of abuses by ICE. Also: Air traffic upgrades; beyond the Republican weirdos; a family’s touch.`\
+https://www.nytimes.com/2026/11/19/opinion/ice-tactics.html
+
+**Musk Says He Feels ‘Foolish’ for Spending Nearly $500 Million on Midterms**\
+`At The New York Times’s Dealbook Summit, Elon Musk said that he felt “foolish” for spending nearly $500 million on the midterm elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011295981/elon-musk-spending-midterm-elections.html
+
+**At Brooklyn Compound, ICE Officers Are Training on Conducting Car Stops**\
+`Immigration and Customs Enforcement was ordered to expand training on traffic stops. The exercises come after a series of officer-involved shootings during President Trump’s immigration crackdown.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
+
 **Top Massachusetts Court to Weigh Lindsay Clancy’s Motion to Dismiss**\
 `Her lawyers plan to argue in January that the first-degree murder charges against her should be dropped following her mistrial.`\
 https://www.nytimes.com/2026/11/19/us/lindsay-clancy-trial-juror-appeal.html
