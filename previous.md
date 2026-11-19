@@ -1,3 +1,7 @@
+**Villa Where Trump, Xi and Putin Will Meet Once Hosted Kim Jong-il**\
+`The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
+
 **Late Night Follows Trump’s Meeting with Xi and Putin in China**\
 `Jimmy Fallon said that the leaders’ timing made sense: “Now that James Bond has been cast, they’re auditioning villains.”`\
 https://www.nytimes.com/2026/11/19/arts/television/late-night-trump-xi-putin.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/microsoft-satya-nadella-out
 **2 Men Used Ponzi Scheme to Steal Over $600 Million, U.S. Says**\
 `The Indiana investment fund Backward Hat Capital, founded by Phillip Williams and Devin Johnson, reported monthly returns that were “largely illusory,” prosecutors said.`\
 https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.html
-
-**Executives Discuss the Line Between Prediction Markets and Gambling**\
-`In an interview with Andrew Ross Sorkin at the DealBook Summit, Shayne Coplan, the founder of Polymarket, Vlad Tenev of Robinhood and Adena Friedman, the president and C.E.O. of Nasdaq speak about the future of the prediction market industry.`\
-https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polymarket-nasdaq-prediction-market-dealbook.html
 

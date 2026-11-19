@@ -1,3 +1,7 @@
+**Villa Where Trump, Xi and Putin Will Meet Once Hosted Kim Jong-il**\
+`The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
+
 **Late Night Follows Trump’s Meeting with Xi and Putin in China**\
 `Jimmy Fallon said that the leaders’ timing made sense: “Now that James Bond has been cast, they’re auditioning villains.”`\
 https://www.nytimes.com/2026/11/19/arts/television/late-night-trump-xi-putin.html
