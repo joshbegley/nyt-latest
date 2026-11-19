@@ -1,3 +1,39 @@
+**Watch: Hailey Bieber Says Social Media Has Affected Her Mental Health**\
+`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said online comments can be “distorting to the mind.”`\
+https://www.nytimes.com/2026/11/18/business/watch-hailey-bieber-social-media-mental-health.html
+
+**Elon Musk Says He’s ‘Not MAGA’**\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+
+**Why the European Central Bank President Stepped Down**\
+`In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html
+
+**Executives Discuss the Line Between Prediction Markets and Gambling**\
+`In an interview with Andrew Ross Sorkin at the DealBook Summit, Shayne Coplan, the founder of Polymarket, Vlad Tenev of Robinhood and Adena Friedman, the president and C.E.O. of Nasdaq speak about the future of the prediction market industry.`\
+https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polymarket-nasdaq-prediction-market-dealbook.html
+
+**Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
+`Palmer Luckey, founder of the defense contractor Anduril Industries, speaks with Andrew Ross Sorkin at the DealBook summit on A.I. development and the war in Iran.`\
+https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-dealbook-ai-politics.html
+
+**Hailey Bieber on Why She Decided to Sell Rhode**\
+`Hailey Bieber joins Andrew Ross Sorkin at the DealBook summit to talk about her beauty brand, Rhode, and her relationship with social media.`\
+https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rhode-dealbook-beauty.html
+
+**Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
+`The Microsoft chief executive Satya Nadella speaks with Andrew Ross Sorkin at the DealBook Summit about the future of A.I. and recent tech outages.`\
+https://www.nytimes.com/video/business/dealbook/100000011290885/satya-nadella-microsoft-dealbook-outages.html
+
+**Can Zohran Mamdani Fix the Cost of Living in New York City?**\
+`Mayor Zohran Mamdani of New York speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
+https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
+
+**Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
+`Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
+https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
+
 **Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
 `The founder of Anduril Industries, a defense tech company, is advising the Pentagon on how to map out the future of war.`\
 https://www.nytimes.com/2026/11/18/business/watch-palmer-luckey-ai-dealbook-summit.html
