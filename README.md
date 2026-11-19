@@ -1,3 +1,7 @@
+**Florida Man Found Guilty in Plot to Kill Haiti’s President**\
+`Christian Emmanuel Sanon, 67, who was convicted in a Miami court, could now face life in prison over the killing of Jovenel Moïse.`\
+https://www.nytimes.com/2026/11/18/world/americas/haiti-pastor-assassination-moise.html
+
 **Ericka Lomick’s Texas House Win Faces Challenge in State Supreme Court**\
 `The Texas electoral wave carried one Democrat to victory even after she had suspended her campaign. Republicans want her declared ineligible.`\
 https://www.nytimes.com/2026/11/18/us/texas-house-election-ericka-lomick.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/us/politics/supreme-court-trump-deportation-v
 **Polymarket CEO Says Donald Trump Jr.’s Involvement Is ‘Overblown’**\
 `At the DealBook Summit, Shayne Coplan, the founder of Polymarket, defended the investment by a firm associated with President Trump’s oldest son.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/polymarket-donald-trump-jr-shayne-coplan.html
-
-**Judge Extends Block on Building Trump’s Triumphal Arch**\
-`Judge Tanya Chutkan barred the government from beginning work on the project for another two weeks.`\
-https://www.nytimes.com/2026/11/18/us/politics/judge-block-trump-arch.html
 
