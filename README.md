@@ -1,3 +1,15 @@
+**The Showdowns Are Coming Thick and Fast in Washington**\
+`Justice and rights take many forms.`\
+https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
+
+**Five Takeaways From the Most Detailed Data We Have on Midterm Voters**\
+`People who skipped 2024 voted very blue this year. Young men swung hard to the left, but older women didn’t.`\
+https://www.nytimes.com/interactive/2026/11/19/upshot/voter-trend-takeaways.html
+
+**Solve a Hollywood Themed Special Crossword Puzzle**\
+`Gillian Jacobs, an actress best known for her roles in “Community” and “Love,” co-constructed this puzzle.`\
+https://www.nytimes.com/2026/11/19/crosswords/solve-a-hollywood-themed-special-crossword-puzzle.html
+
 **T Magazine’s 2026 Holiday Gift Guide: Ideas and Tips**\
 `How six experts think about holiday shopping.`\
 https://www.nytimes.com/2026/11/19/t-magazine/holiday-gift-guide-ideas.html
@@ -130,7 +142,7 @@ https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 `The Silicon Valley giant’s search advertising has long fueled the company. But its search ad growth is slowing as A.I. becomes more prevalent.`\
 https://www.nytimes.com/2026/11/19/technology/google-search-ads-ai.html
 
-**PREVIEW 2**\
+**Grand Theft Auto Used to Satirize American Life. Now We’ve Caught Up With It.**\
 `The G.T.A. series is more than just a crime simulator — it’s a cartoonish sendup of our country. What happens when reality outruns the joke?`\
 https://www.nytimes.com/2026/11/19/magazine/grand-theft-auto-six.html
 
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/19/fashion/jewelry-jacqueline-rabun-cave-collect
 **Seeds at Qatar’s Years of Culture Event Link to Mexico**\
 `The artist Fernando Laposse used a historic agricultural connection to shape his exhibits.`\
 https://www.nytimes.com/2026/11/19/fashion/craftsmanship-qatar-years-of-culture-mexico.html
-
-**William Amor’s Blooms Are Not What You Would Expect**\
-`William Amor uses discards such as plastic bottles and cigarette butts to create faux roses, irises and other blossoms.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-faux-blooms-william-amor-paris.html
-
-**Exhibition Shows Roman Skill in Ancient Scotland**\
-`Storage jars and a copper alloy necklet are among the displays at the National Museum in Edinburgh.`\
-https://www.nytimes.com/2026/11/19/fashion/exhibition-roman-occupation-national-museum-of-scotland-edinburgh.html
-
-**Why Sean Brown’s Curves Tote Bag Became a Cult Favorite**\
-`The colorful, stretchy bags from Curves have become the ultimate if-you-know-you-know accessory.`\
-https://www.nytimes.com/2026/11/19/style/sean-brown-curves-tote-bag.html
 
