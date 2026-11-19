@@ -1,3 +1,7 @@
+**Grand Theft Auto VI Debuts to Much Excitement**\
+`Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
+https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
+
 **Live Updates: U.N. Court to Rule in Rohingya Genocide Case**\
 `The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
@@ -127,7 +131,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
 **Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
-`It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
+`At the first such meeting of the leaders, President Trump said the United States, China and Russia were “uniquely positioned” to reduce the number of nuclear weapons in the world.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/18/us/atlanta-arch-russia-flag-trump.html
 **How Trump Can Avoid a Global Nuclear Arms Race**\
 `In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
-
-**Satya Nadella Explains How A.I. May Cause Future Outages**\
-`Satya Nadella, the C.E.O. of Microsoft, said that the rate at which software bugs are discovered and patched could increase the likelihood of future global software outages.`\
-https://www.nytimes.com/video/business/dealbook/100000011293468/microsoft-satya-nadella-ai-outages.html
 

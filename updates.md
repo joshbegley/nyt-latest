@@ -1,3 +1,11 @@
+**Grand Theft Auto VI Debuts to Much Excitement**\
+`Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
+https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
+
+**Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
+`At the first such meeting of the leaders, President Trump said the United States, China and Russia were “uniquely positioned” to reduce the number of nuclear weapons in the world.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: U.N. Court to Rule in Rohingya Genocide Case**\
 `The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
