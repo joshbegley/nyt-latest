@@ -1,3 +1,7 @@
+**At Gloria Steinem Memorial, Michelle Obama, Hillary Clinton and More Big Names Gather**\
+`Former Secretary of State Hillary Clinton and other luminaries spoke at the event, which also featured performances by Cynthia Erivo and Kathy Sledge.`\
+https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-photos.html
+
 **Obama Tells Incoming House Democrats to Keep Up Outreach in Red Areas**\
 `The former president told the newly elected lawmakers that the country was going through a moment of “generational change.” He also praised Representative Hakeem Jeffries, the likely next speaker.`\
 https://www.nytimes.com/2026/11/18/us/politics/barack-obama-house-democrats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trum
 **Palmer Luckey Warns the U.S. Faces an A.I. ‘Mismatch’**\
 `The founder of Anduril Industries, a defense tech company, blamed the widespread tech outages across the United States on attackers using A.I. tools to target outdated infrastructure.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.html
-
-**Anduril Industries Co-Founder Blames A.I. Tools for Tech Outages in U.S.**\
-`Palmer Luckey discussed the widespread tech outages across the United States, blaming attackers using A.I. tools to target outdated infrastructure.`\
-https://www.nytimes.com/video/business/dealbook/100000011294098/anduril-industries-co-founder-blames-ai-tools-for-tech-outages-in-us.html
 
