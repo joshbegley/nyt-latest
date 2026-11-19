@@ -1,3 +1,7 @@
+**Putin Returns to APEC ‘Family Photo,’ Testing Western Leaders**\
+`The leaders of Australia and Canada defended their decision to join the APEC group portrait as a courtesy to the host, China, despite criticism at home.`\
+https://www.nytimes.com/2026/11/19/world/asia/putin-xi-trump-apec-family-photo.html
+
 **Andrey Zvyagintsev Is the Prophet of Putinism**\
 `Andrey Zvyagintsev’s latest film invites viewers to see contemporary Russia in the terms of classical myth.`\
 https://www.nytimes.com/2026/11/19/opinion/zvyagintsev-russia-minotaur-putin.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polyma
 **Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
 `Palmer Luckey, founder of the defense contractor Anduril Industries, speaks with Andrew Ross Sorkin at the DealBook summit on A.I. development and the war in Iran.`\
 https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-dealbook-ai-politics.html
-
-**Hailey Bieber on Why She Decided to Sell Rhode**\
-`Hailey Bieber joins Andrew Ross Sorkin at the DealBook summit to talk about her beauty brand, Rhode, and her relationship with social media.`\
-https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rhode-dealbook-beauty.html
 
