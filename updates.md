@@ -1,3 +1,27 @@
+**Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
+`Anthropic shares rose in their first day of trading, while both the S&P 500 and Nasdaq indexes fell. There are a few factors at play.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-stock-market.html
+
+**Food Delivery Is Making a Killing on Grand Theft Auto**\
+`The gamers staying home in droves have to be fed, and the meal business was more than ready to feed them.`\
+https://www.nytimes.com/2026/11/19/dining/grand-theft-auto-food-delivery.html
+
+**Lawsuit Seeks to Block Trump’s Housing Rule Targeting Immigrants**\
+`A rule set to take effect next month would deny federal housing assistance to households that include undocumented immigrants, even if other family members are citizens.`\
+https://www.nytimes.com/2026/11/19/nyregion/trump-hud-immigrants-housing-aid.html
+
+**madison-shooting-corey-ruiz-district-attorney-statement**\
+`A Madison, Wis., police officer will not face charges in the fatal shooting in July of Corey Ruiz, the local district attorney, Ismael Ozanne, said on Thursday. Here is Mr. Ozanne’s statement about his decision and his summary of the evidence.`\
+https://www.nytimes.com/interactive/2026/11/19/us/press-release-no-criminal-liability-for-mpd-officers11-19-26.html
+
+**U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
+`The first-ever lease sale took place over the objections of a federal judge. The company is leasing the seabed for mapping and preparation, not actual mining.`\
+https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/19/books/review/new-recommended-books.html
+
 **China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
 `China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
 https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
