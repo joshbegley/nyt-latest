@@ -1,3 +1,11 @@
+**Villa Where Trump, Xi and Putin Met Once Hosted Kim Jong-il**\
+`The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
+
+**Live Updates: Trump Calls Putin His ‘Friend’ and Holds Joint Talks With Xi**\
+`President Trump said that he would bring up the Ukraine War at the first-ever meeting of leaders of Russia, China and the United States.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: U.N. Court Issues Ruling in Rohingya Genocide Case**\
 `The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide

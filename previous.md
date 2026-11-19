@@ -18,7 +18,7 @@ https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
 
-**Villa Where Trump, Xi and Putin Will Meet Once Hosted Kim Jong-il**\
+**Villa Where Trump, Xi and Putin Met Once Hosted Kim Jong-il**\
 `The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
 
@@ -138,8 +138,8 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 `In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
-**Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
-`At the first such meeting of the leaders, President Trump said the United States, China and Russia were “uniquely positioned” to reduce the number of nuclear weapons in the world.`\
+**Live Updates: Trump Calls Putin His ‘Friend’ and Holds Joint Talks With Xi**\
+`President Trump said that he would bring up the Ukraine War at the first-ever meeting of leaders of Russia, China and the United States.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\
