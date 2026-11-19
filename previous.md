@@ -1,3 +1,7 @@
+**U.N. Court Rules Myanmar Committed Genocide Against the Rohingya**\
+`The International Court of Justice ruled that Myanmar committed genocide against the Rohingya Muslim minority in a case brought by Gambia.`\
+https://www.nytimes.com/video/world/asia/100000011295153/myanmar-genocide-rohingya-icj.html
+
 **Mamdani, Musk, Altman, A.I. and Other DealBook Summit Highlights**\
 `Artificial intelligence, bubble fears, the Nvidia fallout, prediction markets, politics and other big topics that made headlines this year.`\
 https://www.nytimes.com/2026/11/19/business/dealbook/mamdani-musk-altman-summit-highlights.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/19/books/review/jolt-ted-scheinman.html
 **Rembrandt’s Refugees**\
 `A timely exhibition of work by the Dutch master shows centuries-old art amid the new gloss of an incendiary political issue.`\
 https://www.nytimes.com/2026/11/19/arts/rembrandt-morgan-library.html
-
-**Military Histories About Air Power**\
-`Three new books capture the promise of aviation and the limits of air power.`\
-https://www.nytimes.com/2026/11/19/books/review/military-history-air-power.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
