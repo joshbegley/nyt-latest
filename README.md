@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
 https://www.nytimes.com/2026/11/19/pageoneplus/quote-of-the-day-hi-help-desk-tech-systems-seem-broken.html
 
 **Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
-`Prime Minister Benjamin Netanyahu of Israel had claimed the detention of three opposition activists from an Arab-led party was evidence of vote rigging. His chief of staff has admitted being involved with the initial outreach to police.`\
+`After a historic result for Israel’s Arab-led parties, Prime Minister Benjamin Netanyahu said the vote was rigged, pointing to the detention of three opposition activists. His chief of staff has admitted being involved with the initial outreach to police.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
 
 **A Village Burned, Its People Killed or Exiled. Was It Genocide?**\

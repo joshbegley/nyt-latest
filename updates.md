@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin to Meet for Their First Summit**\
+`It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **NYT Spelling Bee Answers for November 19, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
