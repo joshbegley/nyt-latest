@@ -1,3 +1,7 @@
+**Live Updates: Trump Holds 1-on-1s With Putin and Xi Ahead of 3-Way Summit**\
+`The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump is also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: Trump and Putin Sit Down Ahead of Joint Summit With Xi**\
 `The three-way meeting will take place at a lakeside resort in Shenzhen. President Trump is also meeting separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
