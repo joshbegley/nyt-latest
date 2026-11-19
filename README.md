@@ -1,3 +1,7 @@
+**Hillary Clinton: Trump Should Stop Appeasing Putin**\
+`On the one area where the president could still be remembered as a winner.`\
+https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
+
 **Putin, Trump and Xi Condemn Nuclear War as Europe Watches Closely**\
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
@@ -139,7 +143,7 @@ https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foste
 https://www.nytimes.com/interactive/2026/11/19/travel/things-to-do-sydney.html
 
 **Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
-`The beloved landmark will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
+`The beloved Citgo sign will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
 https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 
 **Colombia’s President Is Acquiring a Reputation for Courting Controversy**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/19/us/anthropic-ipo-spending-wealth-san-francisc
 **Sarah Sze’s Artful ‘Constellations’ Invite Wonder and Inclusion**\
 `The artist unveils projects in New Haven, Conn., Brooklyn and San Francisco, where her sculpted soundscape offers a new standard for accessibility.`\
 https://www.nytimes.com/2026/11/19/arts/design/sarah-sze-yale-sfmoma-barclays-center.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a three-bedroom in Huntington, N.Y., and a four-bedroom in Plainsboro, N.J.`\
-https://www.nytimes.com/2026/11/19/realestate/housing-market-near-nyc.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
