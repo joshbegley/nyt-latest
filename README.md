@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/11/19/opinion/tech-outages-cybersecurity.html
 `Corrections that appeared in print on Thursday, Nov. 19, 2026.`\
 https://www.nytimes.com/2026/11/19/pageoneplus/corrections-nov-19-2026.html
 
-**Anthropic I.P.O. Highlights How Washington Has Fallen Behind**\
+**Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
 `As A.I. development surges ahead, policymakers have struggled to protect workers, businesses and the rest of the economy from potential disruption.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
 
