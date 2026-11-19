@@ -1,3 +1,11 @@
+**In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
+`People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
+https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
+
+**An Anti-A.I. Campus Movement**\
+`We look at a growing hesitation on campus.`\
+https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
+
 **Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
 `Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
 https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
