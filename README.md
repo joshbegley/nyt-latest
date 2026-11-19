@@ -186,7 +186,7 @@ https://www.nytimes.com/2026/11/19/movies/elsinore-review.html
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
-**Live Updates: Trump, Xi and Putin Seek to Project Power at First-Ever Summit**\
+**Live Updates: Trump, Xi and Putin Seek to Project Power at Their First Summit**\
 `The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 

@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin Seek to Project Power at First-Ever Summit**\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Trump, Xi and Putin Meet in China for Their First Summit**\
 `President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
 https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
