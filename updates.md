@@ -1,3 +1,7 @@
+**Alaska Republican Narrowly Defeats Independent House Candidate**\
+`Representative Nick Begich III overcame an independent challenger in a year in which Democrats made historic gains but third-party candidates had little success.`\
+https://www.nytimes.com/2026/11/18/us/politics/alaska-nick-begich-wins-house-race.html
+
 **Florida Man Found Guilty in Plot to Kill Haiti’s President**\
 `Christian Emmanuel Sanon, 67, who was convicted in a Miami court, could now face life in prison over the killing of Jovenel Moïse.`\
 https://www.nytimes.com/2026/11/18/world/americas/haiti-pastor-assassination-moise.html
