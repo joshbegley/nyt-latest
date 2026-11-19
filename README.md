@@ -124,7 +124,7 @@ https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-de
 
 **Elon Musk Says He’s ‘Not MAGA’**\
 `In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
-https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-says-hes-not-maga.html
 
 **Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
 `Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
