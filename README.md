@@ -162,10 +162,6 @@ https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
 https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
 
-**NYT Strands Hints for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
-
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
