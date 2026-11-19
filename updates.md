@@ -1,3 +1,7 @@
+**The ‘Hunger Games’ Red Carpet Was Peak Method Dressing**\
+`Method dressing reaches its zenith in the new “Hunger Games.”`\
+https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
+
 **‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
 `Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
 https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html

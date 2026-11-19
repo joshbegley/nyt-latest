@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
 `Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
 https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
 
-**Has the Red Carpet Become a Parody?**\
+**The ‘Hunger Games’ Red Carpet Was Peak Method Dressing**\
 `Method dressing reaches its zenith in the new “Hunger Games.”`\
 https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
 
