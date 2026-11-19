@@ -1,3 +1,19 @@
+**Marian Anderson as Artist, Not Icon**\
+`Seen as a symbol, but not as herself`\
+https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
+
+**It Really Matters When C.E.O.s Have Affairs**\
+`The reason has nothing to do with the sanctity of marriage.`\
+https://www.nytimes.com/2026/11/19/opinion/jensen-huang-ceo-affairs.html
+
+**What’s Going On in This Picture? | Nov. 30, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-picture-nov-30-2026.html
+
+**What’s Going On in This Graph? | Dec. 2, 2026**\
+`How much money flows to the players on each college football team’s roster? What do you notice?`\
+https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-graph-dec-2-2026.html
+
 **Fire at Railroad Tie Plant in Alabama Closes Schools and Prompts Evacuations**\
 `The authorities in Attalla ordered residents within a mile radius to leave because of the fire at the Omaha Track, a railroad tie recycling facility.`\
 https://www.nytimes.com/2026/11/19/us/alabama-fire-railroad-tie-recycling-plant.html
@@ -154,23 +170,7 @@ https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essa
 `“DoorDash is not an emergency plan.”`\
 https://www.nytimes.com/2026/11/19/style/outages-doomsday-prep-emergency.html
 
-**China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
-`Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
-https://www.nytimes.com/2026/11/19/business/anthropic-ipo-china-hong-kong.html
-
-**The Rohingya Crisis Over the Years**\
-`After government troops and mobs rampaged through Rohingya communities in Myanmar in 2017, refugees fled to to Bangladesh.`\
-https://www.nytimes.com/2026/11/19/world/asia/rohingya-camps-photos-bangladesh.html
-
-**California Storm Sweeps South, Prompting Some Evacuation Warnings in L.A.**\
-`A system that earlier flooded San Francisco was hitting Southern California on Thursday.`\
-https://www.nytimes.com/2026/11/19/weather/california-rain-sf-la.html
-
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
-
-**U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
-`Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
-https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
