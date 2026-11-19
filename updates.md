@@ -1,3 +1,19 @@
+**Mamdani Talks Trump, Taxes and Oct. 7 at DealBook Summit**\
+`In a wide-ranging conversation, Mayor Zohran Mamdani of New York discussed the midterms, President Trump and that “tax the rich” video.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-summit.html
+
+**Mamdani Reflects on Relationship With Trump**\
+`Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
+https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
+
+**Elon Musk Says He’s ‘Not MAGA’**\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+
+**Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
+`Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
+https://www.nytimes.com/2026/11/18/us/atlanta-arch-russia-flag-trump.html
+
 **How Trump Can Avoid a Global Nuclear Arms Race**\
 `In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
