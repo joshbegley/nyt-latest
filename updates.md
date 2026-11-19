@@ -1,3 +1,7 @@
+**Trump, Xi and Putin Meet in China for Their First Summit**\
+`President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
+https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
+
 **Behind Trump Meeting, Xi and Putin Share a Vision of Usurping U.S. Power**\
 `President Trump joined the Chinese and Russian leaders for a summit in Shenzhen, even though the two autocrats are trying to reverse America’s victory in the Cold War.`\
 https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russia.html
