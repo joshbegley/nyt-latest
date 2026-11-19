@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review
 `An F.B.I. campaign against the Black Panthers and a justice’s questionable failure to recuse himself dealt a blow to protections for confidential sources.`\
 https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-freedom.html
 
-**Trump Seeks to Project Power Abroad While Forced to Share It at Home**\
+**At Summit With Xi and Putin, Trump Seeks to Project Power Abroad While Sharing It at Home**\
 `Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
 
@@ -161,10 +161,6 @@ https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for
 **Today’s Wordle Hints for November 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
 https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
-
-**NYT Strands Hints for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

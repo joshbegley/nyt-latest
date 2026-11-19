@@ -1,3 +1,7 @@
+**At Summit With Xi and Putin, Trump Seeks to Project Power Abroad While Sharing It at Home**\
+`Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
+https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
+
 **The ‘Hunger Games’ Red Carpet Was Peak Method Dressing**\
 `Method dressing reaches its zenith in the new “Hunger Games.”`\
 https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
