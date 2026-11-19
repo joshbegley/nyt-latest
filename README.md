@@ -11,7 +11,7 @@ https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-s
 https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
 
 **Live Updates: U.N. Court Issues Ruling in Rohingya Genocide Case**\
-`The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+`The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
 **NYT Spelling Bee Answers for November 19, 2026**\
