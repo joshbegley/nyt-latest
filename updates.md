@@ -1,3 +1,11 @@
+**Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
+`The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
+https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
+
+**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fire**\
 `The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
 https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
