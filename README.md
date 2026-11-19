@@ -182,15 +182,11 @@ https://www.nytimes.com/2026/11/19/movies/give-me-the-ball-review-billie-jean-ki
 `Andrew Scott is magnificent in a drama about the actor Ian Charleson’s final performance as Hamlet.`\
 https://www.nytimes.com/2026/11/19/movies/elsinore-review.html
 
-**‘Ash and Crayons’ Review: Ukraine’s Young Victims Are Undaunted**\
-`Evgeny Afineevsky’s documentary captures the harrowing tales and ultimate triumphs of children who were abducted by Russia or severely wounded in attacks.`\
-https://www.nytimes.com/2026/11/19/movies/ash-and-crayons-review-ukraines-young-victims-undaunted.html
-
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
-**Live Updates: Trump Departs China After First-Ever Summit With Xi and Putin**\
-`President Trump said before the meeting that he wanted to discuss nuclear weapons and the wars in Ukraine and Iran. But the three leaders appeared to refer to the topics only in vague terms.`\
+**Live Updates: Trump, Xi and Putin Seek to Project Power at First-Ever Summit**\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
