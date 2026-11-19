@@ -1,3 +1,7 @@
+**How Trump Betrayed His Base**\
+`What remains of MAGA?`\
+https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html
+
 **Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
 `As the technology surges ahead, policymakers in Washington have struggled to prepare for potential disruption to workers, businesses and the rest of the economy.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html

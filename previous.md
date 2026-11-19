@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/11/19/learning/the-new-grand-theft-auto-is-finally-
 `The firm Kirkland & Ellis has quietly disclosed that as part of the deal it reached with the Trump administration, it has done about 6,491 hours of free work.`\
 https://www.nytimes.com/2026/11/19/us/politics/kirkland-ellis-law-firm-trump.html
 
-**MAGA’s Stumble Into the Wilderness**\
-`How Trump betrayed his base.`\
+**How Trump Betrayed His Base**\
+`What remains of MAGA?`\
 https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html
 
 **36 Hours in Sydney, Australia: Things to Do and See**\
