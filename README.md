@@ -107,7 +107,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
 **Live Updates: Trump Holds 1-on-1s With Putin and Xi Ahead of 3-Way Summit**\
-`The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump is also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
+`The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\
