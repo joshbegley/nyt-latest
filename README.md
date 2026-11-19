@@ -1,3 +1,11 @@
+**$160 Million in Church Property Is Mortgaged to Fund Abuse Settlement**\
+`The New York Archdiocese recently agreed to pay more than $800 million to 1,300 people who say they were sexually abused by clergy.`\
+https://www.nytimes.com/2026/11/19/nyregion/catholic-church-archdiocese-nyc-sexual-abuse.html
+
+**Delaware Regulator Says It Was ‘Misled’ About Mark Walter’s Insurance Assets**\
+`The state’s insurance agency rejected criticism of its oversight of Mr. Walter’s insurance firms that has been raised by some industry analysts.`\
+https://www.nytimes.com/2026/11/19/business/delaware-regulator-mark-walters-insurance.html
+
 **Elon Musk Backs Away From MAGA and the Trump Presidency He Shaped**\
 `The man who helped elect President Trump in 2024 and led DOGE is trying to rewrite history.`\
 https://www.nytimes.com/2026/11/19/us/politics/elon-musk-maga-trump.html
@@ -177,14 +185,6 @@ https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz
 **Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
 `After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
 https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html
-
-**Studies Could Pave Way for Blood Test to Detect C.T.E. in Living Patients**\
-`An unusual protein may turn out to be a way to diagnose the chronic brain disease, which disproportionately affects athletes in contact sports.`\
-https://www.nytimes.com/2026/11/19/science/cte-blood-test-diagnosis.html
-
-**Trump Flaunts Camaraderie With Xi and Putin but Has Little to Show for It**\
-`President Trump called Russia’s leader his “friend” and marveled at China’s warm welcome for his first-ever trilateral summit. But there were no breakthroughs on nuclear control, the war in Ukraine or A.I.`\
-https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
