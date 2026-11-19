@@ -1,3 +1,23 @@
+**Live Updates: Anthropic Set to Start Trading in Blockbuster Market Debut**\
+`The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after raising a record-setting $81.3 billion in a public offering that valued the company at roughly $1.5 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
+
+**Inside a Rohingya Camp After a Genocide Ruling**\
+`On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
+https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
+`The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
+https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
+
+**What Your Lighting Preferences Say About You**\
+`Are you a big light person or an ambient light person? Online, your preferences may say a lot about you.`\
+https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
+
 **Trump, Xi and Putin Meet in China for Their First Summit**\
 `President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
 https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
@@ -162,31 +182,11 @@ https://www.nytimes.com/2026/11/19/realestate/housing-market-nyc.html
 `In this superficial animated retelling of the Cinderella tale, three sisters must go on a journey to recover the magic they need to set the story back on track.`\
 https://www.nytimes.com/2026/11/19/movies/steps-review.html
 
-**‘Primetime Preacher$’ Review: Fraud in the Name of God**\
-`This documentary examines the careers and scandals of 1980s televangelists.`\
-https://www.nytimes.com/2026/11/19/movies/primetime-preachers-review.html
-
-**‘Minotaur’ Review: A Chilling Remake**\
-`The Russian director Andrey Zvyagintsev reworks an infidelity drama into an antiwar parable.`\
-https://www.nytimes.com/2026/11/19/movies/minotaur-review-a-chilling-remake.html
-
-**‘Josephine’ Review: A Young Witness to Adult Horrors**\
-`The writer-director Beth de Araújo tells the painful and profound story of a girl who witnesses a brutal sexual assault in a park.`\
-https://www.nytimes.com/2026/11/19/movies/josephine-review.html
-
-**‘Give Me the Ball!’ Review: How Billie Jean King Aced Life**\
-`The octogenarian tennis player recounts loving athletics for as long as she can remember in this vivid documentary about her life and career.`\
-https://www.nytimes.com/2026/11/19/movies/give-me-the-ball-review-billie-jean-king.html
-
-**‘Elsinore’ Review: Remember Me**\
-`Andrew Scott is magnificent in a drama about the actor Ian Charleson’s final performance as Hamlet.`\
-https://www.nytimes.com/2026/11/19/movies/elsinore-review.html
-
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
 **Live Updates: Trump, Xi and Putin Seek to Project Power at Their First Summit**\
-`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin said that Russia would not negotiate with Ukraine on a cease-fire.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 

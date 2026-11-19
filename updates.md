@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin Seek to Project Power at Their First Summit**\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: Trump, Xi and Putin Seek to Project Power at First-Ever Summit**\
 `The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
