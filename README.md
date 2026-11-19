@@ -1,3 +1,15 @@
+**Fiona the Hippo, Whose Stardom Extended Well Beyond Cincinnati, Has Died**\
+`The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
+https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
+
+**Leonid Arkayev Has Died. He Coached Russian Gymnasts to Juggernaut Status.**\
+`“When you look at his résumé of athletes and Olympians, no one holds a candle to anything he had done,” one American coach said. He was 86.`\
+https://www.nytimes.com/2026/11/19/obituaries/leonid-arkayev-dead.html
+
+**Love and Carjackings in a Video Game**\
+`Grand Theft Auto once caused a moral panic. Now, it’s a “signature cultural event.”`\
+https://www.nytimes.com/2026/11/19/world/gta-anthropic-shenzhen-summit.html
+
 **Anthropic Makes Multibillion-Dollar Debut on Nasdaq**\
 `Anthropic began trading on Nasdaq on Thursday, becoming one of the world’s most valuable public companies. Its stock market debut comes amid concerns over economic disruption and the safety risks of artificial intelligence.`\
 https://www.nytimes.com/video/business/economy/100000011296431/anthropic-ipo-price-stock-market.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthro
 **The ‘Hunger Games’ Red Carpet Was Peak Method Dressing**\
 `Method dressing reaches its zenith in the new “Hunger Games.”`\
 https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
-
-**Senator Warns Congress to Secure Data From Intrusion by Trump Administration**\
-`Gaps in protections for lawmaker communications loom larger as the administration amplifies its threats to criminally investigate Democrats for aggressive oversight efforts.`\
-https://www.nytimes.com/2026/11/19/us/congress-phone-email-data-doj-wyden.html
-
-**At APEC Summit, U.S., China and Russia Vow to Increase Oil Supply Amid Global Energy Transition**\
-`The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
-https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
-
-**In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
-`People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
-https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
