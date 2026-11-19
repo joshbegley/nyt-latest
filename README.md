@@ -1,3 +1,11 @@
+**Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
+`The director sounds off on the American “train wreck.”`\
+https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html
+
+**A Data Center Was Coming. The Town Had a Message: Stay Out.**\
+`The battle over artificial intelligence is unfolding in rural communities, which are deciding whether to embrace resource-hungry computer farms.`\
+https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
+
 **The Showdowns Are Coming Thick and Fast in Washington**\
 `Justice and rights take many forms.`\
 https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/19/fashion/craftsmanship-lou-lou-buttons-manhatt
 **Palestinian Women Use Embroidery to Tell Their Stories**\
 `Traditional needlework, used to decorate footwear and other items, is helping members of a cooperative to support their families in the West Bank.`\
 https://www.nytimes.com/2026/11/19/fashion/craftsmanship-tatreez-embroidery-resolute-rgl-palestine.html
-
-**Jacqueline Rabun Expands an Influential Jewelry Collection**\
-`Jacqueline Rabun has expanded her Cave line, designs she created in 2002 to be a comfort in times of global turmoil.`\
-https://www.nytimes.com/2026/11/19/fashion/jewelry-jacqueline-rabun-cave-collection.html
-
-**Seeds at Qatar’s Years of Culture Event Link to Mexico**\
-`The artist Fernando Laposse used a historic agricultural connection to shape his exhibits.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-qatar-years-of-culture-mexico.html
 

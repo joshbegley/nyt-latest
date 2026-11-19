@@ -1,3 +1,19 @@
+**The Showdowns Are Coming Thick and Fast in Washington**\
+`Justice and rights take many forms.`\
+https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
+
+**Five Takeaways From the Most Detailed Data We Have on Midterm Voters**\
+`People who skipped 2024 voted very blue this year. Young men swung hard to the left, but older women didn’t.`\
+https://www.nytimes.com/interactive/2026/11/19/upshot/voter-trend-takeaways.html
+
+**Solve a Hollywood Themed Special Crossword Puzzle**\
+`Gillian Jacobs, an actress best known for her roles in “Community” and “Love,” co-constructed this puzzle.`\
+https://www.nytimes.com/2026/11/19/crosswords/solve-a-hollywood-themed-special-crossword-puzzle.html
+
+**Grand Theft Auto Used to Satirize American Life. Now We’ve Caught Up With It.**\
+`The G.T.A. series is more than just a crime simulator — it’s a cartoonish sendup of our country. What happens when reality outruns the joke?`\
+https://www.nytimes.com/2026/11/19/magazine/grand-theft-auto-six.html
+
 **T Magazine’s 2026 Holiday Gift Guide: Ideas and Tips**\
 `How six experts think about holiday shopping.`\
 https://www.nytimes.com/2026/11/19/t-magazine/holiday-gift-guide-ideas.html
