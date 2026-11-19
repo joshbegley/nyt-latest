@@ -1,188 +1,200 @@
+**T Magazine’s 2026 Holiday Gift Guide: Ideas and Tips**\
+`How six experts think about holiday shopping.`\
+https://www.nytimes.com/2026/11/19/t-magazine/holiday-gift-guide-ideas.html
+
+**This Isn’t the Cyberapocalypse, but It Isn’t Great**\
+`A cybersecurity expert isn’t sold on the theory that there is a connection between the many recent digital failures and crashes.`\
+https://www.nytimes.com/2026/11/19/opinion/tech-outages-cybersecurity.html
+
+**Corrections: Nov. 19, 2026**\
+`Corrections that appeared in print on Thursday, Nov. 19, 2026.`\
+https://www.nytimes.com/2026/11/19/pageoneplus/corrections-nov-19-2026.html
+
+**Anthropic I.P.O. Highlights How Washington Has Fallen Behind**\
+`As A.I. development surges ahead, policymakers have struggled to protect workers, businesses and the rest of the economy from potential disruption.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
+
+**U.S. Army Plans to Blow Up Old Ammo, Creating Toxic Cloud Over Iowa**\
+`Friday’s explosion will dispose of unstable material used in detonators. A plume of dangerous lead dust could travel up to 100 miles, the Army said.`\
+https://www.nytimes.com/2026/11/19/climate/iowa-ammunition-explosion-lead-dust.html
+
+**The New Grand Theft Auto Is Finally Here. Are You Excited?**\
+`The release of Grand Theft Auto VI is likely to be one of the biggest entertainment launches ever.`\
+https://www.nytimes.com/2026/11/19/learning/the-new-grand-theft-auto-is-finally-here-are-you-excited.html
+
+**In Bending to Trump, Law Firm Did $11.8 Million of Free Work for Administration**\
+`The firm Kirkland & Ellis has quietly disclosed that as part of the deal it reached with the Trump administration, it has done about 6,491 hours of free work.`\
+https://www.nytimes.com/2026/11/19/us/politics/kirkland-ellis-law-firm-trump.html
+
 **MAGA’s Stumble Into the Wilderness**\
-`How Trump betrayed his base`\
-https://www.nytimes.com/video/opinion/100000011291587/magas-stumble-into-the-wilderness.html
+`How Trump betrayed his base.`\
+https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html
 
-**The Tuners**\
-`In the shadows of one of the world’s most prestigious piano contests, the piano tuners are battling through their own competition.`\
-https://www.nytimes.com/video/opinion/100000010820651/the-tuners.html
+**36 Hours in Sydney, Australia: Things to Do and See**\
+`Beyond Sydney’s magnificent harbor, vibrant interior neighborhoods thrum with live music, cool cafes and thoughtful storytelling that honors the city’s traditional custodians.`\
+https://www.nytimes.com/interactive/2026/11/19/travel/things-to-do-sydney.html
 
-**Death and Taxes. Rats and Real Estate.**\
-`The inevitabilities of New Yorkers’ lives.`\
-https://www.nytimes.com/2026/11/19/podcasts/rats-real-estate-serial-new-york.html
+**Colombia’s President Is Acquiring a Reputation for Courting Controversy**\
+`Colombia’s new leader, Abelardo De La Espriella, presents himself as a warrior against criminal groups and woke culture, and courts controversy at every turn.`\
+https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-crime.html
 
-**15-Minute Lesson Plan: ‘Anatomy of a Scene’**\
-`How can this Times feature about popular movies help students learn to think analytically about texts of all kinds?`\
-https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-scene.html
+**Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
+`The beloved landmark will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
+https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 
-**Grand Theft Auto VI Debuts to Much Excitement**\
-`Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
-https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
+**Is Anthropic a Tech Company or Doomsday Cult? It Can’t Be Both.**\
+`Trying to save the world and trying to make a lot of money will be an unstable combination.`\
+https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
 
-**Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
-`The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
-https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+**Dustin Moskovitz, an Early Anthropic Investor, Feels a Bit Uneasy About the IPO**\
+`An early investment that Facebook co-founder Dustin Moskovitz made in Anthropic is paying off. But it’s not making him happy.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-dustin-moskovitz.html
 
-**NYT Spelling Bee Answers for November 19, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
+**Where to See Jerry Seinfeld’s Car and Billy Joel’s Motorcycles**\
+`Retromobile, a car show at the Javits Center, specializes in collectibles.`\
+https://www.nytimes.com/2026/11/19/nyregion/retromobile-car-show-javits-center.html
 
-**Villa Where Trump, Xi and Putin Met Once Hosted Kim Jong-il**\
-`The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
-https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
+**Three MAGA Women Who Defined an Era in Congress Are Exiting**\
+`Representatives Marjorie Taylor Greene, Lauren Boebert and Nancy Mace embodied a combative, attention-seeking brand of politics that defined the Republican Congress.`\
+https://www.nytimes.com/2026/11/19/us/politics/three-maga-women-who-defined-an-era-in-congress-are-exiting.html
 
-**Late Night Follows Trump’s Meeting with Xi and Putin in China**\
-`Jimmy Fallon said that the leaders’ timing made sense: “Now that James Bond has been cast, they’re auditioning villains.”`\
-https://www.nytimes.com/2026/11/19/arts/television/late-night-trump-xi-putin.html
+**Inside COP31: Part Trade Show, Part Climate Therapy Session**\
+`A record number of people are attending the U.N. climate talks in Turkey, which has become part trade show, part carnival, part climate therapy session.`\
+https://www.nytimes.com/2026/11/19/climate/cop31-turkey-event-scene.html
 
-**Putin Returns to APEC ‘Family Photo,’ Testing Western Leaders**\
-`The leaders of Australia and Canada defended their decision to join the APEC group portrait as a courtesy to the host, China, despite criticism at home.`\
-https://www.nytimes.com/2026/11/19/world/asia/putin-xi-trump-apec-family-photo.html
+**Anthropic Employees Work Hard, but Don’t Expect Them to Play Hard**\
+`San Francisco isn’t preparing for an Anthropic shopping spree after employees gain newfound wealth from the company’s initial public offering.`\
+https://www.nytimes.com/2026/11/19/us/anthropic-ipo-spending-wealth-san-francisco.html
 
-**Andrey Zvyagintsev Is the Prophet of Putinism**\
-`Andrey Zvyagintsev’s latest film invites viewers to see contemporary Russia in the terms of classical myth.`\
-https://www.nytimes.com/2026/11/19/opinion/zvyagintsev-russia-minotaur-putin.html
+**Sarah Sze’s Artful ‘Constellations’ Invite Wonder and Inclusion**\
+`The artist unveils projects in New Haven, Conn., Brooklyn and San Francisco, where her sculpted soundscape offers a new standard for accessibility.`\
+https://www.nytimes.com/2026/11/19/arts/design/sarah-sze-yale-sfmoma-barclays-center.html
 
-**After Train Crash, Spain Asks if High-Speed Rail Grew Too Fast**\
-`As an election nears, a railway disaster in Spain has set off debate over whether maintenance of its infrastructure kept pace with its booming population.`\
-https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a three-bedroom in Huntington, N.Y., and a four-bedroom in Plainsboro, N.J.`\
+https://www.nytimes.com/2026/11/19/realestate/housing-market-near-nyc.html
 
-**Quote of the Day: Hi, Help Desk, Tech Systems Seem Broken**\
-`Quotation of the Day for Thursday, November 19, 2026.`\
-https://www.nytimes.com/2026/11/19/pageoneplus/quote-of-the-day-hi-help-desk-tech-systems-seem-broken.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are on the Lower East Side, in Morningside Heights and in Astoria.`\
+https://www.nytimes.com/2026/11/19/realestate/housing-market-nyc.html
 
-**Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
-`After a historic result for Israel’s Arab-led parties, Prime Minister Benjamin Netanyahu said the vote was rigged, pointing to the detention of three opposition activists. His chief of staff has admitted being involved with the initial outreach to police.`\
-https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
+**‘Steps’ Review: These Siblings Deserve Better Magic**\
+`In this superficial animated retelling of the Cinderella tale, three sisters must go on a journey to recover the magic they need to set the story back on track.`\
+https://www.nytimes.com/2026/11/19/movies/steps-review.html
 
-**A Village Burned, Its People Killed or Exiled. Was It Genocide?**\
-`Zammona’s erasure was part of a wider campaign of violence against Rohingya Muslims. An international court will rule whether Myanmar is culpable for the atrocities.`\
-https://www.nytimes.com/2026/11/19/world/asia/myanmar-rohingya-village-refugee-genocide.html
+**‘Primetime Preacher$’ Review: Fraud in the Name of God**\
+`This documentary examines the careers and scandals of 1980s televangelists.`\
+https://www.nytimes.com/2026/11/19/movies/primetime-preachers-review.html
 
-**Have High Gas Prices Made You Change How You Drive? Tell Us About It.**\
-`Are you driving less? Car pooling? Using a different vehicle? Tell us how the 2026 energy shock has affected you.`\
-https://www.nytimes.com/2026/11/19/business/energy-environment/gas-prices-iran-war-driving-callout.html
+**‘Minotaur’ Review: A Chilling Remake**\
+`The Russian director Andrey Zvyagintsev reworks an infidelity drama into an antiwar parable.`\
+https://www.nytimes.com/2026/11/19/movies/minotaur-review-a-chilling-remake.html
 
-**How the War in Iran Will Remake the Global Energy Order**\
-`The International Energy Agency, in its most comprehensive analysis of the war’s fallout, found the oil shock could accelerate adoption of alternative power sources.`\
-https://www.nytimes.com/2026/11/19/business/cop31-energy-iea.html
+**‘Josephine’ Review: A Young Witness to Adult Horrors**\
+`The writer-director Beth de Araújo tells the painful and profound story of a girl who witnesses a brutal sexual assault in a park.`\
+https://www.nytimes.com/2026/11/19/movies/josephine-review.html
 
-**From the Front Page: Lincoln Delivers the Gettysburg Address on Nov. 19, 1863**\
-`The president spoke at the dedication of the Soldiers’ National Cemetery near the Civil War battlefield in Pennsylvania.`\
-https://www.nytimes.com/2026/11/19/learning/from-the-front-page-lincoln-delivers-the-gettysburg-address-on-nov-19-1863.html
+**‘Give Me the Ball!’ Review: How Billie Jean King Aced Life**\
+`The octogenarian tennis player recounts loving athletics for as long as she can remember in this vivid documentary about her life and career.`\
+https://www.nytimes.com/2026/11/19/movies/give-me-the-ball-review-billie-jean-king.html
 
-**How to Decode the Xi-Trump Hug**\
-`The welcome China’s leader, Xi Jinping, offered President Trump appeared to reflect a desire for a measure of stability at a time of growing disagreements.`\
-https://www.nytimes.com/2026/11/18/world/asia/xi-trump-hug-shenzhen.html
+**‘Elsinore’ Review: Remember Me**\
+`Andrew Scott is magnificent in a drama about the actor Ian Charleson’s final performance as Hamlet.`\
+https://www.nytimes.com/2026/11/19/movies/elsinore-review.html
 
-**National Book Award for Nonfiction Goes to Writer Denied Visa to Attend**\
-`The author Abdelrahman ElGendy received one of the major American prizes for nonfiction in absentia for his memoir, “Huna.” Hannah Lillith Assadi won the fiction prize.`\
-https://www.nytimes.com/2026/11/18/books/national-book-award-for-nonfiction-goes-to-writer-denied-visa-to-attend.html
+**‘Ash and Crayons’ Review: Ukraine’s Young Victims Are Undaunted**\
+`Evgeny Afineevsky’s documentary captures the harrowing tales and ultimate triumphs of children who were abducted by Russia or severely wounded in attacks.`\
+https://www.nytimes.com/2026/11/19/movies/ash-and-crayons-review-ukraines-young-victims-undaunted.html
 
-**Was China Sending a Musical Message to Japan’s Takaichi During APEC Welcome?**\
-`A song chosen to welcome Sanae Takaichi at the APEC summit in Shenzhen grew out of protests against the American military presence in Japan.`\
-https://www.nytimes.com/2026/11/18/world/asia/japan-china-takaichi-song-sukiyaki-apec.html
+**Ella Langley Sweeps and Taylor Swift Returns at the 2026 CMA Awards**\
+`The “Choosin’ Texas” singer made history and five more key moments from the ceremony.`\
+https://www.nytimes.com/2026/11/19/arts/music/ella-langley-taylor-swift-cma-awards.html
 
-**‘GTA Flu’ Has Schools and Jobs Bracing for Sick Days**\
-`The highly anticipated release of Grand Theft Auto VI is expected to prompt a wave of students and employees to stay home on Thursday.`\
-https://www.nytimes.com/2026/11/18/us/gta-6-sick-work-school.html
+**Book Review: ‘Jolt,’ by Ted Scheinman**\
+`In “Jolt,” Ted Scheinman describes his battle with depression with humor and empathy.`\
+https://www.nytimes.com/2026/11/19/books/review/jolt-ted-scheinman.html
 
-**10 Best Looks From the Country Music Association Awards Red Carpet**\
-`There were rhinestones, cowboy hats and more than one tribute to Dolly Parton.`\
-https://www.nytimes.com/2026/11/18/style/cma-country-music-association-awards-red-carpet.html
+**Rembrandt’s Refugees**\
+`A timely exhibition of work by the Dutch master shows centuries-old art amid the new gloss of an incendiary political issue.`\
+https://www.nytimes.com/2026/11/19/arts/rembrandt-morgan-library.html
 
-**NYT Crossword Answers for Nov. 19, 2026**\
-`James Mattina’s puzzle gets existential.`\
-https://www.nytimes.com/2026/11/18/crosswords/daily-puzzle-2026-11-19.html
+**Military Histories About Air Power**\
+`Three new books capture the promise of aviation and the limits of air power.`\
+https://www.nytimes.com/2026/11/19/books/review/military-history-air-power.html
 
-**‘The Lowdown’ Season 2 Episode 7 Recap: Meat Grinder**\
-`This week the series features Lee at his best and shows off its remarkable emotional range.`\
-https://www.nytimes.com/2026/11/18/arts/television/the-lowdown-season-2-episode-7-recap-meat-grinder.html
+**The Longevity Obsession Has Gone Too Far, Some Experts Say**\
+`Experts speak out against the quest to turn back time.`\
+https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 
-**With Alaska’s Senate Vote Counted, What Comes Next in the Last Frontier?**\
-`The race is scheduled to be certified next week, but the Justice Department is investigating after Republicans lodged cheating allegations against the eventual winner, Mary Peltola.`\
-https://www.nytimes.com/2026/11/18/us/politics/alaska-senate-count.html
+**Google Disrupts Its Search Advertising With Its Embrace of A.I.**\
+`The Silicon Valley giant’s search advertising has long fueled the company. But its search ad growth is slowing as A.I. becomes more prevalent.`\
+https://www.nytimes.com/2026/11/19/technology/google-search-ads-ai.html
 
-**Alaska Republican Narrowly Defeats Independent House Candidate**\
-`Representative Nick Begich III overcame an independent challenger in a year in which Democrats made historic gains but third-party candidates had little success.`\
-https://www.nytimes.com/2026/11/18/us/politics/alaska-nick-begich-wins-house-race.html
+**PREVIEW 2**\
+`The G.T.A. series is more than just a crime simulator — it’s a cartoonish sendup of our country. What happens when reality outruns the joke?`\
+https://www.nytimes.com/2026/11/19/magazine/grand-theft-auto-six.html
 
-**Florida Man Found Guilty in Plot to Kill Haiti’s President**\
-`Christian Emmanuel Sanon, 67, who was convicted in a Miami court, could now face life in prison over the killing of Jovenel Moïse.`\
-https://www.nytimes.com/2026/11/18/world/americas/haiti-pastor-assassination-moise.html
+**F1: Kimi Antonelli Goes From Overwhelmed to Champion**\
+`He replaced Lewis Hamilton at Mercedes for 2025 and faltered in his first year. Then he took charge.`\
+https://www.nytimes.com/2026/11/19/sports/kimi-antonelli-formula-one-champion.html
 
-**Ericka Lomick’s Texas House Win Faces Challenge in State Supreme Court**\
-`The Texas electoral wave carried one Democrat to victory even after she had suspended her campaign. Republicans want her declared ineligible.`\
-https://www.nytimes.com/2026/11/18/us/texas-house-election-ericka-lomick.html
+**F1: No Wins, No Points. For Cadillac, No Problem.**\
+`Consider 2026 the new team's shakedown season, with hopes that the lessons learned will pay off next year.`\
+https://www.nytimes.com/2026/11/19/sports/f1-cadillac.html
 
-**After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
-`South Korea is sending loud emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
-https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
+**Bathrooms Are Getting Bigger and Better**\
+`Spalike features, including steam showers and saunas, have become more common at home.`\
+https://www.nytimes.com/2026/11/19/realestate/bathroom-renovation-trends.html
 
-**At Gloria Steinem Memorial, Michelle Obama, Hillary Clinton and More Big Names Gather**\
-`Former Secretary of State Hillary Clinton and other luminaries spoke at the event, which also featured performances by Cynthia Erivo and Kathy Sledge.`\
-https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-photos.html
+**I’m Sad That My Boyfriend Uses A.I. to Write Love Notes**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wishes a lover would use his own words to express his feelings for her.`\
+https://www.nytimes.com/2026/11/19/well/mind/ask-therapist-ai-love-notes.html
 
-**Obama Tells Incoming House Democrats to Keep Up Outreach in Red Areas**\
-`The former president told the newly elected lawmakers that the country was going through a moment of “generational change.” He also praised Representative Hakeem Jeffries, the likely next speaker.`\
-https://www.nytimes.com/2026/11/18/us/politics/barack-obama-house-democrats.html
+**Jewelry Helps Her Keep Her Scottish Heritage Alive**\
+`Some of Ellis Mhairi Cameron’s creations echo artifacts found on land that has been in her family since the 1500s.`\
+https://www.nytimes.com/2026/11/19/fashion/jewelry-ellis-mahairi-cameron-london.html
 
-**Takeaways From the 2026 DealBook Summit**\
-`Leaders in artificial intelligence and governments discussed America’s shifting politics, the reverberations of Jensen Huang’s ouster at Nvidia and more on Wednesday.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-musk-altman-ellison.html
+**Word of the Day: kerfuffle**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/19/learning/word-of-the-day-kerfuffle.html
 
-**Widespread Tech Outages Put Focus on Trump’s National Security Cuts**\
-`Lawmakers and cyberdefense experts said diminished staffing at the Cybersecurity and Infrastructure Security Agency and National Security Council could be hobbling the administration’s response.`\
-https://www.nytimes.com/2026/11/18/us/politics/tech-outages-trump-national-security.html
+**When Siblings Go Into a Craft Business Together**\
+`Experts say it takes a special relationship, something these pairs seem to embody.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-siblings.html
 
-**‘I’m Not MAGA’: Musk Distances Himself From G.O.P. After Midterms**\
-`Elon Musk, chief executive of Starlink and Tesla, said during the DealBook Summit on Wednesday that he felt “foolish” for his large political donations to Republicans.`\
-https://www.nytimes.com/video/admin/100000011294539/musk-midterms-republican-maga.html
+**An Unusual Entrance to the Bangkok Art Biennale**\
+`“Vestibule,” a 13-foot-long woven artwork, has become a portal to one of the event areas.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-woven-artwork-bangkok-art-biennale-thailand.html
 
-**Elon Musk Plays Down G.O.P. Support After Midterm Loss**\
-`The C.E.O. of SpaceX, who spent millions to back Republican candidates, sought to portray himself as a political moderate.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
+**This Painter Makes Surfaces Look Like What They Are Not**\
+`Frantz Wehrlé uses his skills as a decorative painter to make surfaces look like something they are not.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-decorative-painting-frantz-wehrle.html
 
-**Watch: Christine Lagarde Wants to Fight Fake News**\
-`In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
+**In Manhattan, Millions and Millions of Buttons**\
+`Lou Lou Buttons, a Manhattan shop, boasts more than 10 million fasteners in all shapes, sizes and materials.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-lou-lou-buttons-manhattan.html
 
-**Live Updates: Trump Holds First Summit With Xi and Putin, Whom He Calls ‘Friend’**\
-`President Trump said that he would bring up the war in Ukraine at the first-ever meeting of leaders of Russia, China and the United States.`\
-https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+**Palestinian Women Use Embroidery to Tell Their Stories**\
+`Traditional needlework, used to decorate footwear and other items, is helping members of a cooperative to support their families in the West Bank.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-tatreez-embroidery-resolute-rgl-palestine.html
 
-**Watch the Biggest Interviews at the DealBook Summit**\
-`See the full conversations with Prime Minister Mark Carney of Canada, OpenAI’s Sam Altman and Greg Brockman, Mayor Zohran Mamdani of New York, SpaceX’s Elon Musk and more.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/watch-the-biggest-interviews-at-the-dealbook-summit.html
+**Jacqueline Rabun Expands an Influential Jewelry Collection**\
+`Jacqueline Rabun has expanded her Cave line, designs she created in 2002 to be a comfort in times of global turmoil.`\
+https://www.nytimes.com/2026/11/19/fashion/jewelry-jacqueline-rabun-cave-collection.html
 
-**Watch: Elon Musk Says He’s a Political Moderate, ‘Not MAGA’**\
-`Despite his heavy support of Republicans, the SpaceX and Tesla C.E.O. said in an interview at the DealBook Summit that “there are positives and negatives in both parties.”`\
-https://www.nytimes.com/2026/11/18/business/watch-elon-musk-dealbook-summit-not-maga.html
+**Seeds at Qatar’s Years of Culture Event Link to Mexico**\
+`The artist Fernando Laposse used a historic agricultural connection to shape his exhibits.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-qatar-years-of-culture-mexico.html
 
-**Watch: Robinhood’s C.E.O. Says He Shouldn’t Decide What You Can Trade**\
-`Speaking alongside the Nasdaq chief Adena Friedman and the Polymarket founder Shayne Coplan, Vlad Tenev said regular investors should have access to more opportunities.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/adena-friedman-vlad-tenev-shayne-copland-dealbook-summit.html
+**William Amor’s Blooms Are Not What You Would Expect**\
+`William Amor uses discards such as plastic bottles and cigarette butts to create faux roses, irises and other blossoms.`\
+https://www.nytimes.com/2026/11/19/fashion/craftsmanship-faux-blooms-william-amor-paris.html
 
-**How Nvidia Chips Ended Up Within Reach of China’s Military**\
-`Alibaba, the Chinese internet giant behind the company at the center of the Nvidia spy saga, has used its A.I. computing technology to aid a lab with links to China’s military.`\
-https://www.nytimes.com/2026/11/18/technology/nvidia-alibaba-china-military.html
+**Exhibition Shows Roman Skill in Ancient Scotland**\
+`Storage jars and a copper alloy necklet are among the displays at the National Museum in Edinburgh.`\
+https://www.nytimes.com/2026/11/19/fashion/exhibition-roman-occupation-national-museum-of-scotland-edinburgh.html
 
-**How Anthropic’s I.P.O. Valuation Stacks Up With the Biggest Tech Debuts Since the ’80s**\
-`Anthropic’s initial public offering valued the A.I. company at $1.5 trillion on Wednesday, the latest in a wave of humongous tech I.P.O.s.`\
-https://www.nytimes.com/interactive/2026/11/18/technology/anthropic-ipo-compared.html
-
-**Watch: Hailey Bieber Says Social Media Has Affected Her Mental Health**\
-`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said in an interview at the DealBook Summit that online comments can be “distorting to the mind.”`\
-https://www.nytimes.com/2026/11/18/business/watch-hailey-bieber-social-media-mental-health.html
-
-**Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
-`The founder of Anduril Industries, a defense tech company, is advising the Pentagon on how to map out the future of war.`\
-https://www.nytimes.com/2026/11/18/business/watch-palmer-luckey-ai-dealbook-summit.html
-
-**Watch: Satya Nadella on A.I.’s Threat to Global Infrastructure**\
-`In an interview at the DealBook Summit, the Microsoft chief executive said A.I. tools were finding bugs at a breakneck pace.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/watch-satya-nadella-dealbook-summit.html
-
-**What to Do Before the Next Big Tech Outage?**\
-`A cascade of recent tech failures has rattled Americans and prompted many to look for ways to prepare for a prolonged digital disruption. Experts say it’s much like preparing for a storm.`\
-https://www.nytimes.com/2026/11/18/technology/tech-outages-emergency-prep.html
+**Why Sean Brown’s Curves Tote Bag Became a Cult Favorite**\
+`The colorful, stretchy bags from Curves have become the ultimate if-you-know-you-know accessory.`\
+https://www.nytimes.com/2026/11/19/style/sean-brown-curves-tote-bag.html
 
