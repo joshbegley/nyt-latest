@@ -1,3 +1,27 @@
+**Judge Allows Trump’s $15 Billion Case Against The Times to Proceed**\
+`Mr. Trump accused the news organization and the book publisher Penguin Random House of disparaging his reputation as a successful businessman.`\
+https://www.nytimes.com/2026/11/19/business/media/new-york-times-trump-defamation-case.html
+
+**Pouring Rain and High Winds Are Tearing Through California**\
+`Officials issued evacuation warnings in Southern California on Thursday, as the storm that flooded San Francisco continued sweeping through the state.`\
+https://www.nytimes.com/video/weather/100000011295937/storm-rain-california.html
+
+**Set Your Holiday Table Like a Milanese Design Gallerist**\
+`Nina Yashar shows us how, especially at this time of year, her eclectic tastes play out in her own dining room.`\
+https://www.nytimes.com/2026/11/19/t-magazine/holiday-tablescaping-design-nina-yashar.html
+
+**The Golden Age of Fashion?**\
+`Gold was everywhere on the runways earlier this fall. T Magazine’s Nick Haramis considers the material’s history and symbolism in the latest episode of “Anatomy of a Trend.”`\
+https://www.nytimes.com/video/t-magazine/100000011297174/the-golden-age-of-fashion.html
+
+**Anthropic’s I.P.O. Turns Tech Researchers Into Overnight Millionaires**\
+`Many people who joined the A.I. company a few years ago might have had little reason to think how big Anthropic would become. They are now worth tens of millions of dollars, if not more.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-employees-payout.html
+
+**In Florida, More Rain Threatens Flooded Areas and Roads**\
+`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 24 hours, forecasters said.`\
+https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
+
 **This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
 `Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
