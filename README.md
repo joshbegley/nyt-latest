@@ -1,3 +1,7 @@
+**Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
+`Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
+https://www.nytimes.com/2026/11/18/us/atlanta-arch-russia-flag-trump.html
+
 **How Trump Can Avoid a Global Nuclear Arms Race**\
 `In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/us/sean-duffy-ground-stop-faa-trump.html
 **Watch: Canada’s Prime Minister on Negotiating With President Trump**\
 `He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/carney-canada-trade-deal-trump.html
-
-**New Members Get a Congress Crash Course With Grade School Vibes**\
-`Newly elected House members are attending freshman orientation on Capitol Hill, where their introduction to Congress feels a lot like the first days of school.`\
-https://www.nytimes.com/2026/11/18/us/politics/new-members-congress.html
 

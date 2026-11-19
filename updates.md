@@ -1,3 +1,11 @@
+**How Trump Can Avoid a Global Nuclear Arms Race**\
+`In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
+https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
+
+**Satya Nadella Explains How A.I. May Cause Future Outages**\
+`Satya Nadella, the C.E.O. of Microsoft, said that the rate at which software bugs are discovered and patched could increase the likelihood of future global software outages.`\
+https://www.nytimes.com/video/business/dealbook/100000011293468/microsoft-satya-nadella-ai-outages.html
+
 **Watch: Why the European Central Bank President Stepped Down**\
 `In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html

@@ -1,3 +1,11 @@
+**How Trump Can Avoid a Global Nuclear Arms Race**\
+`In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
+https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
+
+**Satya Nadella Explains How A.I. May Cause Future Outages**\
+`Satya Nadella, the C.E.O. of Microsoft, said that the rate at which software bugs are discovered and patched could increase the likelihood of future global software outages.`\
+https://www.nytimes.com/video/business/dealbook/100000011293468/microsoft-satya-nadella-ai-outages.html
+
 **Watch: Why the European Central Bank President Stepped Down**\
 `In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/carney-canada-trade-deal-tr
 **New Members Get a Congress Crash Course With Grade School Vibes**\
 `Newly elected House members are attending freshman orientation on Capitol Hill, where their introduction to Congress feels a lot like the first days of school.`\
 https://www.nytimes.com/2026/11/18/us/politics/new-members-congress.html
-
-**When Americans Sing Together**\
-`While campaigning, Rob Sand, now Iowa’s governor-elect, invited audiences at his town halls to sing “America the Beautiful” together. On “The Ezra Klein Show,” Sand describes what this practice means to him.`\
-https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-together.html
-
-**Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
-`While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
-https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
 
