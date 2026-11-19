@@ -1,3 +1,7 @@
+**No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
+`Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
+https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
+
 **Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
 `After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
 https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-
 **Hillary Clinton: What Trump Should Have Said to Putin**\
 `On the one area where the president could still be remembered as a winner.`\
 https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
-
-**Putin, Trump and Xi Condemn Nuclear War as Europe Watches Closely**\
-`After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
-https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\

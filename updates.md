@@ -1,3 +1,7 @@
+**No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
+`Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
+https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
+
 **NYC Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
 `Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
 https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
