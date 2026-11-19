@@ -1,3 +1,31 @@
+**After Train Crash, Spain Asks if High-Speed Rail Grew Too Fast**\
+`As an election nears, a railway disaster in Spain has set off debate over whether maintenance of its infrastructure kept pace with its booming population.`\
+https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
+
+**Quote of the Day: Hi, Help Desk, Tech Systems Seem Broken**\
+`Quotation of the Day for Thursday, November 19, 2026.`\
+https://www.nytimes.com/2026/11/19/pageoneplus/quote-of-the-day-hi-help-desk-tech-systems-seem-broken.html
+
+**Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
+`Prime Minister Benjamin Netanyahu of Israel had claimed the detention of three opposition activists from an Arab-led party was evidence of vote rigging. His chief of staff has admitted being involved with the initial outreach to police.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
+
+**A Village Burned, Its People Killed or Exiled. Was It Genocide?**\
+`Zammona’s erasure was part of a wider campaign of violence against Rohingya Muslims. An international court will rule whether Myanmar is culpable for the atrocities.`\
+https://www.nytimes.com/2026/11/19/world/asia/myanmar-rohingya-village-refugee-genocide.html
+
+**Have High Gas Prices Made You Change How You Drive? Tell Us About It.**\
+`Are you driving less? Car pooling? Using a different vehicle? Tell us how the 2026 energy shock has affected you.`\
+https://www.nytimes.com/2026/11/19/business/energy-environment/gas-prices-iran-war-driving-callout.html
+
+**How the War in Iran Will Remake the Global Energy Order**\
+`The International Energy Agency, in its most comprehensive analysis of the war’s fallout, found the oil shock could accelerate adoption of alternative power sources.`\
+https://www.nytimes.com/2026/11/19/business/cop31-energy-iea.html
+
+**From the Front Page: Lincoln Delivers the Gettysburg Address on Nov. 19, 1863**\
+`The president spoke at the dedication of the Soldiers’ National Cemetery near the Civil War battlefield in Pennsylvania.`\
+https://www.nytimes.com/2026/11/19/learning/from-the-front-page-lincoln-delivers-the-gettysburg-address-on-nov-19-1863.html
+
 **Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
 `The summit will take place at a lakeside resort in China. President Trump was meeting President Vladimir V. Putin of Russia before talks with Xi Jinping of China and the three-way meeting.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
