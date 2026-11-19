@@ -1,3 +1,11 @@
+**California Storm Sweeps South, Prompting Some Evacuation Warnings in L.A.**\
+`A system that earlier flooded San Francisco was hitting Southern California on Thursday.`\
+https://www.nytimes.com/2026/11/19/weather/california-rain-sf-la.html
+
+**Hillary Clinton: What Trump Should Have Said to Putin**\
+`On the one area where the president could still be remembered as a winner.`\
+https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
+
 **Greenland Pulls Closer to the U.S. — by an Hour**\
 `Greenland’s politicians voted to change the Arctic island’s time zone to be farther from Denmark, its former colonial power, and closer to the United States.`\
 https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.html

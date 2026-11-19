@@ -1,3 +1,7 @@
+**California Storm Sweeps South, Prompting Some Evacuation Warnings in L.A.**\
+`A system that earlier flooded San Francisco was hitting Southern California on Thursday.`\
+https://www.nytimes.com/2026/11/19/weather/california-rain-sf-la.html
+
 **Greenland Pulls Closer to the U.S. — by an Hour**\
 `Greenland’s politicians voted to change the Arctic island’s time zone to be farther from Denmark, its former colonial power, and closer to the United States.`\
 https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.html
@@ -10,7 +14,7 @@ https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-
 `With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
 https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
 
-**Hillary Clinton: Trump Should Stop Appeasing Putin**\
+**Hillary Clinton: What Trump Should Have Said to Putin**\
 `On the one area where the president could still be remembered as a winner.`\
 https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
 
@@ -165,14 +169,6 @@ https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-c
 **Don’t Play Anthropic’s Game**\
 `Trying to save the world and trying to make a lot of money will be an unstable combination.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
-
-**Dustin Moskovitz, an Early Anthropic Investor, Feels a Bit Uneasy About the IPO**\
-`An early investment that Facebook co-founder Dustin Moskovitz made in Anthropic is paying off. But it’s not making him happy.`\
-https://www.nytimes.com/2026/11/19/business/anthropic-ipo-dustin-moskovitz.html
-
-**Where to See Jerry Seinfeld’s Car and Billy Joel’s Motorcycles**\
-`Retromobile, a car show at the Javits Center, specializes in collectibles.`\
-https://www.nytimes.com/2026/11/19/nyregion/retromobile-car-show-javits-center.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
