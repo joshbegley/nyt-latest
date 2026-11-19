@@ -1,3 +1,11 @@
+**Watch: Why the European Central Bank President Stepped Down**\
+`In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html
+
+**A.I. Makes More Tech Outages Likely, Microsoft’s Chief Warns**\
+`Satya Nadella said that A.I. tools were finding cybersecurity bugs at a breakneck pace, and that companies were having to create fixes and deploy them “instantaneously.”`\
+https://www.nytimes.com/2026/11/18/business/dealbook/microsoft-satya-nadella-outages-ai.html
+
 **2 Men Used Ponzi Scheme to Steal Over $600 Million, U.S. Says**\
 `The Indiana investment fund Backward Hat Capital, founded by Phillip Williams and Devin Johnson, reported monthly returns that were “largely illusory,” prosecutors said.`\
 https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/opinion/100000011292757/when-americans-sing-togeth
 **Trump, Xi and Putin Will Sit Down for the First Time. It Won’t Be Like Yalta.**\
 `While the three leaders would like to project the image that they are guiding the world order, they are unlikely to settle major issues at their gathering in Shenzhen, China.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-xi-putin-summit-yalta.html
-
-**Seta Manoukian, a Painter and Buddhist Nun, Tells Her Story**\
-`Seta Manoukian says there is no separation between her art and her spiritual practice.`\
-https://www.nytimes.com/2026/11/18/arts/design/seta-manoukian-frieze-abu-dhabi.html
-
-**An Incubator for Arts in Abu Dhabi Quietly Supports New Talent**\
-`As the arts scene in the U.A.E. continues to expand, the 421 Arts Campus provides space, time and funding to help artists develop their visions and skills.`\
-https://www.nytimes.com/2026/11/18/arts/design/frieze-abu-dhabi-421-arts.html
 
