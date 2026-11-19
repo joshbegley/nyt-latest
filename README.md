@@ -1,3 +1,7 @@
+**See Trump’s Conflicting Plans for the Triumphal Arch**\
+`The president is rebranding the triumphal arch in Washington as a military complex that would also host tourists.`\
+https://www.nytimes.com/interactive/2026/11/19/us/trump-arc-washington-military.html
+
 **El Niño Rains Submerge Parts of South and Central Florida**\
 `Heavy rains battered Florida for a third day on Thursday, drenching Broward County with about 15 inches of rain over a 24-hour period.`\
 https://www.nytimes.com/video/weather/100000011296779/el-nio-rain-florida.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/opinion/ice-tactics.html
 **Musk Says He Feels ‘Foolish’ for Spending Nearly $500 Million on Midterms**\
 `At The New York Times’s Dealbook Summit, Elon Musk said that he felt “foolish” for spending nearly $500 million on the midterm elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011295981/elon-musk-spending-midterm-elections.html
-
-**Top Massachusetts Court to Weigh Lindsay Clancy’s Motion to Dismiss**\
-`Her lawyers plan to argue in January that the first-degree murder charges against her should be dropped following her mistrial.`\
-https://www.nytimes.com/2026/11/19/us/lindsay-clancy-trial-juror-appeal.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

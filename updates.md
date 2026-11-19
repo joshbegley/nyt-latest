@@ -1,3 +1,15 @@
+**El Niño Rains Submerge Parts of South and Central Florida**\
+`Heavy rains battered Florida for a third day on Thursday, drenching Broward County with about 15 inches of rain over a 24-hour period.`\
+https://www.nytimes.com/video/weather/100000011296779/el-nio-rain-florida.html
+
+**Anthropic’s Value Surges in Public Debut**\
+`Also, U.N. court rules that Myanmar committed genocide. Here’s the latest at the end of Thursday.`\
+https://www.nytimes.com/2026/11/19/briefing/anthropic-public-debut.html
+
+**Nvidia Asked to Sell Chips to Companies Tied to Chinese Military and Megaspeed**\
+`Lawmakers released confidential information showing the Commerce Department had approved sales of more than 800,000 A.I. chips to Chinese companies, some with military ties.`\
+https://www.nytimes.com/2026/11/19/business/economy/nvidia-chips-commerce-china-huang.html
+
 **Judge Allows Trump’s $15 Billion Case Against The Times to Proceed**\
 `Mr. Trump accused the news organization and the book publisher Penguin Random House of disparaging his reputation as a successful businessman.`\
 https://www.nytimes.com/2026/11/19/business/media/new-york-times-trump-defamation-case.html
