@@ -1,3 +1,11 @@
+**Senate Republicans Block Bid to Rein in Trump on Iran War**\
+`In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
+https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
+
+**Workers at Holiday Inn Were Threatened With Deportation, Lawsuit Says**\
+`The New York attorney general said that immigrant workers renovating a Rochester hotel had lived in unfit conditions and been underpaid.`\
+https://www.nytimes.com/2026/11/19/nyregion/immigrants-hotel-rochester-lawsuit.html
+
 **No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
 `Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
 https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
@@ -20,7 +28,7 @@ https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-
 
 **Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
 `The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
-https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
+https://www.nytimes.com/2026/11/19/arts/michael-jackson-hush-money-deals.html
 
 **Outrage Over Another Cruel ICE Tactic**\
 `Readers react to new reports of abuses by ICE. Also: Air traffic upgrades; beyond the Republican weirdos; a family’s touch.`\
@@ -157,10 +165,6 @@ https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-
 **Women Led Country’s Big-Tent Revival in 2026**\
 `With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
 https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
-
-**Hillary Clinton: What Trump Should Have Said to Putin**\
-`On the one area where the president could still be remembered as a winner.`\
-https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\

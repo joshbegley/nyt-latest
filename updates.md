@@ -1,3 +1,15 @@
+**Senate Republicans Block Bid to Rein in Trump on Iran War**\
+`In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
+https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
+
+**Workers at Holiday Inn Were Threatened With Deportation, Lawsuit Says**\
+`The New York attorney general said that immigrant workers renovating a Rochester hotel had lived in unfit conditions and been underpaid.`\
+https://www.nytimes.com/2026/11/19/nyregion/immigrants-hotel-rochester-lawsuit.html
+
+**Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
+`The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
+https://www.nytimes.com/2026/11/19/arts/michael-jackson-hush-money-deals.html
+
 **No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
 `Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
 https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
