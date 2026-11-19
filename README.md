@@ -1,3 +1,11 @@
+**‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
+`Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
+https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html
+
+**The Secret History of a 1972 Case on Press Freedom**\
+`An F.B.I. campaign against the Black Panthers and a justice’s questionable failure to recuse himself dealt a blow to protections for confidential sources.`\
+https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-freedom.html
+
 **Trump Seeks to Project Power Abroad While Forced to Share It at Home**\
 `Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
 **NYT Strands Hints for November 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
 https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
-
-**NYT Connections Answers for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/connections-companion-1258.html
-
-**Iran Keeps Up Unrelenting Attacks on Ships in the Strait of Hormuz**\
-`A recent strike on a ship that had already been disabled might signal a dangerous new phase for tankers operating in the Persian Gulf and surrounding waters.`\
-https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
