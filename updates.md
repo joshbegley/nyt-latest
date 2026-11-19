@@ -1,3 +1,7 @@
+**Trump, Xi and Putin Seek to Project Power at Their First Summit**\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin said that Russia would not negotiate with Ukraine on a cease-fire.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **What to Know About Anthropic’s Public Debut**\
 `Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
 https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html

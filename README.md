@@ -86,13 +86,13 @@ https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-u
 `The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after a record-setting offering that valued the company at roughly $1.5 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
-**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
-`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
-https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
-
 **Inside a Rohingya Camp After a Genocide Ruling**\
 `On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
 https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
