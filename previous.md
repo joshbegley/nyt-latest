@@ -1,3 +1,7 @@
+**A Conversation on Middle East Headlines**\
+`Plus: The Nvidia spy plot, covering measles and your questions, answered.`\
+https://www.nytimes.com/2026/11/19/insider/a-conversation-on-middle-east-headlines.html
+
 **Anthropic Debuts on Wall Street as a $2 Trillion Company**\
 `The San Francisco company was the first major A.I. lab to go public in a highly anticipated moment for the tech industry.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
@@ -54,7 +58,7 @@ https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
 `Gaps in protections for lawmaker communications loom larger as the administration amplifies its threats to criminally investigate Democrats for aggressive oversight efforts.`\
 https://www.nytimes.com/2026/11/19/us/congress-phone-email-data-doj-wyden.html
 
-**Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
+**At APEC Summit, U.S., China and Russia Vow to Increase Oil Supply Amid Global Energy Transition**\
 `The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
 https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
 
@@ -153,10 +157,6 @@ https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-
 **Behind Trump Meeting, Xi and Putin Share a Vision of Usurping U.S. Power**\
 `President Trump joined the Chinese and Russian leaders for a summit in Shenzhen, even though the two autocrats are trying to reverse America’s victory in the Cold War.`\
 https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russia.html
-
-**U.N. Court Rules Myanmar Committed Genocide Against the Rohingya**\
-`The International Court of Justice ruled that Myanmar committed genocide against the Rohingya Muslim minority in a case brought by Gambia.`\
-https://www.nytimes.com/video/world/asia/100000011295153/myanmar-genocide-rohingya-icj.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

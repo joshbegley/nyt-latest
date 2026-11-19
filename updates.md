@@ -1,3 +1,11 @@
+**A Conversation on Middle East Headlines**\
+`Plus: The Nvidia spy plot, covering measles and your questions, answered.`\
+https://www.nytimes.com/2026/11/19/insider/a-conversation-on-middle-east-headlines.html
+
+**At APEC Summit, U.S., China and Russia Vow to Increase Oil Supply Amid Global Energy Transition**\
+`The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
+https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
+
 **Anthropic Debuts on Wall Street as a $2 Trillion Company**\
 `The San Francisco company was the first major A.I. lab to go public in a highly anticipated moment for the tech industry.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
