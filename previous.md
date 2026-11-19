@@ -1,3 +1,15 @@
+**‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
+`Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
+https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html
+
+**The Secret History of a 1972 Case on Press Freedom**\
+`An F.B.I. campaign against the Black Panthers and a justice’s questionable failure to recuse himself dealt a blow to protections for confidential sources.`\
+https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-freedom.html
+
+**Trump Seeks to Project Power Abroad While Forced to Share It at Home**\
+`Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
+https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
+
 **Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
 `The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
@@ -87,16 +99,16 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
 **Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
-`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
+`Investor enthusiasm for the artificial intelligence giant’s stock initially sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
-
-**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
-`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
-https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 **Inside a Rohingya Camp After a Genocide Ruling**\
 `On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
 https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
@@ -153,14 +165,6 @@ https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
 **NYT Strands Hints for November 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
 https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
-
-**NYT Connections Answers for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/connections-companion-1258.html
-
-**Iran Keeps Up Unrelenting Attacks on Ships in the Strait of Hormuz**\
-`A recent strike on a ship that had already been disabled might signal a dangerous new phase for tankers operating in the Persian Gulf and surrounding waters.`\
-https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

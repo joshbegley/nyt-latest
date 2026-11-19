@@ -1,3 +1,19 @@
+**‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
+`Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
+https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html
+
+**The Secret History of a 1972 Case on Press Freedom**\
+`An F.B.I. campaign against the Black Panthers and a justice’s questionable failure to recuse himself dealt a blow to protections for confidential sources.`\
+https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-freedom.html
+
+**Trump Seeks to Project Power Abroad While Forced to Share It at Home**\
+`Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
+https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
+
+**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant’s stock initially sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
 `The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
