@@ -186,10 +186,6 @@ https://www.nytimes.com/2026/11/19/movies/ash-and-crayons-review-ukraines-young-
 `The “Choosin’ Texas” singer made history and five more key moments from the ceremony.`\
 https://www.nytimes.com/2026/11/19/arts/music/ella-langley-taylor-swift-cma-awards.html
 
-**Book Review: ‘Jolt,’ by Ted Scheinman**\
-`In “Jolt,” Ted Scheinman describes his battle with depression with humor and empathy.`\
-https://www.nytimes.com/2026/11/19/books/review/jolt-ted-scheinman.html
-
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
