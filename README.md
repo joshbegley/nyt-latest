@@ -1,3 +1,7 @@
+**ICE Officers Begin Training on Car Stops at Brooklyn Military Compound**\
+`Immigration and Customs Enforcement was ordered to expand training on car stops. The exercises come after a series of officer-involved shootings, including an agent who shot a Dominican migrant who was in his vehicle in October.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
+
 **Why Billie Jean King Struggled in Her First Marriage**\
 `The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
 https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/19/briefing/grand-theft-auto-vi.html
 **Russia’s Takeover of Japan Tobacco Units Deals $8.6 Billion Blow**\
 `The move against the Japanese government-backed cigarette maker highlights worsening tensions between the countries, even as their leaders try to keep diplomatic channels open.`\
 https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
-
-**‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
-`A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
-https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

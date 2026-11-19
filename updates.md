@@ -1,3 +1,11 @@
+**Why Billie Jean King Struggled in Her First Marriage**\
+`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
+https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
+
+**The Relationship Crisis Behind Billie Jean King’s Big Game**\
+`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, about painful feelings she had to suppress to focus on beating Bobby Riggs in the famous “Battle of the Sexes” match in 1973.`\
+https://www.nytimes.com/video/podcasts/100000011295629/the-relationship-crisis-behind-billie-jean-kings-big-game.html
+
 **At Summit With Xi and Putin, Trump Seeks to Project Power Abroad While Sharing It at Home**\
 `Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
