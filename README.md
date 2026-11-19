@@ -1,3 +1,11 @@
+**MAGA’s Stumble Into the Wilderness**\
+`How Trump betrayed his base`\
+https://www.nytimes.com/video/opinion/100000011291587/magas-stumble-into-the-wilderness.html
+
+**The Tuners**\
+`In the shadows of one of the world’s most prestigious piano contests, the piano tuners are battling through their own competition.`\
+https://www.nytimes.com/video/opinion/100000010820651/the-tuners.html
+
 **Death and Taxes. Rats and Real Estate.**\
 `The inevitabilities of New Yorkers’ lives.`\
 https://www.nytimes.com/2026/11/19/podcasts/rats-real-estate-serial-new-york.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-s
 `Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
 https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
 
-**Live Updates: U.N. Court Issues Ruling in Rohingya Genocide Case**\
+**Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/watch-satya-nadella-dealboo
 **What to Do Before the Next Big Tech Outage?**\
 `A cascade of recent tech failures has rattled Americans and prompted many to look for ways to prepare for a prolonged digital disruption. Experts say it’s much like preparing for a storm.`\
 https://www.nytimes.com/2026/11/18/technology/tech-outages-emergency-prep.html
-
-**Mamdani Talks Trump, Taxes and Oct. 7 at DealBook Summit**\
-`In a wide-ranging conversation, Mayor Zohran Mamdani of New York discussed the midterms, President Trump and that “tax the rich” video.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-summit.html
-
-**Mamdani Reflects on Relationship With Trump**\
-`Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
-https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
