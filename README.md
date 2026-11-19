@@ -1,3 +1,7 @@
+**Women Led Country’s Big-Tent Revival in 2026**\
+`With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
+https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
+
 **Hillary Clinton: Trump Should Stop Appeasing Putin**\
 `On the one area where the president could still be remembered as a winner.`\
 https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
@@ -169,14 +173,6 @@ https://www.nytimes.com/2026/11/19/us/politics/three-maga-women-who-defined-an-e
 **Inside COP31: Part Trade Show, Part Climate Therapy Session**\
 `A record number of people are attending the U.N. climate talks in Turkey, which has become part trade show, part carnival, part climate therapy session.`\
 https://www.nytimes.com/2026/11/19/climate/cop31-turkey-event-scene.html
-
-**Anthropic Employees Work Hard, but Don’t Expect Them to Play Hard**\
-`San Francisco isn’t preparing for an Anthropic shopping spree after employees gain newfound wealth from the company’s initial public offering.`\
-https://www.nytimes.com/2026/11/19/us/anthropic-ipo-spending-wealth-san-francisco.html
-
-**Sarah Sze’s Artful ‘Constellations’ Invite Wonder and Inclusion**\
-`The artist unveils projects in New Haven, Conn., Brooklyn and San Francisco, where her sculpted soundscape offers a new standard for accessibility.`\
-https://www.nytimes.com/2026/11/19/arts/design/sarah-sze-yale-sfmoma-barclays-center.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
