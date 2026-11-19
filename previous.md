@@ -1,3 +1,11 @@
+**Death and Taxes. Rats and Real Estate.**\
+`The inevitabilities of New Yorkers’ lives.`\
+https://www.nytimes.com/2026/11/19/podcasts/rats-real-estate-serial-new-york.html
+
+**15-Minute Lesson Plan: ‘Anatomy of a Scene’**\
+`How can this Times feature about popular movies help students learn to think analytically about texts of all kinds?`\
+https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-scene.html
+
 **Grand Theft Auto VI Debuts to Much Excitement**\
 `Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
 https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-de
 **Elon Musk Says He’s ‘Not MAGA’**\
 `In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
 https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-says-hes-not-maga.html
-
-**Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
-`Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
-https://www.nytimes.com/2026/11/18/us/atlanta-arch-russia-flag-trump.html
-
-**How Trump Can Avoid a Global Nuclear Arms Race**\
-`In China, Mr. Trump has the best chance in more than a decade to start to steer the world off the path of an unconstrained three-way nuclear arms race.`\
-https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
 

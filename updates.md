@@ -1,3 +1,11 @@
+**Death and Taxes. Rats and Real Estate.**\
+`The inevitabilities of New Yorkers’ lives.`\
+https://www.nytimes.com/2026/11/19/podcasts/rats-real-estate-serial-new-york.html
+
+**15-Minute Lesson Plan: ‘Anatomy of a Scene’**\
+`How can this Times feature about popular movies help students learn to think analytically about texts of all kinds?`\
+https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-scene.html
+
 **Grand Theft Auto VI Debuts to Much Excitement**\
 `Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
 https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
