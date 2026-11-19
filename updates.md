@@ -1,3 +1,23 @@
+**Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
+`The founder of Anduril Industries, a defense tech company, is advising the Pentagon on how to map out the future of war.`\
+https://www.nytimes.com/2026/11/18/business/watch-palmer-luckey-ai-dealbook-summit.html
+
+**Watch: Satya Nadella on A.I.’s Threat to Global Infrastructure**\
+`In an interview at the DealBook Summit, the Microsoft chief executive said A.I. tools were finding bugs at a breakneck pace.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-satya-nadella-dealbook-summit.html
+
+**What to Do Before the Next Big Tech Outage?**\
+`A cascade of recent tech failures has rattled Americans and prompted many to look for ways to prepare for a prolonged digital disruption. Experts say it’s much like preparing for a storm.`\
+https://www.nytimes.com/2026/11/18/technology/tech-outages-emergency-prep.html
+
+**Watch: Elon Musk Says He’s ‘Not MAGA’**\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+
+**Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
+`The Colombian president said his nation would not allow American forces to take part in anti-cartel operations on its soil.`\
+https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
+
 **Mamdani Talks Trump, Taxes and Oct. 7 at DealBook Summit**\
 `In a wide-ranging conversation, Mayor Zohran Mamdani of New York discussed the midterms, President Trump and that “tax the rich” video.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-summit.html

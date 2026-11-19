@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-sum
 `Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
-**Watch: Elon Musk Says He’s ‘Not MAGA’**\
+**Elon Musk Says He’s ‘Not MAGA’**\
 `In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
 https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
 
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/11/18/opinion/trump-xi-putin-china-nuclear.html
 `Satya Nadella, the C.E.O. of Microsoft, said that the rate at which software bugs are discovered and patched could increase the likelihood of future global software outages.`\
 https://www.nytimes.com/video/business/dealbook/100000011293468/microsoft-satya-nadella-ai-outages.html
 
-**Watch: Why the European Central Bank President Stepped Down**\
+**Why the European Central Bank President Stepped Down**\
 `In an interview with Andrew Ross Sorkin at the DealBook Summit, the president of the European Central Bank, Christine Lagarde, said she wanted to use her voice and decades of experience against what she said was “fake news” and “misrepresentations” of European elections.`\
 https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagarde-eu-central-bank-dealbook.html
 
@@ -46,19 +46,19 @@ https://www.nytimes.com/2026/11/18/business/dealbook/microsoft-satya-nadella-out
 `The Indiana investment fund Backward Hat Capital, founded by Phillip Williams and Devin Johnson, reported monthly returns that were “largely illusory,” prosecutors said.`\
 https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.html
 
-**Watch: Executives Discuss the Line Between Prediction Markets and Gambling**\
+**Executives Discuss the Line Between Prediction Markets and Gambling**\
 `In an interview with Andrew Ross Sorkin at the DealBook Summit, Shayne Coplan, the founder of Polymarket, Vlad Tenev of Robinhood and Adena Friedman, the president and C.E.O. of Nasdaq speak about the future of the prediction market industry.`\
 https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polymarket-nasdaq-prediction-market-dealbook.html
 
-**Watch: Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
+**Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
 `Palmer Luckey, founder of the defense contractor Anduril Industries, speaks with Andrew Ross Sorkin at the DealBook summit on A.I. development and the war in Iran.`\
 https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-dealbook-ai-politics.html
 
-**Watch: Hailey Bieber on Why She Decided to Sell Rhode**\
+**Hailey Bieber on Why She Decided to Sell Rhode**\
 `Hailey Bieber joins Andrew Ross Sorkin at the DealBook summit to talk about her beauty brand, Rhode, and her relationship with social media.`\
 https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rhode-dealbook-beauty.html
 
-**Watch: Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
+**Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
 `The Microsoft chief executive Satya Nadella speaks with Andrew Ross Sorkin at the DealBook Summit about the future of A.I. and recent tech outages.`\
 https://www.nytimes.com/video/business/dealbook/100000011290885/satya-nadella-microsoft-dealbook-outages.html
 
@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-comm
 `Warnings that Iran is rebuilding its missile stockpile and advancing biological and chemical programs have divided the Trump administration.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
 
-**Watch: Can Zohran Mamdani Fix the Cost of Living in New York City?**\
-`Mayor Zohran Mamdani of New York City speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
+**Can Zohran Mamdani Fix the Cost of Living in New York City?**\
+`Mayor Zohran Mamdani of New York speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
 https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
 
 **Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
@@ -110,7 +110,7 @@ https://www.nytimes.com/video/nyregion/100000011294190/mta-bus-captures-brooklyn
 `The eager-to-please movie charts the highs and lows of its bejowled title character, from his years coaching the Oakland Raiders to his video game celebrity.`\
 https://www.nytimes.com/2026/11/18/movies/madden-review-nicolas-cage.html
 
-**Watch: Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
+**Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
 `Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
 https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
 
