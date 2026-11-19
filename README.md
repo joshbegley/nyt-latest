@@ -1,3 +1,11 @@
+**Has the Red Carpet Become a Parody?**\
+`Method dressing reaches its zenith in the new “Hunger Games.”`\
+https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
+
+**Senator Warns Congress to Secure Data From Intrusion by Trump Administration**\
+`Gaps in protections for lawmaker communications loom larger as the administration amplifies its threats to criminally investigate Democrats for aggressive oversight efforts.`\
+https://www.nytimes.com/2026/11/19/us/congress-phone-email-data-doj-wyden.html
+
 **Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
 `The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
 https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
@@ -149,14 +157,6 @@ https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.
 **The Disappearing Iranian Meal**\
 `Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
 https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
-
-**Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
-`The director sounds off on the American “train wreck.”`\
-https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html
-
-**A Data Center Was Coming. The Town Had a Message: Stay Out.**\
-`The battle over artificial intelligence is unfolding in rural communities, which are deciding whether to embrace resource-hungry computer farms.`\
-https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

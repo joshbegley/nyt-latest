@@ -1,3 +1,7 @@
+**Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
+`The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
+https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
+
 **Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
 `An aerial attack by the Yemeni militia affected several floors of a skyscraper that is home to the Public Investment Fund, without causing injuries, according to Saudi authorities.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
