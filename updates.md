@@ -1,3 +1,7 @@
+**China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
+`China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
+https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
+
 **Marian Anderson as Artist, Not Icon**\
 `Seen as a symbol, but not as herself`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html

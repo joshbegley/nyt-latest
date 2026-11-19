@@ -1,3 +1,11 @@
+**U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
+`The first-ever lease sale took place over the objections of a federal judge. The company is leasing the seabed for mapping and preparation, not actual mining.`\
+https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
+
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/19/books/review/new-recommended-books.html
+
 **China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
 `China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
 https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
@@ -161,14 +169,6 @@ https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-esc
 **NYC Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
 `Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
 https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
-
-**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fire**\
-`The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
-https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
-
-**Los Angeles Prosecutor to Oversee Inquiry Into Search of Trump’s Mar-a-Lago Residence**\
-`The appointment of Bill Essayli to run a key aspect of the so-called grand conspiracy case was the latest shake-up in a central part of President Trump’s retribution campaign.`\
-https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essayli.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
