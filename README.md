@@ -1,3 +1,11 @@
+**Why Billie Jean King Struggled in Her First Marriage**\
+`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
+https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
+
+**The Relationship Crisis Behind Billie Jean King’s Big Game**\
+`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, about painful feelings she had to suppress to focus on beating Bobby Riggs in the famous “Battle of the Sexes” match in 1973.`\
+https://www.nytimes.com/video/podcasts/100000011295629/the-relationship-crisis-behind-billie-jean-kings-big-game.html
+
 **‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
 `Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
 https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html
@@ -153,14 +161,6 @@ https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
 **‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
 `A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
 https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
-
-**Trump Greets Putin as ‘My Friend,’ and the Rise of GLP-1s for Children**\
-`Plus, an extreme campaign to stop students from cheating.`\
-https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for-children.html
-
-**Today’s Wordle Hints for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
