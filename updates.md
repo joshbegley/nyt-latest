@@ -1,3 +1,11 @@
+**Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
+`The director sounds off on the American “train wreck.”`\
+https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html
+
+**A Data Center Was Coming. The Town Had a Message: Stay Out.**\
+`The battle over artificial intelligence is unfolding in rural communities, which are deciding whether to embrace resource-hungry computer farms.`\
+https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
+
 **The Showdowns Are Coming Thick and Fast in Washington**\
 `Justice and rights take many forms.`\
 https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
