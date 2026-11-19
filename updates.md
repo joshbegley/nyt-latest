@@ -1,3 +1,7 @@
+**Putin Returns to APEC ‘Family Photo,’ Testing Western Leaders**\
+`The leaders of Australia and Canada defended their decision to join the APEC group portrait as a courtesy to the host, China, despite criticism at home.`\
+https://www.nytimes.com/2026/11/19/world/asia/putin-xi-trump-apec-family-photo.html
+
 **Live Updates: Trump Holds 1-on-1s With Putin and Xi Ahead of 3-Way Summit**\
 `The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
