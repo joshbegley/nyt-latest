@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 `In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
-**Live Updates: Trump, Xi and Putin to Meet for Their First Summit**\
+**Live Updates: Trump, Xi and Putin Meet for Their First Summit**\
 `It is the first three-way meeting of leaders from the United States, China and Russia. President Trump said he would push for an agreement to end the war in Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
