@@ -1,3 +1,7 @@
+**Former Biden Chief, With Help From Alex Soros, Will Gather Aides of 2028 Hopefuls**\
+`Jen O’Malley Dillon, who led the former president’s last two White House bids, is inviting top Democratic operatives to a gathering funded in part by the megadonor Alex Soros.`\
+https://www.nytimes.com/2026/11/19/us/politics/alex-soros-jen-omalley-dillon-2028-democratic-presidential-race.html
+
 **Unexpected Fallout From the Iran War**\
 `Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
 https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html

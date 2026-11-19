@@ -1,3 +1,19 @@
+**Unexpected Fallout From the Iran War**\
+`Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
+https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
+
+**Fire at Recycling Facility in Alabama Leads to Evacuations**\
+`Fire at a railroad tie recycling plant in Attalla, Ala., caused school closures and residents to evacuate. There were no immediate reports of any casualties or the cause of the fire.`\
+https://www.nytimes.com/video/us/100000011296451/alabama-fire-attalla-evacuations.html
+
+**What You Should Know About Downdetector Before the Next Big Tech Outage**\
+`The website has been checked and cited often during an unusually busy week of technology problems, though its operators acknowledge its limitations.`\
+https://www.nytimes.com/2026/11/19/technology/downdetector-tech-outages-microsoft-chase-apple.html
+
+**How Much Anthropic Are You About to Own?**\
+`See how much of the stock you may own through common index funds, like those found in retirement accounts.`\
+https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
+
 **In Florida, More Rain Threatens Flooded Areas and Roads**\
 `Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 72 hours, forecasters said.`\
 https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
