@@ -1,3 +1,11 @@
+**In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
+`People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
+https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
+
+**An Anti-A.I. Campus Movement**\
+`We look at a growing hesitation on campus.`\
+https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
+
 **Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
 `Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
 https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
@@ -62,13 +70,13 @@ https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-u
 `The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after a record-setting offering that valued the company at roughly $1.5 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
-**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
-`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
-https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
-
 **Inside a Rohingya Camp After a Genocide Ruling**\
 `On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
 https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
@@ -149,22 +157,6 @@ https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
 **The Showdowns Are Coming Thick and Fast in Washington**\
 `Justice and rights take many forms.`\
 https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
-
-**Five Takeaways From the Most Detailed Data We Have on Midterm Voters**\
-`People who skipped 2024 voted very blue this year. Young men swung hard to the left, but older women didn’t.`\
-https://www.nytimes.com/interactive/2026/11/19/upshot/voter-trend-takeaways.html
-
-**Solve a Hollywood Themed Special Crossword Puzzle**\
-`Gillian Jacobs, an actress best known for her roles in “Community” and “Love,” co-constructed this puzzle.`\
-https://www.nytimes.com/2026/11/19/crosswords/solve-a-hollywood-themed-special-crossword-puzzle.html
-
-**T Magazine’s 2026 Holiday Gift Guide: Ideas and Tips**\
-`How six experts think about holiday shopping.`\
-https://www.nytimes.com/2026/11/19/t-magazine/holiday-gift-guide-ideas.html
-
-**This Isn’t the Cyberapocalypse, but It Isn’t Great**\
-`A cybersecurity expert isn’t sold on the theory that there is a connection between the many recent digital failures and crashes.`\
-https://www.nytimes.com/2026/11/19/opinion/tech-outages-cybersecurity.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
