@@ -1,3 +1,11 @@
+**Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
+`An aerial attack by the Yemeni militia affected several floors of a skyscraper that is home to the Public Investment Fund, without causing injuries, according to Saudi authorities.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
+
+**U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
+`Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
 `People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
 https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html

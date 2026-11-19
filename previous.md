@@ -103,7 +103,7 @@ https://www.nytimes.com/video/world/asia/100000011295153/myanmar-genocide-rohing
 https://www.nytimes.com/2026/11/19/business/dealbook/mamdani-musk-altman-summit-highlights.html
 
 **Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
-`Windows were blown out of a skyscraper that is home to the Public Investment Fund after the Yemeni militia fired missiles at the Saudi capital.`\
+`An aerial attack by the Yemeni militia affected several floors of a skyscraper that is home to the Public Investment Fund, without causing injuries, according to Saudi authorities.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
 
 **China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
@@ -158,7 +158,7 @@ https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
 `Justice and rights take many forms.`\
 https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
 
-**Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
+**U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
