@@ -1,3 +1,23 @@
+**Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
+`Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
+https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
+
+**The Most Exciting Part of Thanksgiving Dinner? The Vegetables.**\
+`These vegetables, specifically, from Hetty Lui McKinnon: charred green beans with an olive relish, roasted sweet potatoes with spicy green sauce and more.`\
+https://www.nytimes.com/2026/11/19/dining/the-most-exciting-part-of-thanksgiving-dinner-the-vegetables.html
+
+**Trump Offers Helping Hand to ‘Friend’ Xi on Escalator Ride**\
+`In a display of warmth, President Trump offered his hand to China’s leader, Xi Jinping, as the two walked onto an escalator during a summit of Asia Pacific leader’s in Shenzhen, China.`\
+https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-escalator.html
+
+**Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
+`Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
+https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
+
+**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fires**\
+`The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
+https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
+
 **Los Angeles Prosecutor to Oversee Inquiry Into Search of Trump’s Mar-a-Lago Residence**\
 `The appointment of Bill Essayli to run a key aspect of the so-called grand conspiracy case was the latest shake-up in a central part of President Trump’s retribution campaign.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essayli.html
