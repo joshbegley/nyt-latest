@@ -1,3 +1,19 @@
+**Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
+`Anthropic shares rose in their first day of trading, while both the S&P 500 and Nasdaq indexes fell. There are a few factors at play.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-stock-market.html
+
+**Food Delivery Is Making a Killing on Grand Theft Auto**\
+`The gamers staying home in droves have to be fed, and the meal business was more than ready to feed them.`\
+https://www.nytimes.com/2026/11/19/dining/grand-theft-auto-food-delivery.html
+
+**Lawsuit Seeks to Block Trump’s Housing Rule Targeting Immigrants**\
+`A rule set to take effect next month would deny federal housing assistance to households that include undocumented immigrants, even if other family members are citizens.`\
+https://www.nytimes.com/2026/11/19/nyregion/trump-hud-immigrants-housing-aid.html
+
+**madison-shooting-corey-ruiz-district-attorney-statement**\
+`A Madison, Wis., police officer will not face charges in the fatal shooting in July of Corey Ruiz, the local district attorney, Ismael Ozanne, said on Thursday. Here is Mr. Ozanne’s statement about his decision and his summary of the evidence.`\
+https://www.nytimes.com/interactive/2026/11/19/us/press-release-no-criminal-liability-for-mpd-officers11-19-26.html
+
 **U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
 `The first-ever lease sale took place over the objections of a federal judge. The company is leasing the seabed for mapping and preparation, not actual mining.`\
 https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
@@ -153,22 +169,6 @@ https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
 **An Anti-A.I. Campus Movement**\
 `We look at a growing hesitation on campus.`\
 https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
-
-**Dutch and Austrian Embassies Are Damaged as Russian Drones Swarm Kyiv**\
-`Foreign ministers for Austria and the Netherlands said no one was harmed at their embassy compounds, and the European Union’s ambassador said a drone “exploded right above my head" by her hotel.`\
-https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
-
-**The Most Exciting Part of Thanksgiving Dinner? The Vegetables.**\
-`These vegetables, specifically, from Hetty Lui McKinnon: charred green beans with an olive relish, roasted sweet potatoes with spicy green sauce and more.`\
-https://www.nytimes.com/2026/11/19/dining/the-most-exciting-part-of-thanksgiving-dinner-the-vegetables.html
-
-**Trump Offers Helping Hand to ‘Friend’ Xi on Escalator Ride**\
-`In a display of warmth, President Trump offered his hand to China’s leader, Xi Jinping, as the two walked onto an escalator during a summit of Asia Pacific leader’s in Shenzhen, China.`\
-https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-escalator.html
-
-**NYC Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
-`Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
-https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
