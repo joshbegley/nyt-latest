@@ -1,3 +1,7 @@
+**Live Updates: Trump Holds 1st Summit With Xi and Putin, Whom He Calls ‘Friend’**\
+`President Trump said that he would bring up the Ukraine War at the first-ever meeting of leaders of Russia, China and the United States.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Villa Where Trump, Xi and Putin Met Once Hosted Kim Jong-il**\
 `The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
