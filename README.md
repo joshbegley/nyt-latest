@@ -1,3 +1,7 @@
+**Trump, Xi and Putin Meet in China for Their First Summit**\
+`President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
+https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
+
 **Behind Trump Meeting, Xi and Putin Share a Vision of Usurping U.S. Power**\
 `President Trump joined the Chinese and Russian leaders for a summit in Shenzhen, even though the two autocrats are trying to reverse America’s victory in the Cold War.`\
 https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russia.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/movies/elsinore-review.html
 **‘Ash and Crayons’ Review: Ukraine’s Young Victims Are Undaunted**\
 `Evgeny Afineevsky’s documentary captures the harrowing tales and ultimate triumphs of children who were abducted by Russia or severely wounded in attacks.`\
 https://www.nytimes.com/2026/11/19/movies/ash-and-crayons-review-ukraines-young-victims-undaunted.html
-
-**Ella Langley Sweeps and Taylor Swift Returns at the 2026 CMA Awards**\
-`The “Choosin’ Texas” singer made history and five more key moments from the ceremony.`\
-https://www.nytimes.com/2026/11/19/arts/music/ella-langley-taylor-swift-cma-awards.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
