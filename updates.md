@@ -1,3 +1,7 @@
+**Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
+`The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
 `The director sounds off on the American “train wreck.”`\
 https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html

@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/11/19/fashion/craftsmanship-decorative-painting-fra
 `Lou Lou Buttons, a Manhattan shop, boasts more than 10 million fasteners in all shapes, sizes and materials.`\
 https://www.nytimes.com/2026/11/19/fashion/craftsmanship-lou-lou-buttons-manhattan.html
 
-**Palestinian Women Use Embroidery to Tell Their Stories**\
-`Traditional needlework, used to decorate footwear and other items, is helping members of a cooperative to support their families in the West Bank.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-tatreez-embroidery-resolute-rgl-palestine.html
+**Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
+`The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
