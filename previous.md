@@ -75,7 +75,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
 **Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
-`The summit between the three leaders will take place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
+`The summit will take place at a lakeside resort in China. President Trump was meeting President Vladimir V. Putin of Russia before talks with Xi Jinping of China and the three-way meeting.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\

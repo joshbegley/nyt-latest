@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
+`The summit will take place at a lakeside resort in China. President Trump was meeting President Vladimir V. Putin of Russia before talks with Xi Jinping of China and the three-way meeting.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **How to Decode the Xi-Trump Hug**\
 `The welcome China’s leader, Xi Jinping, offered President Trump appeared to reflect a desire for a measure of stability at a time of growing disagreements.`\
 https://www.nytimes.com/2026/11/18/world/asia/xi-trump-hug-shenzhen.html
