@@ -1,3 +1,11 @@
+**How to Decode the Xi-Trump Hug**\
+`The welcome China’s leader, Xi Jinping, offered President Trump appeared to reflect a desire for a measure of stability at a time of growing disagreements.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-trump-hug-shenzhen.html
+
+**Elon Musk Says He’s ‘Not MAGA’**\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-says-hes-not-maga.html
+
 **National Book Award for Nonfiction Goes to Writer Denied Visa to Attend**\
 `The author Abdelrahman ElGendy received one of the major American prizes for nonfiction in absentia for his memoir, “Huna.” Hannah Lillith Assadi won the fiction prize.`\
 https://www.nytimes.com/2026/11/18/books/national-book-award-for-nonfiction-goes-to-writer-denied-visa-to-attend.html

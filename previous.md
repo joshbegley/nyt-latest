@@ -1,3 +1,7 @@
+**How to Decode the Xi-Trump Hug**\
+`The welcome China’s leader, Xi Jinping, offered President Trump appeared to reflect a desire for a measure of stability at a time of growing disagreements.`\
+https://www.nytimes.com/2026/11/18/world/asia/xi-trump-hug-shenzhen.html
+
 **National Book Award for Nonfiction Goes to Writer Denied Visa to Attend**\
 `The author Abdelrahman ElGendy received one of the major American prizes for nonfiction in absentia for his memoir, “Huna.” Hannah Lillith Assadi won the fiction prize.`\
 https://www.nytimes.com/2026/11/18/books/national-book-award-for-nonfiction-goes-to-writer-denied-visa-to-attend.html
@@ -120,7 +124,7 @@ https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-de
 
 **Elon Musk Says He’s ‘Not MAGA’**\
 `In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
-https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-says-hes-not-maga.html
 
 **Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
 `Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/business/watch-zohran-mamdani-on-finding-comm
 **Trump Weighs New Strikes on Iran as Israel Presses for Action, Officials Say**\
 `Warnings that Iran is rebuilding its missile stockpile and advancing biological and chemical programs have divided the Trump administration.`\
 https://www.nytimes.com/2026/11/18/us/politics/trump-israel-iran-war.html
-
-**Can Zohran Mamdani Fix the Cost of Living in New York City?**\
-`Mayor Zohran Mamdani of New York speaks with Andrew Ross Sorkin at the DealBook Summit about his relationship with President Trump and affordability.`\
-https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-nyc-mayor-dealbook.html
 
