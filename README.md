@@ -1,3 +1,15 @@
+**Unexpected Fallout From the Iran War**\
+`Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
+https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
+
+**Fire at Recycling Facility in Alabama Leads to Evacuations**\
+`Fire at a railroad tie recycling plant in Attalla, Ala., caused school closures and residents to evacuate. There were no immediate reports of any casualties or the cause of the fire.`\
+https://www.nytimes.com/video/us/100000011296451/alabama-fire-attalla-evacuations.html
+
+**What You Should Know About Downdetector Before the Next Big Tech Outage**\
+`The website has been checked and cited often during an unusually busy week of technology problems, though its operators acknowledge its limitations.`\
+https://www.nytimes.com/2026/11/19/technology/downdetector-tech-outages-microsoft-chase-apple.html
+
 **How Much Anthropic Are You About to Own?**\
 `See how much of the stock you may own through common index funds, like those found in retirement accounts.`\
 https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
@@ -165,18 +177,6 @@ https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-stru
 **The Relationship Crisis Behind Billie Jean King’s Big Game**\
 `The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, about painful feelings she had to suppress to focus on beating Bobby Riggs in the famous “Battle of the Sexes” match in 1973.`\
 https://www.nytimes.com/video/podcasts/100000011295629/the-relationship-crisis-behind-billie-jean-kings-big-game.html
-
-**‘Cameron Winter at Carnegie Hall’ Review: A Duet of Piano and Camera**\
-`Paul Thomas Anderson’s deft filming of the Geese frontman’s solo performance is a lovely musical marriage and essential viewing for fans.`\
-https://www.nytimes.com/2026/11/19/movies/cameron-winter-at-carnegie-hall-review-paul-thomas-anderson.html
-
-**The Secret History of a 1972 Case on Press Freedom**\
-`An F.B.I. campaign against the Black Panthers and a justice’s questionable failure to recuse himself dealt a blow to protections for confidential sources.`\
-https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-freedom.html
-
-**At Summit With Xi and Putin, Trump Seeks to Project Power Abroad While Sharing It at Home**\
-`Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
-https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
