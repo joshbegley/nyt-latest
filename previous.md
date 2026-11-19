@@ -1,3 +1,7 @@
+**Andrey Zvyagintsev Is the Prophet of Putinism**\
+`Andrey Zvyagintsev’s latest film invites viewers to see contemporary Russia in the terms of classical myth.`\
+https://www.nytimes.com/2026/11/19/opinion/zvyagintsev-russia-minotaur-putin.html
+
 **After Train Crash, Spain Asks if High-Speed Rail Grew Too Fast**\
 `As an election nears, a railway disaster in Spain has set off debate over whether maintenance of its infrastructure kept pace with its booming population.`\
 https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
@@ -71,7 +75,7 @@ https://www.nytimes.com/2026/11/18/world/americas/haiti-pastor-assassination-moi
 https://www.nytimes.com/2026/11/18/us/texas-house-election-ericka-lomick.html
 
 **After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
-`South Korea is sending emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
+`South Korea is sending loud emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
 https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
 
 **At Gloria Steinem Memorial, Michelle Obama, Hillary Clinton and More Big Names Gather**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-de
 **Hailey Bieber on Why She Decided to Sell Rhode**\
 `Hailey Bieber joins Andrew Ross Sorkin at the DealBook summit to talk about her beauty brand, Rhode, and her relationship with social media.`\
 https://www.nytimes.com/video/business/dealbook/100000011290582/hailey-bieber-rhode-dealbook-beauty.html
-
-**Microsoft’s C.E.O. Satya Nadella Addresses Global Outlook Outage**\
-`The Microsoft chief executive Satya Nadella speaks with Andrew Ross Sorkin at the DealBook Summit about the future of A.I. and recent tech outages.`\
-https://www.nytimes.com/video/business/dealbook/100000011290885/satya-nadella-microsoft-dealbook-outages.html
 

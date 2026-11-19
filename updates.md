@@ -1,3 +1,11 @@
+**Andrey Zvyagintsev Is the Prophet of Putinism**\
+`Andrey Zvyagintsev’s latest film invites viewers to see contemporary Russia in the terms of classical myth.`\
+https://www.nytimes.com/2026/11/19/opinion/zvyagintsev-russia-minotaur-putin.html
+
+**After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
+`South Korea is sending loud emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
+https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
+
 **Live Updates: Trump Holds 1-on-1s With Putin and Xi Ahead of 3-Way Summit**\
 `The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump is also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
