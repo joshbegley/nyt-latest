@@ -1,3 +1,7 @@
+**Agriculture Secretary’s Christian Messages to Staff Went ‘Too Far,’ Judge Says**\
+`A federal judge ordered limits on Brooke Rollins’s promotion of her religious beliefs, saying her emails to her department had violated the First Amendment.`\
+https://www.nytimes.com/2026/11/19/us/politics/rollins-christian-messages.html
+
 **See Trump’s Conflicting Plans for the Triumphal Arch**\
 `The president is rebranding the triumphal arch in Washington as a military complex that would also host tourists.`\
 https://www.nytimes.com/interactive/2026/11/19/us/trump-arc-washington-military.html

@@ -1,3 +1,7 @@
+**Agriculture Secretary’s Christian Messages to Staff Went ‘Too Far,’ Judge Says**\
+`A federal judge ordered limits on Brooke Rollins’s promotion of her religious beliefs, saying her emails to her department had violated the First Amendment.`\
+https://www.nytimes.com/2026/11/19/us/politics/rollins-christian-messages.html
+
 **See Trump’s Conflicting Plans for the Triumphal Arch**\
 `The president is rebranding the triumphal arch in Washington as a military complex that would also host tourists.`\
 https://www.nytimes.com/interactive/2026/11/19/us/trump-arc-washington-military.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/arts/michael-jackson-hush-money-deals.html
 **Outrage Over Another Cruel ICE Tactic**\
 `Readers react to new reports of abuses by ICE. Also: Air traffic upgrades; beyond the Republican weirdos; a family’s touch.`\
 https://www.nytimes.com/2026/11/19/opinion/ice-tactics.html
-
-**Musk Says He Feels ‘Foolish’ for Spending Nearly $500 Million on Midterms**\
-`At The New York Times’s Dealbook Summit, Elon Musk said that he felt “foolish” for spending nearly $500 million on the midterm elections.`\
-https://www.nytimes.com/video/business/dealbook/100000011295981/elon-musk-spending-midterm-elections.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
