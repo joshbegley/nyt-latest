@@ -1,3 +1,7 @@
+**Top Massachusetts Court to Weigh Lindsay Clancy’s Motion to Dismiss**\
+`Her lawyers plan to argue in January that the first-degree murder charges against her should be dropped following her mistrial.`\
+https://www.nytimes.com/2026/11/19/us/lindsay-clancy-trial-juror-appeal.html
+
 **A Conversation on Middle East Headlines**\
 `Plus: The Nvidia spy plot, covering measles and your questions, answered.`\
 https://www.nytimes.com/2026/11/19/insider/a-conversation-on-middle-east-headlines.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
 **Trump, Xi and Putin Meet in China for Their First Summit**\
 `President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
 https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
-
-**Behind Trump Meeting, Xi and Putin Share a Vision of Usurping U.S. Power**\
-`President Trump joined the Chinese and Russian leaders for a summit in Shenzhen, even though the two autocrats are trying to reverse America’s victory in the Cold War.`\
-https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russia.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

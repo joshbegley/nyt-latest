@@ -1,3 +1,15 @@
+**Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
+`The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
+https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
+
+**Outrage Over Another Cruel ICE Tactic**\
+`Readers react to new reports of abuses by ICE. Also: Air traffic upgrades; beyond the Republican weirdos; a family’s touch.`\
+https://www.nytimes.com/2026/11/19/opinion/ice-tactics.html
+
+**Musk Says He Feels ‘Foolish’ for Spending Nearly $500 Million on Midterms**\
+`At The New York Times’s Dealbook Summit, Elon Musk said that he felt “foolish” for spending nearly $500 million on the midterm elections.`\
+https://www.nytimes.com/video/business/dealbook/100000011295981/elon-musk-spending-midterm-elections.html
+
 **Top Massachusetts Court to Weigh Lindsay Clancy’s Motion to Dismiss**\
 `Her lawyers plan to argue in January that the first-degree murder charges against her should be dropped following her mistrial.`\
 https://www.nytimes.com/2026/11/19/us/lindsay-clancy-trial-juror-appeal.html
@@ -22,8 +34,8 @@ https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.h
 `Placing a meaningful portion of your wealth on a single stock is never a good idea, but if you feel tempted to invest, ask yourself several questions first.`\
 https://www.nytimes.com/2026/11/19/your-money/anthropic-ipo-investing.html
 
-**ICE Officers Begin Training on Car Stops at Brooklyn Military Compound**\
-`Immigration and Customs Enforcement was ordered to expand training on car stops. The exercises come after a series of officer-involved shootings, including an agent who shot a Dominican migrant who was in his vehicle in October.`\
+**At Brooklyn Compound, ICE Officers Are Training on Conducting Car Stops**\
+`Immigration and Customs Enforcement was ordered to expand training on traffic stops. The exercises come after a series of officer-involved shootings during President Trump’s immigration crackdown.`\
 https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
 
 **Why Billie Jean King Struggled in Her First Marriage**\
@@ -154,15 +166,7 @@ https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
 `Are you a big light person or an ambient light person? Online, your preferences may say a lot about you.`\
 https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
 
-**Trump, Xi and Putin Meet in China for Their First Summit**\
-`President Trump met with China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia for the first-ever summit between leaders of the three countries.`\
-https://www.nytimes.com/video/world/asia/100000011294948/trump-xi-putin-meeting-china.html
-
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
-
-**Trump, Xi and Putin Seek to Project Power at Their First Summit**\
-`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin said that Russia would not negotiate with Ukraine on a cease-fire.`\
-https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 

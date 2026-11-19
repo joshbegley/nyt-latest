@@ -1,3 +1,7 @@
+**Top Massachusetts Court to Weigh Lindsay Clancy’s Motion to Dismiss**\
+`Her lawyers plan to argue in January that the first-degree murder charges against her should be dropped following her mistrial.`\
+https://www.nytimes.com/2026/11/19/us/lindsay-clancy-trial-juror-appeal.html
+
 **A Conversation on Middle East Headlines**\
 `Plus: The Nvidia spy plot, covering measles and your questions, answered.`\
 https://www.nytimes.com/2026/11/19/insider/a-conversation-on-middle-east-headlines.html
