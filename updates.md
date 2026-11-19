@@ -1,3 +1,15 @@
+**U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
+`The first-ever lease sale took place over the objections of a federal judge. Wetstone U.S. Ventures paid $6 million to lease the seabed for mapping and preparation, not actual mining.`\
+https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
+
+**Studies Could Pave Way for Blood Test to Detect C.T.E. in Living Patients**\
+`An unusual protein may turn out to be a way to diagnose the chronic brain disease, which disproportionately affects athletes in contact sports.`\
+https://www.nytimes.com/2026/11/19/science/cte-blood-test-diagnosis.html
+
+**Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **Fiona the Hippo, Whose Stardom Extended Well Beyond Cincinnati, Has Died**\
 `The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
 https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
