@@ -1,3 +1,11 @@
+**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fire**\
+`The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
+https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
+
+**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to more than $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **Trump, Xi and Putin Seek to Project Power at Their First Summit**\
 `The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin said that Russia would not negotiate with Ukraine on a cease-fire.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec

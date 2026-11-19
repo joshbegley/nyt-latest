@@ -1,3 +1,7 @@
+**Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
+`The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
+https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
+
 **What to Know About Anthropic’s Public Debut**\
 `Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
 https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
@@ -83,16 +87,16 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
 **Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
-`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to more than $2 trillion.`\
+`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
-
-**Inside a Rohingya Camp After a Genocide Ruling**\
-`On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
-https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
 
 **A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
 `The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
 https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
+
+**Inside a Rohingya Camp After a Genocide Ruling**\
+`On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
+https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
 
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
@@ -157,10 +161,6 @@ https://www.nytimes.com/2026/11/19/crosswords/connections-companion-1258.html
 **Iran Keeps Up Unrelenting Attacks on Ships in the Strait of Hormuz**\
 `A recent strike on a ship that had already been disabled might signal a dangerous new phase for tankers operating in the Persian Gulf and surrounding waters.`\
 https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.html
-
-**The Disappearing Iranian Meal**\
-`Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
-https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
