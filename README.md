@@ -1,3 +1,7 @@
+**Major Powers Vow to Increase Oil Supply Amid Global Energy Transition**\
+`The United States, China and Russia agreed to boost the supply of refined petroleum products, as oil prices spike because of the Iran war.`\
+https://www.nytimes.com/2026/11/19/world/asia/russia-china-united-states-oil-joint-statement.html
+
 **In a Rohingya Refugee Camp, Jubilation but Also Apprehension**\
 `People gathered in the rain to hear the ruling on whether Myanmar had committed genocide, though they understood it might not change their lives anytime soon.`\
 https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
@@ -153,10 +157,6 @@ https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-p
 **A Data Center Was Coming. The Town Had a Message: Stay Out.**\
 `The battle over artificial intelligence is unfolding in rural communities, which are deciding whether to embrace resource-hungry computer farms.`\
 https://www.nytimes.com/2026/11/19/nyregion/data-centers-opposition-towns.html
-
-**The Showdowns Are Coming Thick and Fast in Washington**\
-`Justice and rights take many forms.`\
-https://www.nytimes.com/2026/11/19/opinion/supreme-court-gun-congress-second-amendment.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
