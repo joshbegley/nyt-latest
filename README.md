@@ -1,3 +1,7 @@
+**Russia’s Takeover of Japan Tobacco Units Deals $8.6 Billion Blow**\
+`The move against the Japanese government-backed cigarette maker highlights worsening tensions between the countries, even as their leaders try to keep diplomatic channels open.`\
+https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
+
 **‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
 `A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
 https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/19/magazine/grand-theft-auto-six.html
 **F1: Kimi Antonelli Goes From Overwhelmed to Champion**\
 `He replaced Lewis Hamilton at Mercedes for 2025 and faltered in his first year. Then he took charge.`\
 https://www.nytimes.com/2026/11/19/sports/kimi-antonelli-formula-one-champion.html
-
-**F1: No Wins, No Points. For Cadillac, No Problem.**\
-`Consider 2026 the new team's shakedown season, with hopes that the lessons learned will pay off next year.`\
-https://www.nytimes.com/2026/11/19/sports/f1-cadillac.html
 
 **Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
