@@ -191,7 +191,7 @@ https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 https://www.nytimes.com/2026/11/19/technology/google-search-ads-ai.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
-`Myanmar became the first state held to account for violating the 1948 Genocide Convention, in a ruling that will have sweeping implications.`\
+`Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
 **Live Updates: Trump Departs China After First-Ever Summit With Xi and Putin**\

@@ -1,3 +1,15 @@
+**China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
+`The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html
+
+**The Biggest Video Game Ever**\
+`We look at the release of Grand Theft Auto VI.`\
+https://www.nytimes.com/2026/11/19/briefing/grand-theft-auto-vi.html
+
+**Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
+`Myanmar became the first state held to account for violating the 1948 Genocide Convention, in a ruling that will have sweeping implications.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **Don’t Play Anthropic’s Game**\
 `Trying to save the world and trying to make a lot of money will be an unstable combination.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
