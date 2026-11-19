@@ -1,3 +1,7 @@
+**NYT Spelling Bee Answers for November 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
+
 **Villa Where Trump, Xi and Putin Will Meet Once Hosted Kim Jong-il**\
 `The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/business/dealbook/100000011290588/christine-lagard
 **A.I. Makes More Tech Outages Likely, Microsoft’s Chief Warns**\
 `Satya Nadella said that A.I. tools were finding cybersecurity bugs at a breakneck pace, and that companies were having to create fixes and deploy them “instantaneously.”`\
 https://www.nytimes.com/2026/11/18/business/dealbook/microsoft-satya-nadella-outages-ai.html
-
-**2 Men Used Ponzi Scheme to Steal Over $600 Million, U.S. Says**\
-`The Indiana investment fund Backward Hat Capital, founded by Phillip Williams and Devin Johnson, reported monthly returns that were “largely illusory,” prosecutors said.`\
-https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.html
 
