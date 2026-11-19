@@ -1,3 +1,7 @@
+**See Trump’s Conflicting Plans for the Triumphal Arch**\
+`The president is rebranding the triumphal arch in Washington as a military complex that would also host tourists.`\
+https://www.nytimes.com/interactive/2026/11/19/us/trump-arc-washington-military.html
+
 **El Niño Rains Submerge Parts of South and Central Florida**\
 `Heavy rains battered Florida for a third day on Thursday, drenching Broward County with about 15 inches of rain over a 24-hour period.`\
 https://www.nytimes.com/video/weather/100000011296779/el-nio-rain-florida.html
