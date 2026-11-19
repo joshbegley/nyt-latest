@@ -1,3 +1,7 @@
+**Live Updates: Trump and Putin Sit Down Ahead of Joint Summit With Xi**\
+`The three-way meeting will take place at a lakeside resort in Shenzhen. President Trump is also meeting separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **After Train Crash, Spain Asks if High-Speed Rail Grew Too Fast**\
 `As an election nears, a railway disaster in Spain has set off debate over whether maintenance of its infrastructure kept pace with its booming population.`\
 https://www.nytimes.com/2026/11/19/world/europe/spain-trains-infrastructure.html
