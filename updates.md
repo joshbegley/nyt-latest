@@ -1,3 +1,7 @@
+**Obama Tells Incoming House Democrats to Keep Up Outreach in Red Areas**\
+`The former president told the newly elected lawmakers that the country was going through a moment of “generational change.” He also praised Representative Hakeem Jeffries, the likely next speaker.`\
+https://www.nytimes.com/2026/11/18/us/politics/barack-obama-house-democrats.html
+
 **Takeaways From the 2026 DealBook Summit**\
 `Leaders in artificial intelligence and governments discussed America’s shifting politics, the reverberations of Jensen Huang’s ouster at Nvidia and more on Wednesday.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-musk-altman-ellison.html

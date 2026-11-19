@@ -1,3 +1,7 @@
+**Obama Tells Incoming House Democrats to Keep Up Outreach in Red Areas**\
+`The former president told the newly elected lawmakers that the country was going through a moment of “generational change.” He also praised Representative Hakeem Jeffries, the likely next speaker.`\
+https://www.nytimes.com/2026/11/18/us/politics/barack-obama-house-democrats.html
+
 **Takeaways From the 2026 DealBook Summit**\
 `Leaders in artificial intelligence and governments discussed America’s shifting politics, the reverberations of Jensen Huang’s ouster at Nvidia and more on Wednesday.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-musk-altman-ellison.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.ht
 **Anduril Industries Co-Founder Blames A.I. Tools for Tech Outages in U.S.**\
 `Palmer Luckey discussed the widespread tech outages across the United States, blaming attackers using A.I. tools to target outdated infrastructure.`\
 https://www.nytimes.com/video/business/dealbook/100000011294098/anduril-industries-co-founder-blames-ai-tools-for-tech-outages-in-us.html
-
-**Grand Theft Auto: An American Icon, Born in Britain**\
-`The game franchise is a cultural juggernaut, played around the world as a violent, immersive ride through American cities. But the series originated in Scotland from a pop culture collage.`\
-https://www.nytimes.com/2026/11/18/world/europe/grand-theft-auto-america-scotland-global-reaction.html
-
-**Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
-`Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
-https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html
 
