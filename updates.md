@@ -1,3 +1,15 @@
+**Fiona the Hippo, Whose Stardom Extended Well Beyond Cincinnati, Has Died**\
+`The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
+https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
+
+**Leonid Arkayev Has Died. He Coached Russian Gymnasts to Juggernaut Status.**\
+`“When you look at his résumé of athletes and Olympians, no one holds a candle to anything he had done,” one American coach said. He was 86.`\
+https://www.nytimes.com/2026/11/19/obituaries/leonid-arkayev-dead.html
+
+**Love and Carjackings in a Video Game**\
+`Grand Theft Auto once caused a moral panic. Now, it’s a “signature cultural event.”`\
+https://www.nytimes.com/2026/11/19/world/gta-anthropic-shenzhen-summit.html
+
 **Anthropic Makes Multibillion-Dollar Debut on Nasdaq**\
 `Anthropic began trading on Nasdaq on Thursday, becoming one of the world’s most valuable public companies. Its stock market debut comes amid concerns over economic disruption and the safety risks of artificial intelligence.`\
 https://www.nytimes.com/video/business/economy/100000011296431/anthropic-ipo-price-stock-market.html
