@@ -1,3 +1,7 @@
+**Putin, Trump and Xi Condemn Nuclear War as Europe Watches Closely**\
+`After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
+https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
+
 **Live Updates: Anthropic Set to Start Trading in Blockbuster Market Debut**\
 `The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after raising a record-setting $81.3 billion in a public offering that valued the company at roughly $1.5 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/19/arts/design/sarah-sze-yale-sfmoma-barclays-ce
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a three-bedroom in Huntington, N.Y., and a four-bedroom in Plainsboro, N.J.`\
 https://www.nytimes.com/2026/11/19/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are on the Lower East Side, in Morningside Heights and in Astoria.`\
-https://www.nytimes.com/2026/11/19/realestate/housing-market-nyc.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
