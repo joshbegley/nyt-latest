@@ -1,3 +1,27 @@
+**Live Updates: Anthropic Set to Start Trading in Blockbuster Market Debut**\
+`The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after raising a record-setting $81.3 billion in a public offering that valued the company at roughly $1.5 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
+**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
+`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
+https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
+
+**Inside a Rohingya Camp After a Genocide Ruling**\
+`On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
+https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
+
+**‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
+`The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
+https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
+
+**What Your Lighting Preferences Say About You**\
+`Are you a big light person or an ambient light person? Online, your preferences may say a lot about you.`\
+https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
+
+**Live Updates: Trump, Xi and Putin Seek to Project Power at Their First Summit**\
+`The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin said that Russia would not negotiate with Ukraine on a cease-fire.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: Trump, Xi and Putin Seek to Project Power at Their First Summit**\
 `The meeting in China appeared to be largely symbolic. After President Trump departed, President Vladimir V. Putin reiterated that Russia would not negotiate directly with Ukraine on the war.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
