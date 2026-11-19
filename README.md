@@ -1,3 +1,7 @@
+**They’re Prepping for a World Where the Internet Doesn’t Work**\
+`“DoorDash is not an emergency plan.”`\
+https://www.nytimes.com/2026/11/19/style/theyre-prepping-for-a-broken-digital-world.html
+
 **China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
 `Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-china-hong-kong.html
@@ -161,14 +165,6 @@ https://www.nytimes.com/2026/11/19/us/politics/kirkland-ellis-law-firm-trump.htm
 **How Trump Betrayed His Base**\
 `What remains of MAGA?`\
 https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html
-
-**36 Hours in Sydney, Australia: Things to Do and See**\
-`Beyond Sydney’s magnificent harbor, vibrant interior neighborhoods thrum with live music, cool cafes and thoughtful storytelling that honors the city’s traditional custodians.`\
-https://www.nytimes.com/interactive/2026/11/19/travel/things-to-do-sydney.html
-
-**Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
-`The beloved Citgo sign will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
-https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

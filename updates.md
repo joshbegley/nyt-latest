@@ -1,3 +1,7 @@
+**China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
+`Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-china-hong-kong.html
+
 **The Rohingya Crisis Over the Years**\
 `After government troops and mobs rampaged through Rohingya communities in Myanmar in 2017, refugees fled to to Bangladesh.`\
 https://www.nytimes.com/2026/11/19/world/asia/rohingya-camps-photos-bangladesh.html
