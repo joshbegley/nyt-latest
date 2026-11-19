@@ -1,3 +1,11 @@
+**Hillary Clinton: Trump Should Stop Appeasing Putin**\
+`On the one area where the president could still be remembered as a winner.`\
+https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
+
+**Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
+`The beloved Citgo sign will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
+https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
+
 **Putin, Trump and Xi Condemn Nuclear War as Europe Watches Closely**\
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
