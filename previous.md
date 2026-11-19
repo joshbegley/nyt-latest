@@ -1,5 +1,25 @@
+**Watch the Biggest Interviews at the DealBook Summit**\
+`See the full conversations with Prime Minister Mark Carney of Canada, OpenAI’s Sam Altman and Greg Brockman, Mayor Zohran Mamdani of New York, SpaceX’s Elon Musk and more.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-the-biggest-interviews-at-the-dealbook-summit.html
+
+**Watch: Elon Musk Says He’s a Political Moderate, ‘Not MAGA’**\
+`Despite his heavy support of Republicans, the SpaceX and Tesla C.E.O. said in an interview at the DealBook Summit that “there are positives and negatives in both parties.”`\
+https://www.nytimes.com/2026/11/18/business/watch-elon-musk-dealbook-summit-not-maga.html
+
+**Watch: Robinhood’s C.E.O. Says He Shouldn’t Decide What You Can Trade**\
+`Speaking alongside the Nasdaq chief Adena Friedman and the Polymarket founder Shayne Coplan, Vlad Tenev said regular investors should have access to more opportunities.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/adena-friedman-vlad-tenev-shayne-copland-dealbook-summit.html
+
+**How Nvidia Chips Ended Up Within Reach of China’s Military**\
+`Alibaba, the Chinese internet giant behind the company at the center of the Nvidia spy saga, has used its A.I. computing technology to aid a lab with links to China’s military.`\
+https://www.nytimes.com/2026/11/18/technology/nvidia-alibaba-china-military.html
+
+**How Anthropic Stacks Up With the Biggest Tech I.P.O.s Since the ’80s**\
+`Anthropic’s initial public offering valued the A.I. company at $1.5 trillion on Wednesday, the latest in a wave of humongous tech I.P.O.s.`\
+https://www.nytimes.com/interactive/2026/11/18/technology/anthropic-ipo-compared.html
+
 **Watch: Hailey Bieber Says Social Media Has Affected Her Mental Health**\
-`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said online comments can be “distorting to the mind.”`\
+`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said in an interview at the DealBook Summit that online comments can be “distorting to the mind.”`\
 https://www.nytimes.com/2026/11/18/business/watch-hailey-bieber-social-media-mental-health.html
 
 **Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
@@ -23,7 +43,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-sum
 https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
 **Elon Musk Says He’s ‘Not MAGA’**\
-`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
 https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
 
 **Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitc
 **Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
 `Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html
-
-**Our Favorite Fair Isle Sweaters**\
-`The traditional Scottish knitwear design is everywhere this fall. Here are a range of cozy new options.`\
-https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-knitwear.html
-
-**Film Club: ‘Prison and Time’**\
-`What can the reflections of Marvin Wade, who was incarcerated for 25 years, teach us about befriending time?`\
-https://www.nytimes.com/2026/11/18/learning/film-club-prison-and-time.html
-
-**Undoing Brexit**\
-`Prime Minister Andy Burnham wants a reset with the European Union. Reversing a decade of separation won’t be easy.`\
-https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.html
-
-**The Good List: 6 Things to Bring Some Delight to Your Day**\
-`Making friends on airplanes, anticipation music and Truman Capote’s effects.`\
-https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
-
-**Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
-`The Colombian president said his nation would not allow American forces to take part in anti-cartel operations on its soil.`\
-https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
 

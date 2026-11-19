@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
+`The summit between the three leaders is taking place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Watch the Biggest Interviews at the DealBook Summit**\
 `See the full conversations with Prime Minister Mark Carney of Canada, OpenAI’s Sam Altman and Greg Brockman, Mayor Zohran Mamdani of New York, SpaceX’s Elon Musk and more.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-the-biggest-interviews-at-the-dealbook-summit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/weather/sf-flooding-rain-storm.html
 **Restaurant Review: Ngon Vietnamese Kitchen in New York**\
 `With outstanding bun cha, Ngon Vietnamese Kitchen specializes in the cuisine of the Northern region.`\
 https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitchen-nyc.html
-
-**Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
-`Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html
 
