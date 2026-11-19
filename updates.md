@@ -1,3 +1,7 @@
+**Women Led Country’s Big-Tent Revival in 2026**\
+`With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
+https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
+
 **Hillary Clinton: Trump Should Stop Appeasing Putin**\
 `On the one area where the president could still be remembered as a winner.`\
 https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.html
