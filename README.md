@@ -1,3 +1,7 @@
+**Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
+`Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
+https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
+
 **Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
 `The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
 https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
 https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
-
-**What Your Lighting Preferences Say About You**\
-`Are you a big light person or an ambient light person? Online, your preferences may say a lot about you.`\
-https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
