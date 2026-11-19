@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/19/learning/15-minute-lesson-plan-anatomy-of-a-s
 `Grand Theft Auto VI, a game 13 years in the making, was released on Thursday. Fans around the world stayed up for its midnight release.`\
 https://www.nytimes.com/video/multimedia/100000011294710/gta-6-release.html
 
-**Live Updates: U.N. Court to Rule in Rohingya Genocide Case**\
+**Live Updates: U.N. Court Issues Ruling in Rohingya Genocide Case**\
 `The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 

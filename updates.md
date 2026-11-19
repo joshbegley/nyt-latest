@@ -1,3 +1,7 @@
+**Live Updates: U.N. Court Issues Ruling in Rohingya Genocide Case**\
+`The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **Death and Taxes. Rats and Real Estate.**\
 `The inevitabilities of New Yorkers’ lives.`\
 https://www.nytimes.com/2026/11/19/podcasts/rats-real-estate-serial-new-york.html
