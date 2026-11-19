@@ -1,3 +1,11 @@
+**Fire at Railroad Tie Plant in Alabama Closes Schools and Prompts Evacuations**\
+`The authorities in Attalla ordered residents within a mile radius to leave because of the fire at the Omaha Track, a railroad tie recycling facility.`\
+https://www.nytimes.com/2026/11/19/us/alabama-fire-railroad-tie-recycling-plant.html
+
+**The Casual Virtuosity of Emma Ogier**\
+`Last week, Emma Ogier released her debut album, “Fly 1111,” which is full of conversational, genre-bending folky songs. On Popcast’s Song of the Week, our critic Jon Caramanica breaks down “The Prize,” a standout track for its straightforwardness and sweet yet destitute vocal delivery.`\
+https://www.nytimes.com/video/podcasts/100000011293273/the-casual-virtuosity-of-emma-ogier.html
+
 **Whatever You Thought Texas Was, It’s Bigger and Bluer Than That**\
 `After Democrats broke a decades-long Republican winning streak this month, Texans are reflecting on who gets to define the place they call home.`\
 https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/11/19/world/asia/rohingya-camps-photos-bangladesh.h
 **California Storm Sweeps South, Prompting Some Evacuation Warnings in L.A.**\
 `A system that earlier flooded San Francisco was hitting Southern California on Thursday.`\
 https://www.nytimes.com/2026/11/19/weather/california-rain-sf-la.html
-
-**Greenland Pulls Closer to the U.S. — by an Hour**\
-`Greenland’s politicians voted to change the Arctic island’s time zone to be farther from Denmark, its former colonial power, and closer to the United States.`\
-https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.html
-
-**A Palestinian American on Our Headlines**\
-`We often hear from readers who are critical of our headlines. Patrick Healy, an assistant managing editor for The New York Times, speaks with Omar Baddar, a political analyst, about how we frame our stories.`\
-https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-our-headlines.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\

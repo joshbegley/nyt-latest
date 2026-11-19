@@ -1,3 +1,7 @@
+**Whatever You Thought Texas Was, It’s Bigger and Bluer Than That**\
+`After Democrats broke a decades-long Republican winning streak this month, Texans are reflecting on who gets to define the place they call home.`\
+https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
+
 **Senate Republicans Block Bid to Rein in Trump on Iran War**\
 `In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
 https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html

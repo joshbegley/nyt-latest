@@ -1,3 +1,7 @@
+**Whatever You Thought Texas Was, It’s Bigger and Bluer Than That**\
+`After Democrats broke a decades-long Republican winning streak this month, Texans are reflecting on who gets to define the place they call home.`\
+https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
+
 **Senate Republicans Block Bid to Rein in Trump on Iran War**\
 `In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
 https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.ht
 **A Palestinian American on Our Headlines**\
 `We often hear from readers who are critical of our headlines. Patrick Healy, an assistant managing editor for The New York Times, speaks with Omar Baddar, a political analyst, about how we frame our stories.`\
 https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-our-headlines.html
-
-**Women Led Country’s Big-Tent Revival in 2026**\
-`With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
-https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
