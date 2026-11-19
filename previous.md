@@ -1,3 +1,7 @@
+**JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
+`The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
+https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
+
 **Fiona the Hippo, Whose Stardom Extended Well Beyond Cincinnati, Has Died**\
 `The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
 https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
@@ -19,7 +23,7 @@ https://www.nytimes.com/video/business/economy/100000011296431/anthropic-ipo-pri
 https://www.nytimes.com/2026/11/19/dining/where-to-eat-bistromania.html
 
 **Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
-`The ruling by the International Court of Justice deal with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
+`The ruling by the International Court of Justice deals with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
 https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
 
 **Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
 **What to Know About Anthropic’s Public Debut**\
 `Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
 https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
-
-**The ‘Hunger Games’ Red Carpet Was Peak Method Dressing**\
-`Method dressing reaches its zenith in the new “Hunger Games.”`\
-https://www.nytimes.com/2026/11/19/style/hunger-games-fashion-red-carpet.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

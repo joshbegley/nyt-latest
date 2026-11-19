@@ -1,3 +1,11 @@
+**JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
+`The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
+https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
+
+**Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
+`The ruling by the International Court of Justice deals with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
+https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
+
 **U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
 `The first-ever lease sale took place over the objections of a federal judge. Wetstone U.S. Ventures paid $6 million to lease the seabed for mapping and preparation, not actual mining.`\
 https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
