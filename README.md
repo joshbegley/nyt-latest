@@ -102,8 +102,8 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 `In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
-**Live Updates: Trump and Putin Sit Down Ahead of Joint Summit With Xi**\
-`The three-way meeting will take place at a lakeside resort in Shenzhen. President Trump is also meeting separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
+**Live Updates: Trump Holds 1-on-1s With Putin and Xi Ahead of 3-Way Summit**\
+`The trilateral meeting will take place at a lakeside resort in Shenzhen. President Trump is also met separately with Vladimir V. Putin of Russia and Xi Jinping of China.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\
