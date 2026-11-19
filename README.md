@@ -1,3 +1,15 @@
+**Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
+`The founder of Anduril Industries, a defense tech company, is advising the Pentagon on how to map out the future of war.`\
+https://www.nytimes.com/2026/11/18/business/watch-palmer-luckey-ai-dealbook-summit.html
+
+**Watch: Satya Nadella on A.I.’s Threat to Global Infrastructure**\
+`In an interview at the DealBook Summit, the Microsoft chief executive said A.I. tools were finding bugs at a breakneck pace.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-satya-nadella-dealbook-summit.html
+
+**What to Do Before the Next Big Tech Outage?**\
+`A cascade of recent tech failures has rattled Americans and prompted many to look for ways to prepare for a prolonged digital disruption. Experts say it’s much like preparing for a storm.`\
+https://www.nytimes.com/2026/11/18/technology/tech-outages-emergency-prep.html
+
 **Mamdani Talks Trump, Taxes and Oct. 7 at DealBook Summit**\
 `In a wide-ranging conversation, Mayor Zohran Mamdani of New York discussed the midterms, President Trump and that “tax the rich” video.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-summit.html
@@ -6,7 +18,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-sum
 `Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
-**Elon Musk Says He’s ‘Not MAGA’**\
+**Watch: Elon Musk Says He’s ‘Not MAGA’**\
 `In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
 https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
 
@@ -179,22 +191,10 @@ https://www.nytimes.com/2026/11/18/world/19int-theworld-brexit-trump-xi-putin.ht
 https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.html
 
 **Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
-`The Colombian president said his nation would not allow Americans forces to take part in anti-cartel operations on its soil.`\
+`The Colombian president said his nation would not allow American forces to take part in anti-cartel operations on its soil.`\
 https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
 
 **Who Do Senate Democrats Support for Majority Leader?**\
 `The New York Times is tracking how senators and senators-elect might vote in the Dec. 1 election for majority leader.`\
 https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader-endorsements.html
-
-**Watch: David Ellison on Elon Musk’s Investment in Skydance**\
-`The C.E.O. of the media giant confirmed that the SpaceX founder had invested in the company formed by the $110 billion merger with Warner Bros. Discovery.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/david-ellison-elon-musk-skydance-investment.html
-
-**The Permitting Bill Is Splitting the Environmental Movement**\
-`Speeding up permits for clean energy could help fight global warming — but many environmentalists fear its other provisions go too far.`\
-https://www.nytimes.com/2026/11/18/climate/permitting-bill-baaja-environmentalists-energy.html
-
-**Crime Rates in American Cities Have Never Been Lower. Why?**\
-`New York City is on track to be safer than Berlin, Barcelona and Madrid.`\
-https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
 
