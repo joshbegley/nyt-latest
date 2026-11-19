@@ -1,3 +1,11 @@
+**Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
+`Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
+https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
+
+**The Most Exciting Part of Thanksgiving Dinner? The Vegetables.**\
+`These vegetables, specifically, from Hetty Lui McKinnon: charred green beans with an olive relish, roasted sweet potatoes with spicy green sauce and more.`\
+https://www.nytimes.com/2026/11/19/dining/the-most-exciting-part-of-thanksgiving-dinner-the-vegetables.html
+
 **Trump Offers Helping Hand to ‘Friend’ Xi on Escalator Ride**\
 `In a display of warmth, President Trump offered his hand to China’s leader, Xi Jinping, as the two walked onto an escalator during a summit of Asia Pacific leader’s in Shenzhen, China.`\
 https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-escalator.html
@@ -157,14 +165,6 @@ https://www.nytimes.com/2026/11/19/t-magazine/holiday-gift-guide-ideas.html
 **This Isn’t the Cyberapocalypse, but It Isn’t Great**\
 `A cybersecurity expert isn’t sold on the theory that there is a connection between the many recent digital failures and crashes.`\
 https://www.nytimes.com/2026/11/19/opinion/tech-outages-cybersecurity.html
-
-**Corrections: Nov. 19, 2026**\
-`Corrections that appeared in print on Thursday, Nov. 19, 2026.`\
-https://www.nytimes.com/2026/11/19/pageoneplus/corrections-nov-19-2026.html
-
-**Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
-`As the technology surges ahead, policymakers in Washington have struggled to prepare for potential disruption to workers, businesses and the rest of the economy.`\
-https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
