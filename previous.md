@@ -1,3 +1,11 @@
+**Anthropic Debuts on Wall Street as a $2 Trillion Company**\
+`The San Francisco company was the first major A.I. lab to go public in a highly anticipated moment for the tech industry.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
+
+**Fast Dinners for the Days Before Thanksgiving**\
+`Like one favorite staple: sheet pan feta with chickpeas and tomatoes.`\
+https://www.nytimes.com/2026/11/19/dining/fast-dinners-for-the-days-before-thanksgiving.html
+
 **Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
 `In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
 https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
@@ -149,18 +157,6 @@ https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russi
 **U.N. Court Rules Myanmar Committed Genocide Against the Rohingya**\
 `The International Court of Justice ruled that Myanmar committed genocide against the Rohingya Muslim minority in a case brought by Gambia.`\
 https://www.nytimes.com/video/world/asia/100000011295153/myanmar-genocide-rohingya-icj.html
-
-**Mamdani, Musk, Altman, A.I. and Other DealBook Summit Highlights**\
-`Artificial intelligence, bubble fears, the Nvidia fallout, prediction markets, politics and other big topics that made headlines this year.`\
-https://www.nytimes.com/2026/11/19/business/dealbook/mamdani-musk-altman-summit-highlights.html
-
-**Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
-`An aerial attack by the Yemeni militia affected several floors of a skyscraper that is home to the Public Investment Fund, without causing injuries, according to Saudi authorities.`\
-https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
-
-**China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
-`The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
-https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

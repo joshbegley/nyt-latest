@@ -1,3 +1,11 @@
+**Anthropic Debuts on Wall Street as a $2 Trillion Company**\
+`The San Francisco company was the first major A.I. lab to go public in a highly anticipated moment for the tech industry.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
+
+**Fast Dinners for the Days Before Thanksgiving**\
+`Like one favorite staple: sheet pan feta with chickpeas and tomatoes.`\
+https://www.nytimes.com/2026/11/19/dining/fast-dinners-for-the-days-before-thanksgiving.html
+
 **Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
 `In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
 https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
