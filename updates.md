@@ -1,3 +1,7 @@
+**Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
+`The summit between the three leaders is taking place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Watch the Biggest Interviews at the DealBook Summit**\
 `See the full conversations with Prime Minister Mark Carney of Canada, OpenAI’s Sam Altman and Greg Brockman, Mayor Zohran Mamdani of New York, SpaceX’s Elon Musk and more.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-the-biggest-interviews-at-the-dealbook-summit.html
