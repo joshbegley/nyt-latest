@@ -1,3 +1,7 @@
+**Where to Eat: Bistromania**\
+`Is a bistro a tradition? A mind-set? Or something else entirely?`\
+https://www.nytimes.com/2026/11/19/dining/where-to-eat-bistromania.html
+
 **Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
 `The ruling by the International Court of Justice deal with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
 https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
