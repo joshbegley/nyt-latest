@@ -1,3 +1,11 @@
+**This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
+`Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
+
+**Former Biden Chief, With Help From Alex Soros, Will Gather Aides of 2028 Hopefuls**\
+`Jen O’Malley Dillon, who led the former president’s last two White House bids, is inviting top Democratic operatives to a gathering funded in part by the megadonor Alex Soros.`\
+https://www.nytimes.com/2026/11/19/us/politics/alex-soros-jen-omalley-dillon-2028-democratic-presidential-race.html
+
 **Unexpected Fallout From the Iran War**\
 `Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
 https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
@@ -22,7 +30,7 @@ https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuati
 `The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
 https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
 
-**Fiona the Hippo, Whose Stardom Extended Well Beyond Cincinnati, Has Died**\
+**Fiona the Hippo, Star of Cincinnati Zoo and Beyond, Dies After Eating Child’s Hat**\
 `The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
 https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
 
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
 **Why Billie Jean King Struggled in Her First Marriage**\
 `The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
 https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
-
-**The Relationship Crisis Behind Billie Jean King’s Big Game**\
-`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, about painful feelings she had to suppress to focus on beating Bobby Riggs in the famous “Battle of the Sexes” match in 1973.`\
-https://www.nytimes.com/video/podcasts/100000011295629/the-relationship-crisis-behind-billie-jean-kings-big-game.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

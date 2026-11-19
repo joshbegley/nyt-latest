@@ -1,3 +1,15 @@
+**This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
+`Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
+
+**Former Biden Chief, With Help From Alex Soros, Will Gather Aides of 2028 Hopefuls**\
+`Jen O’Malley Dillon, who led the former president’s last two White House bids, is inviting top Democratic operatives to a gathering funded in part by the megadonor Alex Soros.`\
+https://www.nytimes.com/2026/11/19/us/politics/alex-soros-jen-omalley-dillon-2028-democratic-presidential-race.html
+
+**Fiona the Hippo, Star of Cincinnati Zoo and Beyond, Dies After Eating Child’s Hat**\
+`The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
+https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
+
 **Unexpected Fallout From the Iran War**\
 `Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
 https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
