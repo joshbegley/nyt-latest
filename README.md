@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
 `We look at a growing hesitation on campus.`\
 https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
 
-**Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
-`Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
+**Dutch and Austrian Embassies Are Damaged as Russian Drones Swarm Kyiv**\
+`Foreign ministers for Austria and the Netherlands said no one was harmed at their embassy compounds, and the European Union’s ambassador said a drone “exploded right above my head" by her hotel.`\
 https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
 
 **The Most Exciting Part of Thanksgiving Dinner? The Vegetables.**\
@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
-**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
-`Investor enthusiasm for the artificial intelligence giant’s stock initially sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
+**Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
 **Inside a Rohingya Camp After a Genocide Ruling**\
