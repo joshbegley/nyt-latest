@@ -1,3 +1,7 @@
+**NYC Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
+`Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
+https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
+
 **Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
 `After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
 https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html

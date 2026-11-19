@@ -114,7 +114,7 @@ https://www.nytimes.com/2026/11/19/dining/the-most-exciting-part-of-thanksgiving
 `In a display of warmth, President Trump offered his hand to China’s leader, Xi Jinping, as the two walked onto an escalator during a summit of Asia Pacific leader’s in Shenzhen, China.`\
 https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-escalator.html
 
-**Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
+**NYC Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
 `Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
 https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
 
