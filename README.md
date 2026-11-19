@@ -1,3 +1,7 @@
+**After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
+`South Korea is sending emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
+https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
+
 **At Gloria Steinem Memorial, Michelle Obama, Hillary Clinton and More Big Names Gather**\
 `Former Secretary of State Hillary Clinton and other luminaries spoke at the event, which also featured performances by Cynthia Erivo and Kathy Sledge.`\
 https://www.nytimes.com/2026/11/18/style/gloria-steinem-memorial-photos.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/us/politics/judge-block-trump-arch.html
 **Polymarket Founder Defends Partnership With Donald Trump Jr.**\
 `At the DealBook Summit on Wednesday, Polymarket founder Shayne Coplan said the media attention surrounding his company’s relationship with the president’s eldest son, Donald Trump Jr., has been “heavily overblown.”`\
 https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trump.html
-
-**Palmer Luckey Warns the U.S. Faces an A.I. ‘Mismatch’**\
-`The founder of Anduril Industries, a defense tech company, blamed the widespread tech outages across the United States on attackers using A.I. tools to target outdated infrastructure.`\
-https://www.nytimes.com/2026/11/18/business/dealbook/palmer-luckey-anduril-ai.html
 
