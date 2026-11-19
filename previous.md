@@ -1,3 +1,7 @@
+**Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
+`Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
+https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
+
 **Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
 `The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
 https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
@@ -86,8 +90,8 @@ https://www.nytimes.com/2026/11/19/world/asia/myanmar-genocide-refugee-camp.html
 `We look at a growing hesitation on campus.`\
 https://www.nytimes.com/2026/11/19/briefing/an-anti-ai-campus-movement.html
 
-**Drone Hits Dutch Embassy Compound in Kyiv, Ukrainian Officials Say**\
-`Dutch officials said a projectile hit just behind the embassy compound, and that no one was harmed. Russia launched a wave of attacks into Ukraine’s capital on Thursday.`\
+**Dutch and Austrian Embassies Are Damaged as Russian Drones Swarm Kyiv**\
+`Foreign ministers for Austria and the Netherlands said no one was harmed at their embassy compounds, and the European Union’s ambassador said a drone “exploded right above my head" by her hotel.`\
 https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
 
 **The Most Exciting Part of Thanksgiving Dinner? The Vegetables.**\
@@ -146,8 +150,8 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
-**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
-`Investor enthusiasm for the artificial intelligence giant’s stock initially sent its share price surging more than 30 percent, and pushed the company’s market value to about $2 trillion.`\
+**Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
 **Inside a Rohingya Camp After a Genocide Ruling**\
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
 **‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
 `The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
 https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
-
-**What Your Lighting Preferences Say About You**\
-`Are you a big light person or an ambient light person? Online, your preferences may say a lot about you.`\
-https://www.nytimes.com/2026/11/19/style/lighting-ambience-overhead-lamps.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

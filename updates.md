@@ -1,3 +1,15 @@
+**Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
+`Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
+https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
+
+**Dutch and Austrian Embassies Are Damaged as Russian Drones Swarm Kyiv**\
+`Foreign ministers for Austria and the Netherlands said no one was harmed at their embassy compounds, and the European Union’s ambassador said a drone “exploded right above my head" by her hotel.`\
+https://www.nytimes.com/2026/11/19/world/europe/ukraine-dutch-embassy.html
+
+**Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
 `The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
 https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
