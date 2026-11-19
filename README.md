@@ -1,3 +1,7 @@
+**Nvidia Asked to Sell Chips to Companies Tied to Chinese Military and Megaspeed**\
+`Lawmakers released confidential information showing the Commerce Department had approved sales of more than 800,000 A.I. chips to Chinese companies, some with military ties.`\
+https://www.nytimes.com/2026/11/19/business/economy/nvidia-chips-commerce-china-huang.html
+
 **Judge Allows Trump’s $15 Billion Case Against The Times to Proceed**\
 `Mr. Trump accused the news organization and the book publisher Penguin Random House of disparaging his reputation as a successful businessman.`\
 https://www.nytimes.com/2026/11/19/business/media/new-york-times-trump-defamation-case.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/insider/a-conversation-on-middle-east-headlin
 **Anthropic Debuts on Wall Street as a $2 Trillion Company**\
 `The San Francisco company was the first major A.I. lab to go public in a highly anticipated moment for the tech industry.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
-
-**Fast Dinners for the Days Before Thanksgiving**\
-`Like one favorite staple: sheet pan feta with chickpeas and tomatoes.`\
-https://www.nytimes.com/2026/11/19/dining/fast-dinners-for-the-days-before-thanksgiving.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
