@@ -1,3 +1,7 @@
+**Russia’s Takeover of Japan Tobacco Units Deals $8.6 Billion Blow**\
+`The move against the Japanese government-backed cigarette maker highlights worsening tensions between the countries, even as their leaders try to keep diplomatic channels open.`\
+https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
+
 **‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
 `A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
 https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html

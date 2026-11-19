@@ -63,7 +63,7 @@ https://www.nytimes.com/2026/11/19/opinion/tech-outages-cybersecurity.html
 https://www.nytimes.com/2026/11/19/pageoneplus/corrections-nov-19-2026.html
 
 **Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
-`As A.I. development surges ahead, policymakers have struggled to protect workers, businesses and the rest of the economy from potential disruption.`\
+`As the technology surges ahead, policymakers in Washington have struggled to prepare for potential disruption to workers, businesses and the rest of the economy.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
 
 **U.S. Army Plans to Blow Up Old Ammo, Creating Toxic Cloud Over Iowa**\
@@ -194,7 +194,7 @@ https://www.nytimes.com/2026/11/19/sports/kimi-antonelli-formula-one-champion.ht
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
-**Live Updates: Trump Holds First Summit With Xi and Putin, Whom He Calls ‘Friend’**\
-`President Trump said that he would bring up the war in Ukraine at the first-ever meeting of leaders of Russia, China and the United States.`\
+**Live Updates: Trump Departs China After First-Ever Summit With Xi and Putin**\
+`President Trump said before the meeting that he wanted to discuss nuclear weapons and the wars in Ukraine and Iran. But the three leaders appeared to refer to the topics only in vague terms.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
