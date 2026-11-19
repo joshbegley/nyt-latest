@@ -1,3 +1,7 @@
+**Late Night Follows Trump’s Meeting with Xi and Putin in China**\
+`Jimmy Fallon said that the leaders’ timing made sense: “Now that James Bond has been cast, they’re auditioning villains.”`\
+https://www.nytimes.com/2026/11/19/arts/television/late-night-trump-xi-putin.html
+
 **Putin Returns to APEC ‘Family Photo,’ Testing Western Leaders**\
 `The leaders of Australia and Canada defended their decision to join the APEC group portrait as a courtesy to the host, China, despite criticism at home.`\
 https://www.nytimes.com/2026/11/19/world/asia/putin-xi-trump-apec-family-photo.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/nyregion/ponzi-scheme-backward-hat-capital.ht
 **Executives Discuss the Line Between Prediction Markets and Gambling**\
 `In an interview with Andrew Ross Sorkin at the DealBook Summit, Shayne Coplan, the founder of Polymarket, Vlad Tenev of Robinhood and Adena Friedman, the president and C.E.O. of Nasdaq speak about the future of the prediction market industry.`\
 https://www.nytimes.com/video/business/dealbook/100000011290584/robinhood-polymarket-nasdaq-prediction-market-dealbook.html
-
-**Why Palmer Luckey Doesn’t Think A.I. Models Can Be Controlled**\
-`Palmer Luckey, founder of the defense contractor Anduril Industries, speaks with Andrew Ross Sorkin at the DealBook summit on A.I. development and the war in Iran.`\
-https://www.nytimes.com/video/business/dealbook/100000011290589/palmer-luckey-dealbook-ai-politics.html
 
