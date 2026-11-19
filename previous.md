@@ -1,3 +1,15 @@
+**Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
+`After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
+https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html
+
+**Scientists Discover a Possible Marker in the Blood of C.T.E. Patients**\
+`An unusual protein may turn out to be a way to diagnose the chronic brain disease, which disproportionately affects athletes in contact sports.`\
+https://www.nytimes.com/2026/11/19/science/cte-blood-test-diagnosis.html
+
+**Trump Flaunts Camaraderie With Xi and Putin but Has Little to Show for It**\
+`President Trump called Russia’s leader his “friend” and marveled at China’s warm welcome for his first-ever trilateral summit. But there were no breakthroughs on nuclear control, the war in Ukraine or A.I.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin.html
+
 **Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
 `Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
 https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
@@ -153,18 +165,6 @@ https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-u
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
-
-**Inside a Rohingya Camp After a Genocide Ruling**\
-`On Thursday, the International Court of Justice ruled that the atrocities against the Rohingya ethnic minority constituted a genocide waged by the Myanmar state. Before the decision, Hannah Beech, a New York Times correspondent, spent a week in the refugee camps in Cox’s Bazar, Bangladesh, home to at least 1.2 million Rohingya.`\
-https://www.nytimes.com/video/world/asia/100000011287890/inside-a-rohingya-camp-after-a-genocide-ruling.html
-
-**A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
-`The paramedic in rural Utah realized a man pinned under a car was her son after she began treating him, the authorities said.`\
-https://www.nytimes.com/2026/11/19/us/paramedic-accident-son-utah.html
-
-**‘Birthright,’ a Play About Jewish Divisions Over Israel, Is Broadway Bound**\
-`The acclaimed work is by Jonathan Spector, who won a Tony Award in 2025 for a play about anti-vaxxers.`\
-https://www.nytimes.com/2026/11/19/theater/birthright-broadway-israel.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

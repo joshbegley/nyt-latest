@@ -1,3 +1,15 @@
+**Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
+`After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
+https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html
+
+**Scientists Discover a Possible Marker in the Blood of C.T.E. Patients**\
+`An unusual protein may turn out to be a way to diagnose the chronic brain disease, which disproportionately affects athletes in contact sports.`\
+https://www.nytimes.com/2026/11/19/science/cte-blood-test-diagnosis.html
+
+**Trump Flaunts Camaraderie With Xi and Putin but Has Little to Show for It**\
+`President Trump called Russia’s leader his “friend” and marveled at China’s warm welcome for his first-ever trilateral summit. But there were no breakthroughs on nuclear control, the war in Ukraine or A.I.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin.html
+
 **Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
 `Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
 https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
