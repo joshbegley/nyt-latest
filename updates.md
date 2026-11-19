@@ -1,3 +1,7 @@
+**They’re Prepping for a World Where the Internet Doesn’t Work**\
+`“DoorDash is not an emergency plan.”`\
+https://www.nytimes.com/2026/11/19/style/theyre-prepping-for-a-broken-digital-world.html
+
 **China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
 `Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-china-hong-kong.html
