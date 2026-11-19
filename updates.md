@@ -1,3 +1,7 @@
+**Live Updates: U.N. Court to Rule in Rohingya Genocide Case**\
+`The African nation of Gambia has accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **Netanyahu Associates Acknowledge Role in Setting Off Election Day Arrests**\
 `After a historic result for Israel’s Arab-led parties, Prime Minister Benjamin Netanyahu said the vote was rigged, pointing to the detention of three opposition activists. His chief of staff has admitted being involved with the initial outreach to police.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/netanyahu-arab-activists-arrests-israel-election.html
