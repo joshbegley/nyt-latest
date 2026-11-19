@@ -1,3 +1,11 @@
+**Greenland Pulls Closer to the U.S. — by an Hour**\
+`Greenland’s politicians voted to change the Arctic island’s time zone to be farther from Denmark, its former colonial power, and closer to the United States.`\
+https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.html
+
+**A Palestinian American on Our Headlines**\
+`We often hear from readers who are critical of our headlines. Patrick Healy, an assistant managing editor for The New York Times, speaks with Omar Baddar, a political analyst, about how we frame our stories.`\
+https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-our-headlines.html
+
 **Women Led Country’s Big-Tent Revival in 2026**\
 `With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
 https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html

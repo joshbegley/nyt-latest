@@ -1,3 +1,11 @@
+**Greenland Pulls Closer to the U.S. — by an Hour**\
+`Greenland’s politicians voted to change the Arctic island’s time zone to be farther from Denmark, its former colonial power, and closer to the United States.`\
+https://www.nytimes.com/2026/11/19/world/europe/greenland-time-zone-change-us.html
+
+**A Palestinian American on Our Headlines**\
+`We often hear from readers who are critical of our headlines. Patrick Healy, an assistant managing editor for The New York Times, speaks with Omar Baddar, a political analyst, about how we frame our stories.`\
+https://www.nytimes.com/video/insider/100000011272461/a-palestinian-american-on-our-headlines.html
+
 **Women Led Country’s Big-Tent Revival in 2026**\
 `With huge hits from Ella Langley and Stella Lefty, a slate of nominations in the top Grammy categories and Taylor Swift’s return to the genre, women expanded, and blurred, country music’s borders.`\
 https://www.nytimes.com/2026/11/19/arts/music/ella-langley-stella-lefty-country-women.html
@@ -165,14 +173,6 @@ https://www.nytimes.com/2026/11/19/business/anthropic-ipo-dustin-moskovitz.html
 **Where to See Jerry Seinfeld’s Car and Billy Joel’s Motorcycles**\
 `Retromobile, a car show at the Javits Center, specializes in collectibles.`\
 https://www.nytimes.com/2026/11/19/nyregion/retromobile-car-show-javits-center.html
-
-**Three MAGA Women Who Defined an Era in Congress Are Exiting**\
-`Representatives Marjorie Taylor Greene, Lauren Boebert and Nancy Mace embodied a combative, attention-seeking brand of politics that defined the Republican Congress.`\
-https://www.nytimes.com/2026/11/19/us/politics/three-maga-women-who-defined-an-era-in-congress-are-exiting.html
-
-**Inside COP31: Part Trade Show, Part Climate Therapy Session**\
-`A record number of people are attending the U.N. climate talks in Turkey, which has become part trade show, part carnival, part climate therapy session.`\
-https://www.nytimes.com/2026/11/19/climate/cop31-turkey-event-scene.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
