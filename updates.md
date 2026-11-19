@@ -1,3 +1,11 @@
+**Ericka Lomick’s Texas House Win Faces Challenge in State Supreme Court**\
+`The Texas electoral wave carried one Democrat to victory even after she had suspended her campaign. Republicans want her declared ineligible.`\
+https://www.nytimes.com/2026/11/18/us/texas-house-election-ericka-lomick.html
+
+**Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
+`The summit between the three leaders will take place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
 `South Korea is sending emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
 https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html

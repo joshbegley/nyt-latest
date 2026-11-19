@@ -1,3 +1,7 @@
+**Ericka Lomick’s Texas House Win Faces Challenge in State Supreme Court**\
+`The Texas electoral wave carried one Democrat to victory even after she had suspended her campaign. Republicans want her declared ineligible.`\
+https://www.nytimes.com/2026/11/18/us/texas-house-election-ericka-lomick.html
+
 **After A.I. Cheating Scandal, South Korea Adopts New Restrictions for Grueling College Entrance Exam**\
 `South Korea is sending emergency alerts to every phone in the country as part of a campaign to keep students taking a grueling test honest.`\
 https://www.nytimes.com/2026/11/18/world/asia/south-korea-cheating-college-exam-suneung.html
@@ -31,7 +35,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
 https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
 
 **Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
-`The summit between the three leaders is taking place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
+`The summit between the three leaders will take place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 
 **Watch the Biggest Interviews at the DealBook Summit**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/18/business/dealbook/polymarket-donald-trump-jr-
 **Judge Extends Block on Building Trump’s Triumphal Arch**\
 `Judge Tanya Chutkan barred the government from beginning work on the project for another two weeks.`\
 https://www.nytimes.com/2026/11/18/us/politics/judge-block-trump-arch.html
-
-**Polymarket Founder Defends Partnership With Donald Trump Jr.**\
-`At the DealBook Summit on Wednesday, Polymarket founder Shayne Coplan said the media attention surrounding his company’s relationship with the president’s eldest son, Donald Trump Jr., has been “heavily overblown.”`\
-https://www.nytimes.com/video/us/100000011294213/dealbook-coplan-polymarket-trump.html
 
