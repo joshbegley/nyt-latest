@@ -1,3 +1,7 @@
+**Live Updates: Trump Holds First Summit With Xi and Putin, Whom He Calls ‘Friend’**\
+`President Trump said that he would bring up the war in Ukraine at the first-ever meeting of leaders of Russia, China and the United States.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: Trump Holds 1st Summit With Xi and Putin, Whom He Calls ‘Friend’**\
 `President Trump said that he would bring up the Ukraine War at the first-ever meeting of leaders of Russia, China and the United States.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
