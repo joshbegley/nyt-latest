@@ -1,3 +1,11 @@
+**Takeaways From the 2026 DealBook Summit**\
+`Leaders in artificial intelligence and governments discussed America’s shifting politics, the reverberations of Jensen Huang’s ouster at Nvidia and more on Wednesday.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-musk-altman-ellison.html
+
+**Widespread Tech Outages Put Focus on Trump’s National Security Cuts**\
+`Lawmakers and cyberdefense experts said diminished staffing at the Cybersecurity and Infrastructure Security Agency and National Security Council could be hobbling the administration’s response.`\
+https://www.nytimes.com/2026/11/18/us/politics/tech-outages-trump-national-security.html
+
 **‘I’m Not MAGA’: Musk Distances Himself From G.O.P. After Midterms**\
 `Elon Musk, chief executive of Starlink and Tesla, said during the DealBook Summit on Wednesday that he felt “foolish” for his large political donations to Republicans.`\
 https://www.nytimes.com/video/admin/100000011294539/musk-midterms-republican-maga.html
