@@ -1,3 +1,27 @@
+**‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
+`A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
+https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
+
+**Today’s Wordle Hints for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
+
+**Trump Greets Putin as ‘My Friend,’ and the Rise of GLP-1s for Children**\
+`Plus, an extreme campaign to stop students from cheating.`\
+https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for-children.html
+
+**NYT Strands Hints for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
+
+**NYT Connections Answers for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/connections-companion-1258.html
+
+**Iran Keeps Up Unrelenting Attacks on Ships in the Strait of Hormuz**\
+`A recent strike on a ship that had already been disabled might signal a dangerous new phase for tankers operating in the Persian Gulf and surrounding waters.`\
+https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.html
+
 **The Disappearing Iranian Meal**\
 `Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
 https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
@@ -165,30 +189,6 @@ https://www.nytimes.com/2026/11/19/sports/kimi-antonelli-formula-one-champion.ht
 **F1: No Wins, No Points. For Cadillac, No Problem.**\
 `Consider 2026 the new team's shakedown season, with hopes that the lessons learned will pay off next year.`\
 https://www.nytimes.com/2026/11/19/sports/f1-cadillac.html
-
-**Bathrooms Are Getting Bigger and Better**\
-`Spalike features, including steam showers and saunas, have become more common at home.`\
-https://www.nytimes.com/2026/11/19/realestate/bathroom-renovation-trends.html
-
-**I’m Sad That My Boyfriend Uses A.I. to Write Love Notes**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader who wishes a lover would use his own words to express his feelings for her.`\
-https://www.nytimes.com/2026/11/19/well/mind/ask-therapist-ai-love-notes.html
-
-**Jewelry Helps Her Keep Her Scottish Heritage Alive**\
-`Some of Ellis Mhairi Cameron’s creations echo artifacts found on land that has been in her family since the 1500s.`\
-https://www.nytimes.com/2026/11/19/fashion/jewelry-ellis-mahairi-cameron-london.html
-
-**Word of the Day: kerfuffle**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/19/learning/word-of-the-day-kerfuffle.html
-
-**When Siblings Go Into a Craft Business Together**\
-`Experts say it takes a special relationship, something these pairs seem to embody.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-siblings.html
-
-**An Unusual Entrance to the Bangkok Art Biennale**\
-`“Vestibule,” a 13-foot-long woven artwork, has become a portal to one of the event areas.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-woven-artwork-bangkok-art-biennale-thailand.html
 
 **Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
