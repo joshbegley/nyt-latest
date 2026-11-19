@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-sum
 `Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
 https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
-**Elon Musk Says He’s ‘Not MAGA’**\
-`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
-https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-says-hes-not-maga.html
-
