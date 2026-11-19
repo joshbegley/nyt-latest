@@ -1,3 +1,11 @@
+**Judge Allows Trump’s $15 Billion Case Against The Times to Proceed**\
+`Mr. Trump accused the news organization and the book publisher Penguin Random House of disparaging his reputation as a successful businessman.`\
+https://www.nytimes.com/2026/11/19/business/media/new-york-times-trump-defamation-case.html
+
+**Pouring Rain and High Winds Are Tearing Through California**\
+`Officials issued evacuation warnings in Southern California on Thursday, as the storm that flooded San Francisco continued sweeping through the state.`\
+https://www.nytimes.com/video/weather/100000011295937/storm-rain-california.html
+
 **Set Your Holiday Table Like a Milanese Design Gallerist**\
 `Nina Yashar shows us how, especially at this time of year, her eclectic tastes play out in her own dining room.`\
 https://www.nytimes.com/2026/11/19/t-magazine/holiday-tablescaping-design-nina-yashar.html
@@ -177,10 +185,6 @@ https://www.nytimes.com/2026/11/19/technology/anthropic-2-trillion.html
 **Fast Dinners for the Days Before Thanksgiving**\
 `Like one favorite staple: sheet pan feta with chickpeas and tomatoes.`\
 https://www.nytimes.com/2026/11/19/dining/fast-dinners-for-the-days-before-thanksgiving.html
-
-**Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
-`In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
-https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
