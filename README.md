@@ -1,3 +1,19 @@
+**10 Best Looks From the Country Music Association Awards Red Carpet**\
+`There were rhinestones, cowboy hats and more than one tribute to Dolly Parton.`\
+https://www.nytimes.com/2026/11/18/style/cma-country-music-association-awards-red-carpet.html
+
+**NYT Crossword Answers for Nov. 19, 2026**\
+`James Mattina’s puzzle gets existential.`\
+https://www.nytimes.com/2026/11/18/crosswords/daily-puzzle-2026-11-19.html
+
+**‘The Lowdown’ Season 2 Episode 7 Recap: Meat Grinder**\
+`This week the series features Lee at his best and shows off its remarkable emotional range.`\
+https://www.nytimes.com/2026/11/18/arts/television/the-lowdown-season-2-episode-7-recap-meat-grinder.html
+
+**With Alaska’s Senate Vote Counted, What Comes Next in the Last Frontier?**\
+`The race is scheduled to be certified next week, but the Justice Department is investigating after Republicans lodged cheating allegations against the eventual winner, Mary Peltola.`\
+https://www.nytimes.com/2026/11/18/us/politics/alaska-senate-count.html
+
 **Alaska Republican Narrowly Defeats Independent House Candidate**\
 `Representative Nick Begich III overcame an independent challenger in a year in which Democrats made historic gains but third-party candidates had little success.`\
 https://www.nytimes.com/2026/11/18/us/politics/alaska-nick-begich-wins-house-race.html
@@ -177,20 +193,4 @@ https://www.nytimes.com/2026/11/18/nyregion/brooklyn-building-collapse-video.htm
 **New Video Shows Deadly Brooklyn Building Collapse**\
 `Video from a city bus obtained by The New York Times shows a building in the Flatbush neighborhood of Brooklyn collapsing into a construction site. At least eight people were killed.`\
 https://www.nytimes.com/video/nyregion/100000011294190/mta-bus-captures-brooklyn-building-collapse.html
-
-**‘Madden’ Review: Nicolas Cage Goes Big in N.F.L. Biopic**\
-`The eager-to-please movie charts the highs and lows of its bejowled title character, from his years coaching the Oakland Raiders to his video game celebrity.`\
-https://www.nytimes.com/2026/11/18/movies/madden-review-nicolas-cage.html
-
-**Why Sam Altman and Greg Brockman Say Humans Must Stay in Control of A.I.**\
-`Sam Altman and Greg Brockman, two of OpenAI’ co-founders, speak with Andrew Ross Sorkin at the DealBook Summit about the future of artificial intelligence, the Hugging Face hack and the Anthropic I.P.O.s`\
-https://www.nytimes.com/video/business/dealbook/100000011289875/sam-altman-greg-brockman-ai-dealbook-video.html
-
-**Trump, Putin and Xi to Meet for the First Time**\
-`Also, Democrats nominate Jeffries as speaker, making history. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/11/18/briefing/trump-putin-xi-meeting.html
-
-**Fight Over Deportation Protections for Venezuelans Returns to Supreme Court**\
-`The justices previously allowed the Trump administration to lift protections for Venezuelans covered by the program known as Temporary Protected Status.`\
-https://www.nytimes.com/2026/11/18/us/politics/supreme-court-trump-deportation-venezuelans.html
 
