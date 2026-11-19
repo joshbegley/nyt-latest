@@ -1,3 +1,11 @@
+**Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
+`As the technology surges ahead, policymakers in Washington have struggled to prepare for potential disruption to workers, businesses and the rest of the economy.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
+
+**Live Updates: Trump Departs China After First-Ever Summit With Xi and Putin**\
+`President Trump said before the meeting that he wanted to discuss nuclear weapons and the wars in Ukraine and Iran. But the three leaders appeared to refer to the topics only in vague terms.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Russia’s Takeover of Japan Tobacco Units Deals $8.6 Billion Blow**\
 `The move against the Japanese government-backed cigarette maker highlights worsening tensions between the countries, even as their leaders try to keep diplomatic channels open.`\
 https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
