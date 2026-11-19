@@ -1,3 +1,15 @@
+**Trump Offers Helping Hand to ‘Friend’ Xi on Escalator Ride**\
+`In a display of warmth, President Trump offered his hand to China’s leader, Xi Jinping, as the two walked onto an escalator during a summit of Asia Pacific leader’s in Shenzhen, China.`\
+https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-escalator.html
+
+**Horse Carriage Ban Becomes Law and Is Immediately Challenged in Court**\
+`Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
+https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
+
+**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fires**\
+`The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
+https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
+
 **Los Angeles Prosecutor to Oversee Inquiry Into Search of Trump’s Mar-a-Lago Residence**\
 `The appointment of Bill Essayli to run a key aspect of the so-called grand conspiracy case was the latest shake-up in a central part of President Trump’s retribution campaign.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essayli.html
@@ -153,18 +165,6 @@ https://www.nytimes.com/2026/11/19/pageoneplus/corrections-nov-19-2026.html
 **Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
 `As the technology surges ahead, policymakers in Washington have struggled to prepare for potential disruption to workers, businesses and the rest of the economy.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
-
-**U.S. Army Plans to Blow Up Old Ammo, Creating Toxic Cloud Over Iowa**\
-`Friday’s explosion will dispose of unstable material used in detonators. A plume of dangerous lead dust could travel up to 100 miles, the Army said.`\
-https://www.nytimes.com/2026/11/19/climate/iowa-ammunition-explosion-lead-dust.html
-
-**The New Grand Theft Auto Is Finally Here. Are You Excited?**\
-`The release of Grand Theft Auto VI is likely to be one of the biggest entertainment launches ever.`\
-https://www.nytimes.com/2026/11/19/learning/the-new-grand-theft-auto-is-finally-here-are-you-excited.html
-
-**In Bending to Trump, Law Firm Did $11.8 Million of Free Work for Administration**\
-`The firm Kirkland & Ellis has quietly disclosed that as part of the deal it reached with the Trump administration, it has done about 6,491 hours of free work.`\
-https://www.nytimes.com/2026/11/19/us/politics/kirkland-ellis-law-firm-trump.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
