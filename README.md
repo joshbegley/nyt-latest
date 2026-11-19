@@ -1,3 +1,11 @@
+**Watch the Biggest Interviews at the DealBook Summit**\
+`See the full conversations with Prime Minister Mark Carney of Canada, OpenAI’s Sam Altman and Greg Brockman, Mayor Zohran Mamdani of New York, SpaceX’s Elon Musk and more.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-the-biggest-interviews-at-the-dealbook-summit.html
+
+**Watch: Elon Musk Says He’s a Political Moderate, ‘Not MAGA’**\
+`Despite his heavy support of Republicans, the SpaceX and Tesla C.E.O. said in an interview at the DealBook Summit that “there are positives and negatives in both parties.”`\
+https://www.nytimes.com/2026/11/18/business/watch-elon-musk-dealbook-summit-not-maga.html
+
 **Watch: Robinhood’s C.E.O. Says He Shouldn’t Decide What You Can Trade**\
 `Speaking alongside the Nasdaq chief Adena Friedman and the Polymarket founder Shayne Coplan, Vlad Tenev said regular investors should have access to more opportunities.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/adena-friedman-vlad-tenev-shayne-copland-dealbook-summit.html
@@ -35,7 +43,7 @@ https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-sum
 https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
 
 **Elon Musk Says He’s ‘Not MAGA’**\
-`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink and whether SpaceX and Tesla will merge.`\
 https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
 
 **Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/dining/restaurant-review-ngon-vietnamese-kitc
 **Jensen Huang Is Top of Mind for Tech Leaders at DealBook Summit**\
 `Sam Altman of OpenAI and Palmer Luckey of Anduril expressed support for Mr. Huang, who resigned as chief executive of the chip maker Nvidia last week.`\
 https://www.nytimes.com/2026/11/18/business/dealbook/jensen-huang-nvidia-tech-leaders-reaction.html
-
-**Our Favorite Fair Isle Sweaters**\
-`The traditional Scottish knitwear design is everywhere this fall. Here are a range of cozy new options.`\
-https://www.nytimes.com/2026/11/18/t-magazine/best-fair-isle-sweater-scottish-knitwear.html
-
-**Film Club: ‘Prison and Time’**\
-`What can the reflections of Marvin Wade, who was incarcerated for 25 years, teach us about befriending time?`\
-https://www.nytimes.com/2026/11/18/learning/film-club-prison-and-time.html
 
