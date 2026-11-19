@@ -1,3 +1,7 @@
+**The Disappearing Iranian Meal**\
+`Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
+https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
+
 **Adam McKay on Rich People, Ed Sheeran and Looksmaxxers**\
 `The director sounds off on the American “train wreck.”`\
 https://www.nytimes.com/2026/11/19/podcasts/adam-mckay-ed-sheeran-looksmaxxers-philadelphia-76ers.html
@@ -186,15 +190,11 @@ https://www.nytimes.com/2026/11/19/fashion/craftsmanship-siblings.html
 `“Vestibule,” a 13-foot-long woven artwork, has become a portal to one of the event areas.`\
 https://www.nytimes.com/2026/11/19/fashion/craftsmanship-woven-artwork-bangkok-art-biennale-thailand.html
 
-**This Painter Makes Surfaces Look Like What They Are Not**\
-`Frantz Wehrlé uses his skills as a decorative painter to make surfaces look like something they are not.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-decorative-painting-frantz-wehrle.html
-
-**In Manhattan, Millions and Millions of Buttons**\
-`Lou Lou Buttons, a Manhattan shop, boasts more than 10 million fasteners in all shapes, sizes and materials.`\
-https://www.nytimes.com/2026/11/19/fashion/craftsmanship-lou-lou-buttons-manhattan.html
-
 **Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
+**Live Updates: Trump Holds First Summit With Xi and Putin, Whom He Calls ‘Friend’**\
+`President Trump said that he would bring up the war in Ukraine at the first-ever meeting of leaders of Russia, China and the United States.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
 

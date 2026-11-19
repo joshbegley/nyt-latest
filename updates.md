@@ -1,3 +1,11 @@
+**The Disappearing Iranian Meal**\
+`Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
+https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
+
+**Live Updates: Trump Holds First Summit With Xi and Putin, Whom He Calls ‘Friend’**\
+`President Trump said that he would bring up the war in Ukraine at the first-ever meeting of leaders of Russia, China and the United States.`\
+https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
+
 **Live Updates: U.N. Court Issues Ruling in Landmark Genocide Case**\
 `The president of the International Court of Justice has begun reading the ruling in the case in which Gambia accused the state of Myanmar of committing genocide against the Rohingya Muslim minority.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
