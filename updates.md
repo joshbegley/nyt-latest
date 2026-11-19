@@ -1,3 +1,7 @@
+**Don’t Play Anthropic’s Game**\
+`Trying to save the world and trying to make a lot of money will be an unstable combination.`\
+https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
+
 **How Trump Betrayed His Base**\
 `What remains of MAGA?`\
 https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html

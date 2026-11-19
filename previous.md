@@ -94,7 +94,7 @@ https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-c
 `The beloved landmark will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
 https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 
-**Is Anthropic a Tech Company or Doomsday Cult? It Can’t Be Both.**\
+**Don’t Play Anthropic’s Game**\
 `Trying to save the world and trying to make a lot of money will be an unstable combination.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
 
