@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foste
 `Beyond Sydney’s magnificent harbor, vibrant interior neighborhoods thrum with live music, cool cafes and thoughtful storytelling that honors the city’s traditional custodians.`\
 https://www.nytimes.com/interactive/2026/11/19/travel/things-to-do-sydney.html
 
-**Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
-`The beloved landmark will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
-https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
-
 **Colombia’s President Is Acquiring a Reputation for Courting Controversy**\
 `Colombia’s new leader, Abelardo De La Espriella, presents himself as a warrior against criminal groups and woke culture, and courts controversy at every turn.`\
 https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-crime.html
+
+**Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
+`The beloved landmark will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
+https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 
 **Don’t Play Anthropic’s Game**\
 `Trying to save the world and trying to make a lot of money will be an unstable combination.`\
@@ -177,10 +177,6 @@ https://www.nytimes.com/2026/11/19/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and Queens**\
 `This week’s properties are on the Lower East Side, in Morningside Heights and in Astoria.`\
 https://www.nytimes.com/2026/11/19/realestate/housing-market-nyc.html
-
-**‘Steps’ Review: These Siblings Deserve Better Magic**\
-`In this superficial animated retelling of the Cinderella tale, three sisters must go on a journey to recover the magic they need to set the story back on track.`\
-https://www.nytimes.com/2026/11/19/movies/steps-review.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
