@@ -1,3 +1,7 @@
+**Mamdani, Musk, Altman, A.I. and Other DealBook Summit Highlights**\
+`Artificial intelligence, bubble fears, the Nvidia fallout, prediction markets, politics and other big topics that made headlines this year.`\
+https://www.nytimes.com/2026/11/19/business/dealbook/mamdani-musk-altman-summit-highlights.html
+
 **Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
 `Windows were blown out of a skyscraper that is home to the Public Investment Fund after the Yemeni militia fired missiles at the Saudi capital.`\
 https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/19/arts/rembrandt-morgan-library.html
 **Military Histories About Air Power**\
 `Three new books capture the promise of aviation and the limits of air power.`\
 https://www.nytimes.com/2026/11/19/books/review/military-history-air-power.html
-
-**The Longevity Obsession Has Gone Too Far, Some Experts Say**\
-`Experts speak out against the quest to turn back time.`\
-https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

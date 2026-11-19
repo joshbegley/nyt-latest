@@ -1,3 +1,11 @@
+**Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
+`Windows were blown out of a skyscraper that is home to the Public Investment Fund after the Yemeni militia fired missiles at the Saudi capital.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
+
+**Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
+`Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
+https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
+
 **China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
 `The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html

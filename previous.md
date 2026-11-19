@@ -1,3 +1,7 @@
+**Saudi Sovereign Wealth Fund Tower Damaged as Houthis Attack Riyadh**\
+`Windows were blown out of a skyscraper that is home to the Public Investment Fund after the Yemeni militia fired missiles at the Saudi capital.`\
+https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houthis-attack.html
+
 **China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
 `The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html
@@ -14,13 +18,13 @@ https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
 `A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
 https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
 
-**Today’s Wordle Hints for November 20, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
-
 **Trump Greets Putin as ‘My Friend,’ and the Rise of GLP-1s for Children**\
 `Plus, an extreme campaign to stop students from cheating.`\
 https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for-children.html
+
+**Today’s Wordle Hints for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
 
 **NYT Strands Hints for November 20, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
@@ -186,12 +190,8 @@ https://www.nytimes.com/2026/11/19/books/review/military-history-air-power.html
 `Experts speak out against the quest to turn back time.`\
 https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 
-**Google Disrupts Its Search Advertising With Its Embrace of A.I.**\
-`The Silicon Valley giant’s search advertising has long fueled the company. But its search ad growth is slowing as A.I. becomes more prevalent.`\
-https://www.nytimes.com/2026/11/19/technology/google-search-ads-ai.html
-
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
-`Myanmar became the first state held to account for violating the 1948 Genocide Convention, in a ruling that will have sweeping implications.`\
+`Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
 https://www.nytimes.com/live/2026/11/19/world/myanmar-icj-ruling-genocide
 
 **Live Updates: Trump Departs China After First-Ever Summit With Xi and Putin**\
