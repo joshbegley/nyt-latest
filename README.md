@@ -1,3 +1,7 @@
+**China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
+`The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
+https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html
+
 **The Biggest Video Game Ever**\
 `We look at the release of Grand Theft Auto VI.`\
 https://www.nytimes.com/2026/11/19/briefing/grand-theft-auto-vi.html
@@ -185,10 +189,6 @@ https://www.nytimes.com/2026/11/19/well/anti-longevity-influencers.html
 **Google Disrupts Its Search Advertising With Its Embrace of A.I.**\
 `The Silicon Valley giant’s search advertising has long fueled the company. But its search ad growth is slowing as A.I. becomes more prevalent.`\
 https://www.nytimes.com/2026/11/19/technology/google-search-ads-ai.html
-
-**Grand Theft Auto Used to Satirize American Life. Now We’ve Caught Up With It.**\
-`The G.T.A. series is more than just a crime simulator — it’s a cartoonish sendup of our country. What happens when reality outruns the joke?`\
-https://www.nytimes.com/2026/11/19/magazine/grand-theft-auto-six.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held to account for violating the 1948 Genocide Convention, in a ruling that will have sweeping implications.`\
