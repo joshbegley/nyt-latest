@@ -1,3 +1,15 @@
+**Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
+`In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
+https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
+
+**Should You Invest in Anthropic? Here’s What to Consider.**\
+`Placing a meaningful portion of your wealth on a single stock is never a good idea, but if you feel tempted to invest, ask yourself several questions first.`\
+https://www.nytimes.com/2026/11/19/your-money/anthropic-ipo-investing.html
+
+**ICE Officers Begin Training on Car Stops at Brooklyn Military Compound**\
+`Immigration and Customs Enforcement was ordered to expand training on car stops. The exercises come after a series of officer-involved shootings, including an agent who shot a Dominican migrant who was in his vehicle in October.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
+
 **Why Billie Jean King Struggled in Her First Marriage**\
 `The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
 https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html

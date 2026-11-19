@@ -1,3 +1,15 @@
+**Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
+`In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
+https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
+
+**Should You Invest in Anthropic? Here’s What to Consider.**\
+`Placing a meaningful portion of your wealth on a single stock is never a good idea, but if you feel tempted to invest, ask yourself several questions first.`\
+https://www.nytimes.com/2026/11/19/your-money/anthropic-ipo-investing.html
+
+**ICE Officers Begin Training on Car Stops at Brooklyn Military Compound**\
+`Immigration and Customs Enforcement was ordered to expand training on car stops. The exercises come after a series of officer-involved shootings, including an agent who shot a Dominican migrant who was in his vehicle in October.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
+
 **Why Billie Jean King Struggled in Her First Marriage**\
 `The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
 https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
@@ -149,18 +161,6 @@ https://www.nytimes.com/2026/11/19/world/middleeast/saudi-pif-riyadh-tower-houth
 **China Bars Bloomberg Reporter From Trilateral Talks for Asking a Question**\
 `The exclusion of the reporter after she shouted a question to President Trump is an example of how tightly China tries to stage-manage events.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-summit-china-media-bloomberg-reporter-nvidia.html
-
-**The Biggest Video Game Ever**\
-`We look at the release of Grand Theft Auto VI.`\
-https://www.nytimes.com/2026/11/19/briefing/grand-theft-auto-vi.html
-
-**Russia’s Takeover of Japan Tobacco Units Deals $8.6 Billion Blow**\
-`The move against the Japanese government-backed cigarette maker highlights worsening tensions between the countries, even as their leaders try to keep diplomatic channels open.`\
-https://www.nytimes.com/2026/11/19/business/russia-japan-tobacco-loss.html
-
-**‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
-`A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
-https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
 
 **U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
