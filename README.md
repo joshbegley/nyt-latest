@@ -1,3 +1,15 @@
+**Set Your Holiday Table Like a Milanese Design Gallerist**\
+`Nina Yashar shows us how, especially at this time of year, her eclectic tastes play out in her own dining room.`\
+https://www.nytimes.com/2026/11/19/t-magazine/holiday-tablescaping-design-nina-yashar.html
+
+**The Golden Age of Fashion?**\
+`Gold was everywhere on the runways earlier this fall. T Magazine’s Nick Haramis considers the material’s history and symbolism in the latest episode of “Anatomy of a Trend.”`\
+https://www.nytimes.com/video/t-magazine/100000011297174/the-golden-age-of-fashion.html
+
+**Anthropic’s I.P.O. Turns Tech Researchers Into Overnight Millionaires**\
+`Many people who joined the A.I. company a few years ago might have had little reason to think how big Anthropic would become. They are now worth tens of millions of dollars, if not more.`\
+https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-employees-payout.html
+
 **This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
 `Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
@@ -23,7 +35,7 @@ https://www.nytimes.com/2026/11/19/technology/downdetector-tech-outages-microsof
 https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
 
 **In Florida, More Rain Threatens Flooded Areas and Roads**\
-`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 72 hours, forecasters said.`\
+`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 24 hours, forecasters said.`\
 https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
 
 **JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
@@ -169,18 +181,6 @@ https://www.nytimes.com/2026/11/19/dining/fast-dinners-for-the-days-before-thank
 **Myanmar Committed Genocide Against the Rohingya, Top Global Court Finds**\
 `In a decision with potentially broad implications, the International Court of Justice found a state culpable of genocide for the first time.`\
 https://www.nytimes.com/2026/11/19/world/europe/myanmar-genocide-icj-decision-.html
-
-**Should You Invest in Anthropic? Here’s What to Consider.**\
-`Placing a meaningful portion of your wealth on a single stock is never a good idea, but if you feel tempted to invest, ask yourself several questions first.`\
-https://www.nytimes.com/2026/11/19/your-money/anthropic-ipo-investing.html
-
-**At Brooklyn Compound, ICE Officers Are Training on Conducting Car Stops**\
-`Immigration and Customs Enforcement was ordered to expand training on traffic stops. The exercises come after a series of officer-involved shootings during President Trump’s immigration crackdown.`\
-https://www.nytimes.com/2026/11/19/nyregion/nyc-ice-training-traffic-stops.html
-
-**Why Billie Jean King Struggled in Her First Marriage**\
-`The tennis champion Billie Jean King tells Anna Martin, the host of the “Modern Love” podcast, how her desire to explore other relationships complicated her marriage to Larry King years before they officially divorced.`\
-https://www.nytimes.com/video/podcasts/100000011295595/why-billie-jean-king-struggled-in-her-first-marriage.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
