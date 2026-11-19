@@ -1,3 +1,27 @@
+**Was China Sending a Musical Message to Japan’s Takaichi During APEC Welcome?**\
+`A song chosen to welcome Sanae Takaichi at the APEC summit in Shenzhen grew out of protests against the American military presence in Japan.`\
+https://www.nytimes.com/2026/11/18/world/asia/japan-china-takaichi-song-sukiyaki-apec.html
+
+**‘GTA Flu’ Has Schools and Jobs Bracing for Sick Days**\
+`The highly anticipated release of Grand Theft Auto VI is expected to prompt a wave of students and employees to stay home on Thursday.`\
+https://www.nytimes.com/2026/11/18/us/gta-6-sick-work-school.html
+
+**10 Best Looks From the Country Music Association Awards Red Carpet**\
+`There were rhinestones, cowboy hats and more than one tribute to Dolly Parton.`\
+https://www.nytimes.com/2026/11/18/style/cma-country-music-association-awards-red-carpet.html
+
+**NYT Crossword Answers for Nov. 19, 2026**\
+`James Mattina’s puzzle gets existential.`\
+https://www.nytimes.com/2026/11/18/crosswords/daily-puzzle-2026-11-19.html
+
+**‘The Lowdown’ Season 2 Episode 7 Recap: Meat Grinder**\
+`This week the series features Lee at his best and shows off its remarkable emotional range.`\
+https://www.nytimes.com/2026/11/18/arts/television/the-lowdown-season-2-episode-7-recap-meat-grinder.html
+
+**With Alaska’s Senate Vote Counted, What Comes Next in the Last Frontier?**\
+`The race is scheduled to be certified next week, but the Justice Department is investigating after Republicans lodged cheating allegations against the eventual winner, Mary Peltola.`\
+https://www.nytimes.com/2026/11/18/us/politics/alaska-senate-count.html
+
 **Alaska Republican Narrowly Defeats Independent House Candidate**\
 `Representative Nick Begich III overcame an independent challenger in a year in which Democrats made historic gains but third-party candidates had little success.`\
 https://www.nytimes.com/2026/11/18/us/politics/alaska-nick-begich-wins-house-race.html
