@@ -1,3 +1,11 @@
+**Was China Sending a Musical Message to Japan’s Takaichi During APEC Welcome?**\
+`A song chosen to welcome Sanae Takaichi at the APEC summit in Shenzhen grew out of protests against the American military presence in Japan.`\
+https://www.nytimes.com/2026/11/18/world/asia/japan-china-takaichi-song-sukiyaki-apec.html
+
+**‘GTA Flu’ Has Schools and Jobs Bracing for Sick Days**\
+`The highly anticipated release of Grand Theft Auto VI is expected to prompt a wave of students and employees to stay home on Thursday.`\
+https://www.nytimes.com/2026/11/18/us/gta-6-sick-work-school.html
+
 **10 Best Looks From the Country Music Association Awards Red Carpet**\
 `There were rhinestones, cowboy hats and more than one tribute to Dolly Parton.`\
 https://www.nytimes.com/2026/11/18/style/cma-country-music-association-awards-red-carpet.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/video/business/dealbook/100000011289876/zohran-mamdani-n
 **Griselda Gambaro, Whose Writing Confronted State-Sponsored Terror, Has Died**\
 `In gripping plays and novels, the acclaimed Argentine writer examined abuse of power and the complicity of the governed. She was 98.`\
 https://www.nytimes.com/2026/11/18/theater/griselda-gambaro-dead.html
-
-**Video from MTA Bus Captures Moments Before Fatal Brooklyn Building Collapse**\
-`The footage offers a detailed account of the collapse last week, which killed eight people. On Wednesday, the city said that an adjacent building would need to be demolished.`\
-https://www.nytimes.com/2026/11/18/nyregion/brooklyn-building-collapse-video.html
-
-**New Video Shows Deadly Brooklyn Building Collapse**\
-`Video from a city bus obtained by The New York Times shows a building in the Flatbush neighborhood of Brooklyn collapsing into a construction site. At least eight people were killed.`\
-https://www.nytimes.com/video/nyregion/100000011294190/mta-bus-captures-brooklyn-building-collapse.html
 
