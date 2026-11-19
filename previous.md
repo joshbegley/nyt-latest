@@ -1,3 +1,7 @@
+**Elon Musk Backs Away From MAGA and the Trump Presidency He Shaped**\
+`The man who helped elect President Trump in 2024 and led DOGE is trying to rewrite history.`\
+https://www.nytimes.com/2026/11/19/us/politics/elon-musk-maga-trump.html
+
 **NYC School Worker With Arrest Record Charged With Attempted Murder**\
 `Equan Earp had been approved to work by the New York City Department of Education, whose vetting procedures have come under scrutiny.`\
 https://www.nytimes.com/2026/11/19/nyregion/brooklyn-charter-school-gun.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/science/cte-blood-test-diagnosis.html
 **Trump Flaunts Camaraderie With Xi and Putin but Has Little to Show for It**\
 `President Trump called Russia’s leader his “friend” and marveled at China’s warm welcome for his first-ever trilateral summit. But there were no breakthroughs on nuclear control, the war in Ukraine or A.I.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin.html
-
-**Holiday Shoppers Seek Affordability at Walmart, Target and Other Retailers**\
-`Walmart and Target are among the retailers that say shoppers are trying to save money amid broader concerns about the U.S. economy. And sales are up.`\
-https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-holiday.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

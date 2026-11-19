@@ -1,3 +1,7 @@
+**Elon Musk Backs Away From MAGA and the Trump Presidency He Shaped**\
+`The man who helped elect President Trump in 2024 and led DOGE is trying to rewrite history.`\
+https://www.nytimes.com/2026/11/19/us/politics/elon-musk-maga-trump.html
+
 **NYC School Worker With Arrest Record Charged With Attempted Murder**\
 `Equan Earp had been approved to work by the New York City Department of Education, whose vetting procedures have come under scrutiny.`\
 https://www.nytimes.com/2026/11/19/nyregion/brooklyn-charter-school-gun.html
