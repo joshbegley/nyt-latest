@@ -1,3 +1,7 @@
+**NYT Spelling Bee Answers for November 19, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/19/crosswords/spelling-bee-forum.html
+
 **Villa Where Trump, Xi and Putin Will Meet Once Hosted Kim Jong-il**\
 `The secluded Kylin Villa resort in the Chinese city of Shenzhen once hosted the North Korean dictator, Xi Jinping’s father and envoys of the Dalai Lama.`\
 https://www.nytimes.com/2026/11/19/world/asia/trump-xi-putin-kylin-villa.html
