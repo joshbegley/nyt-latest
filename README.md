@@ -1,3 +1,7 @@
+**China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
+`China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
+https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
+
 **Marian Anderson as Artist, Not Icon**\
 `Seen as a symbol, but not as herself`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.htm
 **Los Angeles Prosecutor to Oversee Inquiry Into Search of Trump’s Mar-a-Lago Residence**\
 `The appointment of Bill Essayli to run a key aspect of the so-called grand conspiracy case was the latest shake-up in a central part of President Trump’s retribution campaign.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essayli.html
-
-**They’re Prepping for a World Where the Internet Doesn’t Work**\
-`“DoorDash is not an emergency plan.”`\
-https://www.nytimes.com/2026/11/19/style/outages-doomsday-prep-emergency.html
 
 **Live Updates: Anthropic Shares Climb After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging more than 30 percent. It later fell back, after pushing the company’s market value to about $2 trillion.`\
