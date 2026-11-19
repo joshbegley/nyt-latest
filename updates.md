@@ -1,3 +1,31 @@
+**‘Did A.I. Break the Internet?’ and Other Things We’ve Worried About This Week**\
+`A cascade of technology glitches has unsettled many people. Our reporters explain what is going on.`\
+https://www.nytimes.com/2026/11/19/podcasts/the-daily/tech-outages-internet.html
+
+**Today’s Wordle Hints for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/wordle-review-1980.html
+
+**Trump Greets Putin as ‘My Friend,’ and the Rise of GLP-1s for Children**\
+`Plus, an extreme campaign to stop students from cheating.`\
+https://www.nytimes.com/2026/11/19/podcasts/the-headlines/trump-putin-glp-1s-for-children.html
+
+**NYT Strands Hints for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/strands-sidekick-992.html
+
+**NYT Connections Answers for November 20, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 20, 2026.`\
+https://www.nytimes.com/2026/11/19/crosswords/connections-companion-1258.html
+
+**Iran Keeps Up Unrelenting Attacks on Ships in the Strait of Hormuz**\
+`A recent strike on a ship that had already been disabled might signal a dangerous new phase for tankers operating in the Persian Gulf and surrounding waters.`\
+https://www.nytimes.com/2026/11/19/business/iran-tanker-attack-strait-of-hormuz.html
+
+**Anthropic’s Trillion-Dollar Debut Is Watershed Moment for A.I.’s Risks and Rewards**\
+`As A.I. development surges ahead, policymakers have struggled to protect workers, businesses and the rest of the economy from potential disruption.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-washington.html
+
 **The Disappearing Iranian Meal**\
 `Prices are soaring so high in Iran that families have had to forgo staples in their daily meals.`\
 https://www.nytimes.com/interactive/2026/11/19/world/middleeast/iran-economy-groceries-inflation.html
