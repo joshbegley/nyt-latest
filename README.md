@@ -1,3 +1,11 @@
+**Takeaways From the 2026 DealBook Summit**\
+`Leaders in artificial intelligence and governments discussed America’s shifting politics, the reverberations of Jensen Huang’s ouster at Nvidia and more on Wednesday.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/dealbook-summit-musk-altman-ellison.html
+
+**Widespread Tech Outages Put Focus on Trump’s National Security Cuts**\
+`Lawmakers and cyberdefense experts said diminished staffing at the Cybersecurity and Infrastructure Security Agency and National Security Council could be hobbling the administration’s response.`\
+https://www.nytimes.com/2026/11/18/us/politics/tech-outages-trump-national-security.html
+
 **‘I’m Not MAGA’: Musk Distances Himself From G.O.P. After Midterms**\
 `Elon Musk, chief executive of Starlink and Tesla, said during the DealBook Summit on Wednesday that he felt “foolish” for his large political donations to Republicans.`\
 https://www.nytimes.com/video/admin/100000011294539/musk-midterms-republican-maga.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/18/world/europe/grand-theft-auto-america-scotlan
 **Trump ‘Disappeared’ Them in 2025. I Found Them, Locked Up and Famished.**\
 `Foisting immigrants on impoverished African countries where they are not treated humanely seems to me a moral and practical failure.`\
 https://www.nytimes.com/2026/11/18/opinion/trump-deportation-south-sudan.html
-
-**Florida’s El Niño Rains Bring Hail and High Water**\
-`Officials point to particularly strong El Niño conditions, a climate pattern that delivers wetter weather to parts of the southern United States, as Florida faces torrential rain.`\
-https://www.nytimes.com/2026/11/18/weather/florida-flooding-rain.html
-
-**Anthropic’s Public Debut Sets Up ‘Experiment’ in Corporate Power**\
-`The artificial intelligence giant will become by far the largest publicly traded “public benefit corporation,” a structure that mandates it balance safety and profit.`\
-https://www.nytimes.com/2026/11/18/business/anthropic-ipo-corporate-governance.html
 

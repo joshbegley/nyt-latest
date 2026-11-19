@@ -1,3 +1,19 @@
+**‘I’m Not MAGA’: Musk Distances Himself From G.O.P. After Midterms**\
+`Elon Musk, chief executive of Starlink and Tesla, said during the DealBook Summit on Wednesday that he felt “foolish” for his large political donations to Republicans.`\
+https://www.nytimes.com/video/admin/100000011294539/musk-midterms-republican-maga.html
+
+**Elon Musk Plays Down G.O.P. Support After Midterm Loss**\
+`The C.E.O. of SpaceX, who spent millions to back Republican candidates, sought to portray himself as a political moderate.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/elon-musk-midterms.html
+
+**Watch: Christine Lagarde Wants to Fight Fake News**\
+`In an interview at the DealBook Summit, the president of the European Central Bank explained her decision to step down early and said that trust is “in short supply” around the world.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/watch-christine-lagarde-wants-to-fight-fake-news.html
+
+**How Anthropic’s I.P.O. Valuation Stacks Up With the Biggest Tech Debuts Since the ’80s**\
+`Anthropic’s initial public offering valued the A.I. company at $1.5 trillion on Wednesday, the latest in a wave of humongous tech I.P.O.s.`\
+https://www.nytimes.com/interactive/2026/11/18/technology/anthropic-ipo-compared.html
+
 **Live Updates: Trump, Xi and Putin to Hold First-Ever Joint Talks**\
 `The summit between the three leaders is taking place at a lakeside resort in China. They may discuss nuclear arms control and the wars in Iran and Ukraine.`\
 https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec
