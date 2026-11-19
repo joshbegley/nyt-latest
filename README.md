@@ -1,3 +1,15 @@
+**Mamdani Talks Trump, Taxes and Oct. 7 at DealBook Summit**\
+`In a wide-ranging conversation, Mayor Zohran Mamdani of New York discussed the midterms, President Trump and that “tax the rich” video.`\
+https://www.nytimes.com/2026/11/18/business/dealbook/zohran-mamdani-dealbook-summit.html
+
+**Mamdani Reflects on Relationship With Trump**\
+`Zohran Mamdani, New York City’s mayor, spoke about his relationship with President Trump on Wednesday at the DealBook summit.`\
+https://www.nytimes.com/video/business/dealbook/100000011294493/mamdani-trump-dealbook-nyc.html
+
+**Elon Musk Says He’s ‘Not MAGA’**\
+`In an interview at the DealBook Summit, Elon Musk speaks from China with Andrew Ross Sorkin about his midterm election spending, Starlink, and if SpaceX and Tesla will merge.`\
+https://www.nytimes.com/video/business/dealbook/100000011289870/elon-musk-dealbook-maga-politics.html
+
 **Trump Ally Arranged for Russian Flag to Be Displayed on an Arch in Atlanta**\
 `Rodney Mims Cook Jr., chairman of the U.S. Commission of Fine Arts, sought to pay tribute to Russia’s ambassador to United States, whose death was announced on Nov. 11.`\
 https://www.nytimes.com/2026/11/18/us/atlanta-arch-russia-flag-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/18/climate/permitting-bill-baaja-environmentalis
 **Crime Rates in American Cities Have Never Been Lower. Why?**\
 `New York City is on track to be safer than Berlin, Barcelona and Madrid.`\
 https://www.nytimes.com/2026/11/18/opinion/american-crime-cities.html
-
-**Thanksgiving Teaching Ideas**\
-`We have a bounty of ideas to choose from, each of which links to a free Times article, photo essay, video, quiz, podcast, map and more.`\
-https://www.nytimes.com/2026/11/18/learning/food-family-history-and-culture-thanksgiving-across-the-curriculum.html
-
-**Ground Stop Came as Duffy Pushed to Rapidly Upgrade Aviation Systems**\
-`Current and former officials say that Transportation Secretary Sean Duffy’s push to quickly finish modernization during President Trump’s second term could continue to disrupt air travel.`\
-https://www.nytimes.com/2026/11/18/us/sean-duffy-ground-stop-faa-trump.html
-
-**Watch: Canada’s Prime Minister on Negotiating With President Trump**\
-`He “listens a lot more in private” said Mark Carney in an interview at the DealBook Summit. But ultimately it’s “about a deal or not.”`\
-https://www.nytimes.com/2026/11/18/business/dealbook/carney-canada-trade-deal-trump.html
 
