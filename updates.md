@@ -1,3 +1,15 @@
+**Anthropic Makes Multibillion-Dollar Debut on Nasdaq**\
+`Anthropic began trading on Nasdaq on Thursday, becoming one of the world’s most valuable public companies. Its stock market debut comes amid concerns over economic disruption and the safety risks of artificial intelligence.`\
+https://www.nytimes.com/video/business/economy/100000011296431/anthropic-ipo-price-stock-market.html
+
+**Where to Eat: Bistromania**\
+`Is a bistro a tradition? A mind-set? Or something else entirely?`\
+https://www.nytimes.com/2026/11/19/dining/where-to-eat-bistromania.html
+
+**With GTA 6 Release, DoorDash and Other Food Delivery Apps Are Making a Killing**\
+`The gamers staying home in droves have to be fed, and the meal business was more than ready to feed them.`\
+https://www.nytimes.com/2026/11/19/dining/grand-theft-auto-food-delivery.html
+
 **Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
 `The ruling by the International Court of Justice deal with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
 https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
