@@ -38,7 +38,7 @@ https://www.nytimes.com/video/world/asia/100000011295495/trump-xi-china-hand-esc
 `Horse carriage owners challenged the ban, which would take full effect in 2028, accusing New York City officials of killing their industry with no firm plan for compensation.`\
 https://www.nytimes.com/2026/11/19/nyregion/horse-carriages-central-park-lawsuit.html
 
-**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fires**\
+**After Bridge Attack, Putin Says He Will ‘Not Be Negotiating’ Ukraine Cease-Fire**\
 `The Russian leader invited European representatives to Moscow to discuss giving them a role in negotiations. It was unclear how serious the offer was.`\
 https://www.nytimes.com/2026/11/19/world/europe/putin-shenzhen-crimea-bridge.html
 
@@ -82,8 +82,8 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
-**Live Updates: Anthropic to Start Trading After $81.3 Billion I.P.O.**\
-`The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after a record-setting offering that valued the company at roughly $1.5 trillion.`\
+**Live Updates: Anthropic Shares Soar in First Trades After I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant’s stock sent its share price surging more than 30 percent, and pushed the company’s market value to more than $2 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
 **Inside a Rohingya Camp After a Genocide Ruling**\
