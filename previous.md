@@ -1,3 +1,7 @@
+**In Florida, More Rain Threatens Flooded Areas and Roads**\
+`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 72 hours, forecasters said.`\
+https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
+
 **JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
 `The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
 https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
 **Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
 `The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
 https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
-
-**What to Know About Anthropic’s Public Debut**\
-`Anthropic will become the most valuable company by far on the stock market with the legal designation of a public benefit corporation. Cory Weinberg, a New York Times technology reporter, explains how Anthropic’s stock market debut could affect it’s attempt to prioritize artificial intelligence safety over profit.`\
-https://www.nytimes.com/video/business/100000011289880/what-to-know-about-anthropics-public-debut.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

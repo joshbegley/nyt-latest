@@ -1,3 +1,7 @@
+**How Much Anthropic Are You About to Own?**\
+`See how much of the stock you may own through common index funds, like those found in retirement accounts.`\
+https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
+
 **In Florida, More Rain Threatens Flooded Areas and Roads**\
 `Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 72 hours, forecasters said.`\
 https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/19/us/politics/the-docket-secret-history-press-f
 **At Summit With Xi and Putin, Trump Seeks to Project Power Abroad While Sharing It at Home**\
 `Weakened by the midterm elections, President Trump offered hugs, arm pats and smiles to autocrats from Russia and China in contrast to the threats he is making to ascendant Democrats in Washington.`\
 https://www.nytimes.com/2026/11/19/us/politics/trump-summit-power.html
-
-**Watch: Natasha Sarin on Anthropic’s Historic IPO and What’s Next for the Markets**\
-`The economist Natasha Sarin goes live on YouTube to discuss what the historic I.P.O. means for the markets.`\
-https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-natasha-sarin.html
 
 **Live Updates: Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

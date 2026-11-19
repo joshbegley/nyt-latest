@@ -1,3 +1,7 @@
+**In Florida, More Rain Threatens Flooded Areas and Roads**\
+`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 72 hours, forecasters said.`\
+https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
+
 **JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
 `The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
 https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
