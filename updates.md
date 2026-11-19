@@ -1,3 +1,7 @@
+**Late Night Follows Trump’s Meeting with Xi and Putin in China**\
+`Jimmy Fallon said that the leaders’ timing made sense: “Now that James Bond has been cast, they’re auditioning villains.”`\
+https://www.nytimes.com/2026/11/19/arts/television/late-night-trump-xi-putin.html
+
 **Putin Returns to APEC ‘Family Photo,’ Testing Western Leaders**\
 `The leaders of Australia and Canada defended their decision to join the APEC group portrait as a courtesy to the host, China, despite criticism at home.`\
 https://www.nytimes.com/2026/11/19/world/asia/putin-xi-trump-apec-family-photo.html
