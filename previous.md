@@ -1,3 +1,7 @@
+**The Rohingya Crisis Over the Years**\
+`After government troops and mobs rampaged through Rohingya communities in Myanmar in 2017, refugees fled to to Bangladesh.`\
+https://www.nytimes.com/2026/11/19/world/asia/rohingya-camps-photos-bangladesh.html
+
 **California Storm Sweeps South, Prompting Some Evacuation Warnings in L.A.**\
 `A system that earlier flooded San Francisco was hitting Southern California on Thursday.`\
 https://www.nytimes.com/2026/11/19/weather/california-rain-sf-la.html
@@ -22,8 +26,8 @@ https://www.nytimes.com/2026/11/19/opinion/hillary-clinton-trump-putin-ukraine.h
 `After their summit, the leaders of Russia, the United States and China agreed that “a nuclear war cannot be won and must never be fought.” Some analysts are skeptical that real change will result.`\
 https://www.nytimes.com/2026/11/19/world/europe/trump-xi-putin-nuclear-weapons-ukraine.html
 
-**Live Updates: Anthropic Set to Start Trading in Blockbuster Market Debut**\
-`The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after raising a record-setting $81.3 billion in a public offering that valued the company at roughly $1.5 trillion.`\
+**Live Updates: Anthropic to Start Trading After $81.3 Billion I.P.O.**\
+`The artificial intelligence giant’s shares will hit the market for the first time on Thursday, after a record-setting offering that valued the company at roughly $1.5 trillion.`\
 https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 
 **A Paramedic Rushed to a Fatal Accident. The Dead Man Was Her Son.**\
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
 **Colombia’s President Is Acquiring a Reputation for Courting Controversy**\
 `Colombia’s new leader, Abelardo De La Espriella, presents himself as a warrior against criminal groups and woke culture, and courts controversy at every turn.`\
 https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-crime.html
-
-**Don’t Play Anthropic’s Game**\
-`Trying to save the world and trying to make a lot of money will be an unstable combination.`\
-https://www.nytimes.com/2026/11/19/opinion/anthropic-ipo-ai-regulation.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\

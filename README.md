@@ -1,3 +1,7 @@
+**China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
+`Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
+https://www.nytimes.com/2026/11/19/business/anthropic-ipo-china-hong-kong.html
+
 **The Rohingya Crisis Over the Years**\
 `After government troops and mobs rampaged through Rohingya communities in Myanmar in 2017, refugees fled to to Bangladesh.`\
 https://www.nytimes.com/2026/11/19/world/asia/rohingya-camps-photos-bangladesh.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/interactive/2026/11/19/travel/things-to-do-sydney.html
 **Boston’s Beloved Citgo Sign Returns After Rebuild, 30 Feet Higher**\
 `The beloved Citgo sign will be lit again on Thursday night after it was rebuilt and moved 120 feet to the east, its latest incarnation in a city transformed by development.`\
 https://www.nytimes.com/2026/11/19/us/boston-citgo-sign-fenway-park.html
-
-**Colombia’s President Is Acquiring a Reputation for Courting Controversy**\
-`Colombia’s new leader, Abelardo De La Espriella, presents himself as a warrior against criminal groups and woke culture, and courts controversy at every turn.`\
-https://www.nytimes.com/2026/11/19/world/americas/colombia-president-espriella-crime.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
