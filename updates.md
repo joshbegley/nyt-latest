@@ -1,3 +1,19 @@
+**NYC School Worker With Arrest Record Charged With Attempted Murder**\
+`Equan Earp had been approved to work by the New York City Department of Education, whose vetting procedures have come under scrutiny.`\
+https://www.nytimes.com/2026/11/19/nyregion/brooklyn-charter-school-gun.html
+
+**Anthropic Has Gone Public. What Now?**\
+`In a live conversation, the economist Natasha Sarin discussed what a historic I.P.O. means for the markets and much more.`\
+https://www.nytimes.com/video/opinion/100000011288380/anthropic-has-gone-public-what-now.html
+
+**With GTA 6 Release, DoorDash and Other Food Delivery Apps Are Making a Killing**\
+`The gamers staying home in droves have to be fed, and the meal business is more than ready to feed them.`\
+https://www.nytimes.com/2026/11/19/dining/grand-theft-auto-food-delivery.html
+
+**Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
+`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
+https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
+
 **Agriculture Secretary’s Christian Messages to Staff Went ‘Too Far,’ Judge Says**\
 `A federal judge ordered limits on Brooke Rollins’s promotion of her religious beliefs, saying her emails to her department had violated the First Amendment.`\
 https://www.nytimes.com/2026/11/19/us/politics/rollins-christian-messages.html
