@@ -1,3 +1,7 @@
+**Behind Trump Meeting, Xi and Putin Share a Vision of Usurping U.S. Power**\
+`President Trump joined the Chinese and Russian leaders for a summit in Shenzhen, even though the two autocrats are trying to reverse America’s victory in the Cold War.`\
+https://www.nytimes.com/2026/11/19/world/asia/xi-putin-trump-meeting-china-russia.html
+
 **U.N. Court Rules Myanmar Committed Genocide Against the Rohingya**\
 `The International Court of Justice ruled that Myanmar committed genocide against the Rohingya Muslim minority in a case brought by Gambia.`\
 https://www.nytimes.com/video/world/asia/100000011295153/myanmar-genocide-rohingya-icj.html
