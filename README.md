@@ -1,3 +1,7 @@
+**Watch: Hailey Bieber Says Social Media Has Affected Her Mental Health**\
+`The model and entrepreneur, who last year sold her Rhode beauty brand for some $800 million, said online comments can be “distorting to the mind.”`\
+https://www.nytimes.com/2026/11/18/business/watch-hailey-bieber-social-media-mental-health.html
+
 **Watch: Palmer Luckey Warns of Falling Behind in A.I. Race**\
 `The founder of Anduril Industries, a defense tech company, is advising the Pentagon on how to map out the future of war.`\
 https://www.nytimes.com/2026/11/18/business/watch-palmer-luckey-ai-dealbook-summit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/18/briefing/the-good-list-leonids-travel-capote.
 **Colombia Rejects Joint Plan With U.S. to Target Drug Gangs**\
 `The Colombian president said his nation would not allow American forces to take part in anti-cartel operations on its soil.`\
 https://www.nytimes.com/2026/11/18/world/americas/colombia-us-joint-military.html
-
-**Who Do Senate Democrats Support for Majority Leader?**\
-`The New York Times is tracking how senators and senators-elect might vote in the Dec. 1 election for majority leader.`\
-https://www.nytimes.com/interactive/2026/11/18/us/politics/schumer-senate-leader-endorsements.html
 
