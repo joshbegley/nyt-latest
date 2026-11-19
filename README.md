@@ -1,6 +1,10 @@
+**Los Angeles Prosecutor to Oversee Inquiry Into Search of Trump’s Mar-a-Lago Residence**\
+`The appointment of Bill Essayli to run a key aspect of the so-called grand conspiracy case was the latest shake-up in a central part of President Trump’s retribution campaign.`\
+https://www.nytimes.com/2026/11/19/us/politics/trump-mar-a-lago-search-bill-essayli.html
+
 **They’re Prepping for a World Where the Internet Doesn’t Work**\
 `“DoorDash is not an emergency plan.”`\
-https://www.nytimes.com/2026/11/19/style/theyre-prepping-for-a-broken-digital-world.html
+https://www.nytimes.com/2026/11/19/style/outages-doomsday-prep-emergency.html
 
 **China Is Shut Out of Anthropic’s Blockbuster I.P.O.**\
 `Anthropic excluded investment firms from China and Hong Kong from buying shares in advance of its initial public offering.`\
@@ -161,10 +165,6 @@ https://www.nytimes.com/2026/11/19/learning/the-new-grand-theft-auto-is-finally-
 **In Bending to Trump, Law Firm Did $11.8 Million of Free Work for Administration**\
 `The firm Kirkland & Ellis has quietly disclosed that as part of the deal it reached with the Trump administration, it has done about 6,491 hours of free work.`\
 https://www.nytimes.com/2026/11/19/us/politics/kirkland-ellis-law-firm-trump.html
-
-**How Trump Betrayed His Base**\
-`What remains of MAGA?`\
-https://www.nytimes.com/2026/11/19/opinion/interesting-times-podcast-kmele-foster-saagar-enjeti.html
 
 **Live Updates: U.N. Court Rules Myanmar Committed Genocide Against Rohingya**\
 `Myanmar became the first state held accountable for violating the 1948 Genocide Convention. The ruling by the International Court of Justice could have broad implications.`\
