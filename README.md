@@ -20,7 +20,7 @@ https://www.nytimes.com/2026/11/19/business/target-walmart-retail-affordability-
 
 **Jackson Accusers Say Lawyer Tricked Them Into Signing Hush-Money Deal**\
 `The Cascio siblings tried to sue the Jackson estate for the abuse they say they endured. Now they are suing Bryan Freedman, a lawyer who they say deceived them.`\
-https://www.nytimes.com/2026/11/19/arts/jackson-accusers-say-lawyer-tricked-them-into-signing-hush-money-deal.html
+https://www.nytimes.com/2026/11/19/arts/michael-jackson-hush-money-deals.html
 
 **Outrage Over Another Cruel ICE Tactic**\
 `Readers react to new reports of abuses by ICE. Also: Air traffic upgrades; beyond the Republican weirdos; a family’s touch.`\
