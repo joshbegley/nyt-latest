@@ -1,3 +1,7 @@
+**Bowen Yang Apologizes to Regina Spektor for Calling Her an Antisemitic Slur on His Podcast**\
+`The former “Saturday Night Live” star used the slur when talking about the musician Regina Spektor in a recent episode of his “Las Culturistas” podcast.`\
+https://www.nytimes.com/2026/11/20/arts/music/bowen-yang-apology-antisemitic-slur-regina-spektor.html
+
 **Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
 `In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference

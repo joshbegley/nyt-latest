@@ -1,3 +1,7 @@
+**Bowen Yang Apologizes to Regina Spektor for Calling Her an Antisemitic Slur on His Podcast**\
+`The former “Saturday Night Live” star used the slur when talking about the musician Regina Spektor in a recent episode of his “Las Culturistas” podcast.`\
+https://www.nytimes.com/2026/11/20/arts/music/bowen-yang-apology-antisemitic-slur-regina-spektor.html
+
 **Mayor Mamdani Injured After Soccer Game**\
 `Mayor Zohran Mamdani of New York City limped into a news conference on Friday wearing an orthopedic walking boot. He said he had torn his Achilles during an organized soccer game between the mayor’s press office and reporters, which the mayor’s office reported it won 10 to 5.`\
 https://www.nytimes.com/video/nyregion/100000011299375/mamdani-limp-soccer-injury.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.h
 **C.F.T.C. Officials Considered Investigating Trump’s Memecoin, Then Punted**\
 `Lawyers at the Commodity Futures Trading Commission looked into possible fraud soon after the digital token’s launch, then decided they would not get the commission’s support.`\
 https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
-
-**On the Carpet of Melania Trump’s Amazon Premiere in New York**\
-`Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
-https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
