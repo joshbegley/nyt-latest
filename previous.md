@@ -1,3 +1,11 @@
+**‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
+`There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
+https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.html
+
+**C.F.T.C. Officials Considered Investigating Trump’s Memecoin, Then Punted**\
+`Lawyers at the Commodity Futures Trading Commission looked into possible fraud soon after the digital token’s launch, then decided they would not get the commission’s support.`\
+https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
+
 **On the Carpet of Melania Trump’s Amazon Premiere in New York**\
 `Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/climate/van-cats-turkey.html
 **Jennifer Lopez Feels Like She’s Getting Better at Everything**\
 `After a vulnerable and tumultuous run, the performer is back with a new TV spectacular and hard-earned boundaries.`\
 https://www.nytimes.com/2026/11/20/arts/music/popcast-interview-jennifer-lopez.html
-
-**The Race to Build a Quantum Computer Has Become a Sprint**\
-`A rising technology based on “neutral atoms” has accelerated the competition — prompting many experts to believe that a usable machine could arrive this decade.`\
-https://www.nytimes.com/2026/11/20/science/quantum-computer-neutral-atoms.html
-
-**Choose Your Favorite $1.6 Million House in Tuscany**\
-`In the countryside around Florence, buyers can find converted villas with adaptable guest quarters.`\
-https://www.nytimes.com/2026/11/20/realestate/favorite-house-tuscany.html
 

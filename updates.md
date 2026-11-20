@@ -1,3 +1,11 @@
+**‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
+`There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
+https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.html
+
+**C.F.T.C. Officials Considered Investigating Trump’s Memecoin, Then Punted**\
+`Lawyers at the Commodity Futures Trading Commission looked into possible fraud soon after the digital token’s launch, then decided they would not get the commission’s support.`\
+https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled as much as 8 percent when U.S. markets opened on Friday.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
