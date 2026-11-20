@@ -1,3 +1,7 @@
+**Mayor Mamdani Injured After Soccer Game**\
+`Mayor Zohran Mamdani of New York City limped into a news conference on Friday wearing an orthopedic walking boot. He said he had torn his Achilles during an organized soccer game between the mayor’s press office and reporters, which the mayor’s office reported it won 10 to 5.`\
+https://www.nytimes.com/video/nyregion/100000011299375/mamdani-limp-soccer-injury.html
+
 **Anthropic Mathematician Claims to Have Solved Math’s Most Famous Problem**\
 `If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
 https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
@@ -134,7 +138,7 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
-**Live Updates: Free-Wheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
+**Live Updates: Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
 `In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoi
 **On the Carpet of Melania Trump’s Amazon Premiere in New York**\
 `Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
-
-**Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
-`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection routine took more than an hour.`\
-https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
 

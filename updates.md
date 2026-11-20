@@ -1,3 +1,11 @@
+**Mayor Mamdani Injured After Soccer Game**\
+`Mayor Zohran Mamdani of New York City limped into a news conference on Friday wearing an orthopedic walking boot. He said he had torn his Achilles during an organized soccer game between the mayor’s press office and reporters, which the mayor’s office reported it won 10 to 5.`\
+https://www.nytimes.com/video/nyregion/100000011299375/mamdani-limp-soccer-injury.html
+
+**Live Updates: Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
+`In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
 `Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy said it would revise its policy.`\
 https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
