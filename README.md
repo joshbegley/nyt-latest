@@ -1,3 +1,11 @@
+**Experimental Drugs for the Sickest Patients**\
+`Three doctors respond to “Could a Psychedelic Trip Help My Dying Patients?,” a guest essay by Dr. Daniela J. Lamas. Also: The Senate Democratic contest.`\
+https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.html
+
+**Spying Suspect’s Chip Network Has Ties to Chinese Military Suppliers**\
+`Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
+https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
+
 **Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
 `Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
 https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/well/thanksgiving-emergency-room-er.html
 **Corrections: Nov. 20, 2026**\
 `Corrections that appeared in print on Friday, Nov. 20, 2026.`\
 https://www.nytimes.com/2026/11/20/pageoneplus/corrections-nov-20-2026.html
-
-**The Democrats’ Plan for Investigating Trump**\
-`The incoming House Oversight Committee chairman, Robert Garcia, lays out his committee’s top targets.`\
-https://www.nytimes.com/2026/11/20/opinion/ezra-klein-podcast-robert-garcia.html
-
-**Ron DeSantis Ponders a Presidential Run in a Post-Trump World**\
-`In a wide-ranging interview, the governor of Florida talked about the potential timing of a presidential run. “I haven’t made any decisions,” he said.`\
-https://www.nytimes.com/2026/11/20/us/politics/ron-desantis-florida-2028.html
 
