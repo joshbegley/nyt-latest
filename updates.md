@@ -1,3 +1,15 @@
+**Anthropic Mathematician Claims to Have Solved Math’s Most Famous Problem**\
+`If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
+https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
+
+**Denmark Expels Russian Diplomat After Accusing Moscow of Planning a Hit**\
+`Danish officials say Russian intelligence services recruited members of a violent gang to try to assassinate a Ukrainian rapper at a concert outside Copenhagen.`\
+https://www.nytimes.com/2026/11/20/world/europe/denmark-russia-ukraine-rapper-assassination.html
+
+**H.I.V. Research Networks May Again Seek Federal Funding, With a Twist**\
+`The Trump administration restarted the process for funding four large research networks after postponing it earlier this year.`\
+https://www.nytimes.com/2026/11/20/science/hiv-research-funding-nih.html
+
 **Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
 `Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
 https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
