@@ -1,3 +1,7 @@
+**How Anthropic Employees Really Feel About The I.P.O.**\
+`Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011297245/how-anthropic-employees-really-feel-about-the-ipo.html
+
 **$160 Million in Church Property Is Mortgaged to Fund Abuse Settlement**\
 `The New York Archdiocese recently agreed to pay more than $800 million to 1,300 people who say they were sexually abused by clergy.`\
 https://www.nytimes.com/2026/11/19/nyregion/catholic-church-archdiocese-nyc-sexual-abuse.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/19/nyregion/immigrants-hotel-rochester-lawsuit.h
 **No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
 `Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
 https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
-
-**Marsha Linehan Has Died. She Transformed Treatment for Personality Disorder.**\
-`After her methods proved effective, she revealed that she had battled her own borderline personality disorder as a child.`\
-https://www.nytimes.com/2026/11/19/well/mind/marsha-linehan-dead.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
