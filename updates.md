@@ -1,3 +1,7 @@
+**Tinto Brass Has Died. He Directed the Erotic Epic ‘Caligula.’**\
+`“The moments of lust and desire” in his movies, he said, grew “out of the stories themselves,” transcending pornography. He was 93.`\
+https://www.nytimes.com/2026/11/19/movies/tinto-brass-dead.html
+
 **Top White House Cybersecurity Official Steps Down**\
 `The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
 https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
