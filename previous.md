@@ -1,3 +1,7 @@
+**As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
+`The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
+https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html
+
 **Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
 `For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
 https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/business/nvidia-ceo-stock-succession-jensen-h
 **Rikers Will Stay Open Until 2032 as Mamdani Commits to New Closure Plan**\
 `The mayor acknowledged that New York City would miss a legal deadline to close Rikers Island by next year, but offered a new vision to see through its closure.`\
 https://www.nytimes.com/2026/11/20/nyregion/rikers-island-mamdani-close-2032.html
-
-**The Acorn-Mouse-Tick-Lyme Connection**\
-`In a year when trees yield a lot of acorns, Lyme disease tends to rise. Here’s why.`\
-https://www.nytimes.com/2026/11/20/nyregion/acorns-mice-lyme-disease.html
 

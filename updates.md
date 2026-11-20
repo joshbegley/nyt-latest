@@ -1,3 +1,7 @@
+**As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
+`The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
+https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html
+
 **Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
 `For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
 https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
