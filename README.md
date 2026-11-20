@@ -1,3 +1,7 @@
+**4 British Men Convicted of Sexually Assaulting Woman Drugged by Husband**\
+`It is the first time in Britain that a jury has convicted several defendants relating to drug-facilitated sexual assault.`\
+https://www.nytimes.com/video/world/europe/100000011297609/4-british-men-convicted-of-sexually-assaulting-woman-drugged-by-husband.html
+
 **Jimmy Kimmel Recaps Trump’s ‘Big Dim Summit’**\
 `“My God, even if you voted for this guy, you have to admit, he has the worst taste in friends,” the late night host said of Trump’s chummy meeting with Xi Jinping and Vladimir Putin.`\
 https://www.nytimes.com/2026/11/20/arts/television/jimmy-kimmel-trump-xi-putin-summit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011297174/the-golden-age-of-fashi
 **Anthropic’s I.P.O. Turns Tech Researchers Into Overnight Millionaires**\
 `Many people who joined the A.I. company a few years ago might have had little reason to think how big Anthropic would become. They are now worth tens of millions of dollars, if not more.`\
 https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-employees-payout.html
-
-**This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
-`Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
-https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
 
