@@ -1,3 +1,7 @@
+**Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
+`The Treasury Department is working with a private service, ID.me, to grant access to the TreasuryDirect website. Some users reported trouble getting in.`\
+https://www.nytimes.com/2026/11/20/your-money/us-savings-bonds.html
+
 **2 Earthquakes Strike Los Angeles Area and Central California**\
 `A 5.0-magnitude quake struck around Pinnacles, Calif., southeast of San Francisco. A few hours later, a 4.2-magnitude quake hit just outside of Los Angeles.`\
 https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacles.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/democrats-woke-1-socialist.html
 **Reading ‘Pinocchio’ as His Creator Turns 200**\
 `As Carlo Collodi turns 200, other anachronisms include wooden toys, live theater, a healthy whale population, amusement parks and visible stars.`\
 https://www.nytimes.com/2026/11/20/books/review/pinocchio-carlo-collodi-200th-birthday.html
-
-**China’s A.I. Ambitions Are Running Into a Money Problem**\
-`While Anthropic and other Silicon Valley A.I. giants are raising tens of billions in capital, Chinese rivals are struggling to keep pace financially.`\
-https://www.nytimes.com/2026/11/20/business/china-ai-investment-spending.html
 

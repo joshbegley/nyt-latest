@@ -1,3 +1,7 @@
+**Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
+`The Treasury Department is working with a private service, ID.me, to grant access to the TreasuryDirect website. Some users reported trouble getting in.`\
+https://www.nytimes.com/2026/11/20/your-money/us-savings-bonds.html
+
 **2 Earthquakes Strike Los Angeles Area and Central California**\
 `A 5.0-magnitude quake struck around Pinnacles, Calif., southeast of San Francisco. A few hours later, a 4.2-magnitude quake hit just outside of Los Angeles.`\
 https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacles.html

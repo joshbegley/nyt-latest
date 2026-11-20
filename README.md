@@ -1,3 +1,7 @@
+**Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
+https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
+
 **Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
 `The Treasury Department is working with a private service, ID.me, to grant access to the TreasuryDirect website. Some users reported trouble getting in.`\
 https://www.nytimes.com/2026/11/20/your-money/us-savings-bonds.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/realestate/favorite-house-tuscany.html
 **I’m a Socialist. Wokeness Is Still the Left’s Biggest Liability.**\
 `I’ve seen a lot of wokeness in my time on the left, and I’ve never seen it produce an effective political formation.`\
 https://www.nytimes.com/2026/11/20/opinion/democrats-woke-1-socialist.html
-
-**Reading ‘Pinocchio’ as His Creator Turns 200**\
-`As Carlo Collodi turns 200, other anachronisms include wooden toys, live theater, a healthy whale population, amusement parks and visible stars.`\
-https://www.nytimes.com/2026/11/20/books/review/pinocchio-carlo-collodi-200th-birthday.html
 
