@@ -1,3 +1,7 @@
+**Let’s Talk About This Year’s Book Awards**\
+`MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
+https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
+
 **Can Anthropic Revive the A.I. Trade?**\
 `Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
 https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/business/china-ai-investment-spending.html
 **Everything You Need to Know Before Seeing the New ‘Hunger Games’ Prequel**\
 `“The Hunger Games: Sunrise on the Reaping” is the sixth film in the franchise. Here’s your training guide before entering the arena.`\
 https://www.nytimes.com/2026/11/20/movies/the-hunger-games-sunrise-on-the-reaping-explainer.html
-
-**Book Review: ‘The Flying Death,’ by Matt O’Hara**\
-`In “The Flying Death,” Matt O’Hara tells the story of curare and the beginnings of big pharma.`\
-https://www.nytimes.com/2026/11/20/books/review/matt-o-hara-the-flying-death.html
 
