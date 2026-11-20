@@ -1,10 +1,14 @@
+**Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
+`For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
+https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
+
 **How to Create an Easy, Elegant Chignon**\
 `Three experts share their tips for creating an easy, elegant chignon.`\
 https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
 
 **“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
 `A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
-https://www.nytimes.com/2026/11/20/theater/eurotrash-old-vic-london-review.html
+https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.html
 
 **‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
 `There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
@@ -18,7 +22,7 @@ https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoi
 `Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
-**Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
+**Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/nyregion/rikers-island-mamdani-close-2032.htm
 **The Acorn-Mouse-Tick-Lyme Connection**\
 `In a year when trees yield a lot of acorns, Lyme disease tends to rise. Here’s why.`\
 https://www.nytimes.com/2026/11/20/nyregion/acorns-mice-lyme-disease.html
-
-**Is an ‘A.I. Agent’ Coming for Our Sourdough Starter?**\
-`A lab-grown shortcut named Leaven is wooing many high-end bakers and pizza makers who’ve prided themselves on their painstaking use of live cultures.`\
-https://www.nytimes.com/2026/11/20/dining/leaven-lab-grown-sourdough-starter.html
 

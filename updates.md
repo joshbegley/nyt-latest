@@ -1,3 +1,15 @@
+**Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
+`For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
+https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
+
+**“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
+`A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
+https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.html
+
+**Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
+https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
+
 **How to Create an Easy, Elegant Chignon**\
 `Three experts share their tips for creating an easy, elegant chignon.`\
 https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
