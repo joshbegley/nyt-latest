@@ -1,3 +1,7 @@
+**Fiona the Hippo of Internet Fame Dies**\
+`Cinncinati Zoo’s Nile hippopotamus died about two weeks after eating a child’s knit hat.`\
+https://www.nytimes.com/video/us/100000011297326/fiona-the-hippo-of-internet-fame-dies.html
+
 **Senate Passes Major Permitting Bill to Speed Up Energy Projects**\
 `The bill would overhaul federal environmental laws to make it easier to build everything from gas pipelines to wind farms. But it faces hurdles in the House.`\
 https://www.nytimes.com/2026/11/19/climate/senate-passes-baaja-permitting-bill-energy.html
