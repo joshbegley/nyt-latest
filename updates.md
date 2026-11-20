@@ -1,3 +1,7 @@
+**Live Updates: Trump Promotes Data Centers and Praises His Asia Trip**\
+`President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Jennifer Lopez No Longer Wants to Love in Public**\
 `On ‘Popcast’ Jennifer Lopez, whose relationship with and split from Ben Affleck sparked lots of media coverage, speaks about navigating her love life in the public eye.`\
 https://www.nytimes.com/video/podcasts/100000011291364/jennifer-lopez-no-longer-wants-to-love-in-public.html

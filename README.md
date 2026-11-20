@@ -1,3 +1,11 @@
+**Why It Took 13 Years to Make G.T.A. VI**\
+`Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
+https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
+
+**Democrats Strengthen the Legal Line with Attorneys General Triumphs**\
+`Once considered vulnerable to local issues, Democratic candidates for attorneys general romped on Tuesday, with the final contests called against Republican attorneys general in Kansas and Ohio.`\
+https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
+
 **Jennifer Lopez No Longer Wants to Love in Public**\
 `On ‘Popcast’ Jennifer Lopez, whose relationship with and split from Ben Affleck sparked lots of media coverage, speaks about navigating her love life in the public eye.`\
 https://www.nytimes.com/video/podcasts/100000011291364/jennifer-lopez-no-longer-wants-to-love-in-public.html
@@ -10,7 +18,7 @@ https://www.nytimes.com/2026/11/20/arts/television/netflix-expiring-december.htm
 `Three doctors respond to “Could a Psychedelic Trip Help My Dying Patients?,” a guest essay by Dr. Daniela J. Lamas. Also: The Senate Democratic contest.`\
 https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.html
 
-**Spying Suspect’s Chip Network Has Ties to Chinese Military Suppliers**\
+**Alice Huang, Accused of Spying on Nvidia’s CEO, Is Linked to Firms With Ties to China’s Military**\
 `Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
 https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
 
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/crosswords/connections-companion-1259.html
 **We Visited the HQ of a Celebrity Christian ‘Scam’**\
 `Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
 https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
-
-**Elon Musk Has Regrets**\
-`Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
-https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
-
-**Don’t Let Inflated Prices Ruin Your Black Friday Shopping**\
-`Our expert shares strategies to find real savings.`\
-https://www.nytimes.com/2026/11/20/podcasts/black-friday-shopping-prices.html
 
