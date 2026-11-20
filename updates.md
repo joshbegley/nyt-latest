@@ -1,3 +1,11 @@
+**Experimental Drugs for the Sickest Patients**\
+`Three doctors respond to “Could a Psychedelic Trip Help My Dying Patients?,” a guest essay by Dr. Daniela J. Lamas. Also: The Senate Democratic contest.`\
+https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.html
+
+**Spying Suspect’s Chip Network Has Ties to Chinese Military Suppliers**\
+`Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
+https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
+
 **Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
 `Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
 https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
