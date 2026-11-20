@@ -30,7 +30,7 @@ https://www.nytimes.com/2026/11/20/movies/robert-pattinson-james-bond-career.htm
 `The president suggested he would tax the same companies, though it was not clear how he would carry out the plan unveiled at a news conference.`\
 https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
 
-**Preppers Are Cashing In on Tech Anxiety**\
+**People Are Anxious About Major Tech Failures. Preppers Are Cashing In.**\
 `Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
 https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
 
