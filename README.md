@@ -154,7 +154,7 @@ https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi
 `Seen as a symbol, but not as herself`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
 
-**It Really Matters When C.E.O.s Have Affairs**\
+**Why C.E.O.s Who Commit Adultery Are Dangerous for Their Companies**\
 `The reason has nothing to do with the sanctity of marriage.`\
 https://www.nytimes.com/2026/11/19/opinion/jensen-huang-ceo-affairs.html
 
