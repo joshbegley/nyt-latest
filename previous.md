@@ -1,3 +1,7 @@
+**Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
+`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and been hospitalized ever since.`\
+https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
+
 **It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
 `A fashion gimmick that works. Kinda.`\
 https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
-**Live Updates: Trump Speaks on Asia Trip and Trade Deals**\
-`President Trump is holding a news conference at the White House, his first session with reporters since he met with the leaders of Russia and China.`\
+**Live Updates: Trump Speaks on Asia Trip, Trade Deals and Data Centers**\
+`President Trump pressed forcefully for an expansion of the data center construction in the United States that was rejected by voters in the midterm elections.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
 **The War in Ukraine Is Killing Wildlife**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/politics/ron-desantis-florida-2028.html
 **‘The Traitors: New Blood’ Wasn’t Ready for Prime-Time**\
 `Bizarre edits chopped the franchise’s winning formula into needlessly confusing pieces.`\
 https://www.nytimes.com/2026/11/20/arts/television/the-traitors-new-blood-finale.html
-
-**How Jensen Huang Made Humiliation Routine at Nvidia**\
-`The Nvidia co-founder’s belittling behavior toward employees goes back decades. It once led to a confidential settlement agreement with an executive who said Mr. Huang “terrorized” staff.`\
-https://www.nytimes.com/2026/11/20/technology/jensen-huang-nvidia-culture.html
 

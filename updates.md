@@ -1,3 +1,11 @@
+**Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
+`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and been hospitalized ever since.`\
+https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
+
+**Live Updates: Trump Speaks on Asia Trip, Trade Deals and Data Centers**\
+`President Trump pressed forcefully for an expansion of the data center construction in the United States that was rejected by voters in the midterm elections.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Live Updates: Trump Speaks on Asia Trip and Trade Deals**\
 `President Trump is holding a news conference at the White House, his first session with reporters since he met with the leaders of Russia and China.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference

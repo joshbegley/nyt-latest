@@ -1,5 +1,9 @@
+**Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
+`Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
+https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
+
 **Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
-`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and been hospitalized ever since.`\
+`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and had been hospitalized ever since.`\
 https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
 
 **It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
@@ -23,7 +27,7 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
 **Live Updates: Trump Speaks on Asia Trip, Trade Deals and Data Centers**\
-`President Trump pressed forcefully for an expansion of the data center construction in the United States that was rejected by voters in the midterm elections.`\
+`President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
 **The War in Ukraine Is Killing Wildlife**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/ezra-klein-podcast-robert-garcia.html
 **Ron DeSantis Ponders a Presidential Run in a Post-Trump World**\
 `In a wide-ranging interview, the governor of Florida talked about the potential timing of a presidential run. “I haven’t made any decisions,” he said.`\
 https://www.nytimes.com/2026/11/20/us/politics/ron-desantis-florida-2028.html
-
-**‘The Traitors: New Blood’ Wasn’t Ready for Prime-Time**\
-`Bizarre edits chopped the franchise’s winning formula into needlessly confusing pieces.`\
-https://www.nytimes.com/2026/11/20/arts/television/the-traitors-new-blood-finale.html
 
