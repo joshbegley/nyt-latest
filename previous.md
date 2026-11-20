@@ -1,3 +1,11 @@
+**Jimmy Kimmel Recaps Trump’s ‘Big Dim Summit’**\
+`“My God, even if you voted for this guy, you have to admit, he has the worst taste in friends,” the late night host said of Trump’s chummy meeting with Xi Jinping and Vladimir Putin.`\
+https://www.nytimes.com/2026/11/20/arts/television/jimmy-kimmel-trump-xi-putin-summit.html
+
+**Wreck of First Australian-Built Warship Is Revealed 128 Years After It Sank**\
+`The wooden gunboat Spitfire was entombed in waters near the Great Barrier Reef after it went down in a cyclone in 1898.`\
+https://www.nytimes.com/2026/11/20/world/australia/wreck-of-first-australian-built-warship-is-revealed-128-years-after-it-sank.html
+
 **Wreck of Australian Warship Found 128 Years After Sinking**\
 `The wreck of Australia’s first locally built warship was discovered in August near the Great Barrier Reef 128 years after it sank.`\
 https://www.nytimes.com/video/world/australia/100000011297846/australia-warship-found.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-employees-payout.htm
 **This Billionaire Just Made a Bundle Off A.I. But It Could Have Been More.**\
 `Gregory Jensen, a hedge-fund billionaire, invested early in Anthropic and OpenAI. But to fund a succession plan at his firm, he told colleagues that he sold his OpenAI stake.`\
 https://www.nytimes.com/2026/11/19/business/anthropic-openai-gregory-jensen.html
-
-**Former Biden Chief, With Help From Alex Soros, Will Gather Aides of 2028 Hopefuls**\
-`Jen O’Malley Dillon, who led the former president’s last two White House bids, is inviting top Democratic operatives to a gathering funded in part by the megadonor Alex Soros.`\
-https://www.nytimes.com/2026/11/19/us/politics/alex-soros-jen-omalley-dillon-2028-democratic-presidential-race.html
-
-**Unexpected Fallout From the Iran War**\
-`Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
-https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
 
