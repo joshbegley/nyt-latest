@@ -1,3 +1,15 @@
+**The ‘Traitors’ Winner ‘Felt So Guilty’ at the End**\
+`The first champion of “The Traitors: New Blood” took home over $200,000, as well as remorse at having deceived the other finalists.`\
+https://www.nytimes.com/2026/11/19/arts/television/traitors-winner.html
+
+**In ‘Much Ado,’ Tom Hiddleston and Hayley Atwell Will Make You Swoon**\
+`The stars are electric in Jamie Lloyd’s dance-floor production of Shakespeare’s exuberant romantic comedy.`\
+https://www.nytimes.com/2026/11/19/theater/much-ado-about-nothing-review-hiddleston-atwell-broadway.html
+
+**NYT Crossword Answers for Nov. 20, 2026**\
+`Gia Bosko opens our solving weekend.`\
+https://www.nytimes.com/2026/11/19/crosswords/daily-puzzle-2026-11-20.html
+
 **Technology Promised Ease. Outages Are Making Many Americans Uneasy.**\
 `The recent spate of tech disruptions has forced Americans to reckon with how dependent they have become on worldwide computer networks.`\
 https://www.nytimes.com/2026/11/19/us/tech-outages-computer-networks.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-picture-nov-3
 **What’s Going On in This Graph? | Dec. 2, 2026**\
 `How much money flows to the players on each college football team’s roster? What do you notice?`\
 https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-graph-dec-2-2026.html
-
-**Fire at Railroad Tie Plant in Alabama Closes Schools and Prompts Evacuations**\
-`The authorities in Attalla ordered residents within a mile radius to leave because of the fire at the Omaha Track, a railroad tie recycling facility.`\
-https://www.nytimes.com/2026/11/19/us/alabama-fire-railroad-tie-recycling-plant.html
-
-**The Casual Virtuosity of Emma Ogier**\
-`Last week, Emma Ogier released her debut album, “Fly 1111,” which is full of conversational, genre-bending folky songs. On Popcast’s Song of the Week, our critic Jon Caramanica breaks down “The Prize,” a standout track for its straightforwardness and sweet yet destitute vocal delivery.`\
-https://www.nytimes.com/video/podcasts/100000011293273/the-casual-virtuosity-of-emma-ogier.html
-
-**Whatever You Thought Texas Was, It’s Bigger and Bluer Than That**\
-`After Democrats broke a decades-long Republican winning streak this month, Texans are reflecting on who gets to define the place they call home.`\
-https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

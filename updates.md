@@ -1,3 +1,15 @@
+**The ‘Traitors’ Winner ‘Felt So Guilty’ at the End**\
+`The first champion of “The Traitors: New Blood” took home over $200,000, as well as remorse at having deceived the other finalists.`\
+https://www.nytimes.com/2026/11/19/arts/television/traitors-winner.html
+
+**In ‘Much Ado,’ Tom Hiddleston and Hayley Atwell Will Make You Swoon**\
+`The stars are electric in Jamie Lloyd’s dance-floor production of Shakespeare’s exuberant romantic comedy.`\
+https://www.nytimes.com/2026/11/19/theater/much-ado-about-nothing-review-hiddleston-atwell-broadway.html
+
+**NYT Crossword Answers for Nov. 20, 2026**\
+`Gia Bosko opens our solving weekend.`\
+https://www.nytimes.com/2026/11/19/crosswords/daily-puzzle-2026-11-20.html
+
 **Of Thee I Sing**\
 `Marian Anderson was seen as a symbol, but not as herself.`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
