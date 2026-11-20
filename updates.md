@@ -1,3 +1,47 @@
+**A Summit Gives Putin the Win He Craves: Equal Stature With Superpowers**\
+`Standing alongside the U.S. and Chinese leaders, President Vladimir V. Putin secured a symbolic triumph in his long quest to restore Russia’s place as a global power.`\
+https://www.nytimes.com/2026/11/20/world/europe/putin-trump-xi-summit-apec.html
+
+**Quote of the Day: At 42, a Marathon Great Isn’t Slowing Down Anytime Soon**\
+`Quotation of the Day for Friday, November 20, 2026.`\
+https://www.nytimes.com/2026/11/20/pageoneplus/quote-of-the-day-at-42-a-marathon-great-isnt-slowing-down-anytime-soon.html
+
+**Gen Z Is Driving Global Political Change, Aiding Far Left and Far Right**\
+`Protests planned across Europe on Friday are the latest example of global youth anger that has driven demonstrations and election upsets.`\
+https://www.nytimes.com/2026/11/20/world/europe/youth-protests-far-right-left.html
+
+**Easing Back From Brexit: What to Expect at U.K. Summit With E.U.**\
+`A decade after Britain voted to leave the European Union, it is creeping back toward the 27-nation bloc amid global pressure.`\
+https://www.nytimes.com/2026/11/20/world/europe/uk-eu-summit-brexit.html
+
+**I Wanted Him to Need Me**\
+`For better or worse, I got my wish.`\
+https://www.nytimes.com/2026/11/20/style/modern-love-i-wanted-him-to-need-me.html
+
+**He Liked Her ‘Weird,’ but Conversation Came Later**\
+`Lindsay Booker and Nigel Bruce barely spoke when they first met at a cookout in Chicago, but Bruce was smitten. Years later, they became the first couple to marry at the Obama Presidential Center.`\
+https://www.nytimes.com/2026/11/20/style/lindsay-booker-nigel-bruce-wedding.html
+
+**From ‘What’s Your Favorite Dinosaur?’ to ‘Yes, I Do’**\
+`An unconventional Bumble question brought Ashley Riser and Daniel Schooling together.`\
+https://www.nytimes.com/2026/11/20/style/ashley-riser-daniel-schooling-wedding.html
+
+**A Prince Fan Finds Her Own Prince, After an Intermission**\
+`Lily Zahn and Leal Stevenson-Vona shared a love of the late musician. After their breakup, news of his death brought them back together.`\
+https://www.nytimes.com/2026/11/20/style/lily-zahn-leal-stevenson-vona-wedding.html
+
+**She Begged Him Not to Read Her Memoir Too Soon**\
+`After dating for four years, Kyleigh Leddy, a writer, and Liam Moran called off their original wedding plan — which inspired another book.`\
+https://www.nytimes.com/2026/11/20/style/kyleigh-leddy-liam-moran-wedding.html
+
+**The First Date Could’ve Been Their Last**\
+`Dr. Nedu Nwasike told Aimee Sanders early on about his plans to relocate from Atlanta to Las Vegas. They went for it anyway.`\
+https://www.nytimes.com/2026/11/20/style/nedu-nwasike-aimee-sanders-wedding.html
+
+**From the Front Page: The Nuremberg Trials Begin on Nov. 20, 1945**\
+`The International Military Tribunal opened the trial of leading Nazi officials in Nuremberg, Germany. The trial helped establish that national leaders could be held individually accountable for war crimes and crimes against humanity.`\
+https://www.nytimes.com/2026/11/20/learning/from-the-front-page-the-nuremberg-trials-begin-on-nov-20-1945.html
+
 **Mamdani Closes Last Migrant Shelter, Leaving ICE Subpoena in Limbo**\
 `The Trump administration had sought the names of undocumented immigrants with criminal records who lived in the Bronx center.`\
 https://www.nytimes.com/2026/11/19/nyregion/nyc-mamdani-migrant-shelter-trump-subpoena.html

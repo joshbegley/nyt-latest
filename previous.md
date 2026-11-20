@@ -1,3 +1,47 @@
+**A Summit Gives Putin the Win He Craves: Equal Stature With Superpowers**\
+`Standing alongside the U.S. and Chinese leaders, President Vladimir V. Putin secured a symbolic triumph in his long quest to restore Russia’s place as a global power.`\
+https://www.nytimes.com/2026/11/20/world/europe/putin-trump-xi-summit-apec.html
+
+**Quote of the Day: At 42, a Marathon Great Isn’t Slowing Down Anytime Soon**\
+`Quotation of the Day for Friday, November 20, 2026.`\
+https://www.nytimes.com/2026/11/20/pageoneplus/quote-of-the-day-at-42-a-marathon-great-isnt-slowing-down-anytime-soon.html
+
+**Gen Z Is Driving Global Political Change, Aiding Far Left and Far Right**\
+`Protests planned across Europe on Friday are the latest example of global youth anger that has driven demonstrations and election upsets.`\
+https://www.nytimes.com/2026/11/20/world/europe/youth-protests-far-right-left.html
+
+**Easing Back From Brexit: What to Expect at U.K. Summit With E.U.**\
+`A decade after Britain voted to leave the European Union, it is creeping back toward the 27-nation bloc amid global pressure.`\
+https://www.nytimes.com/2026/11/20/world/europe/uk-eu-summit-brexit.html
+
+**I Wanted Him to Need Me**\
+`For better or worse, I got my wish.`\
+https://www.nytimes.com/2026/11/20/style/modern-love-i-wanted-him-to-need-me.html
+
+**He Liked Her ‘Weird,’ but Conversation Came Later**\
+`Lindsay Booker and Nigel Bruce barely spoke when they first met at a cookout in Chicago, but Bruce was smitten. Years later, they became the first couple to marry at the Obama Presidential Center.`\
+https://www.nytimes.com/2026/11/20/style/lindsay-booker-nigel-bruce-wedding.html
+
+**From ‘What’s Your Favorite Dinosaur?’ to ‘Yes, I Do’**\
+`An unconventional Bumble question brought Ashley Riser and Daniel Schooling together.`\
+https://www.nytimes.com/2026/11/20/style/ashley-riser-daniel-schooling-wedding.html
+
+**A Prince Fan Finds Her Own Prince, After an Intermission**\
+`Lily Zahn and Leal Stevenson-Vona shared a love of the late musician. After their breakup, news of his death brought them back together.`\
+https://www.nytimes.com/2026/11/20/style/lily-zahn-leal-stevenson-vona-wedding.html
+
+**She Begged Him Not to Read Her Memoir Too Soon**\
+`After dating for four years, Kyleigh Leddy, a writer, and Liam Moran called off their original wedding plan — which inspired another book.`\
+https://www.nytimes.com/2026/11/20/style/kyleigh-leddy-liam-moran-wedding.html
+
+**The First Date Could’ve Been Their Last**\
+`Dr. Nedu Nwasike told Aimee Sanders early on about his plans to relocate from Atlanta to Las Vegas. They went for it anyway.`\
+https://www.nytimes.com/2026/11/20/style/nedu-nwasike-aimee-sanders-wedding.html
+
+**From the Front Page: The Nuremberg Trials Begin on Nov. 20, 1945**\
+`The International Military Tribunal opened the trial of leading Nazi officials in Nuremberg, Germany. The trial helped establish that national leaders could be held individually accountable for war crimes and crimes against humanity.`\
+https://www.nytimes.com/2026/11/20/learning/from-the-front-page-the-nuremberg-trials-begin-on-nov-20-1945.html
+
 **Mamdani Closes Last Migrant Shelter, Leaving ICE Subpoena in Limbo**\
 `The Trump administration had sought the names of undocumented immigrants with criminal records who lived in the Bronx center.`\
 https://www.nytimes.com/2026/11/19/nyregion/nyc-mamdani-migrant-shelter-trump-subpoena.html
@@ -153,48 +197,4 @@ https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuati
 **JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
 `The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
 https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
-
-**Fiona the Hippo, Star of Cincinnati Zoo and Beyond, Dies After Eating Child’s Hat**\
-`The beloved Nile hippopotamus became ill after eating a children’s hat that accidentally ended up in her enclosure.`\
-https://www.nytimes.com/2026/11/19/us/fiona-hippo-dead-cincinnati-zoo.html
-
-**Leonid Arkayev Has Died. He Coached Russian Gymnasts to Juggernaut Status.**\
-`“When you look at his résumé of athletes and Olympians, no one holds a candle to anything he had done,” one American coach said. He was 86.`\
-https://www.nytimes.com/2026/11/19/obituaries/leonid-arkayev-dead.html
-
-**Love and Carjackings in a Video Game**\
-`Grand Theft Auto once caused a moral panic. Now, it’s a “signature cultural event.”`\
-https://www.nytimes.com/2026/11/19/world/gta-anthropic-shenzhen-summit.html
-
-**Anthropic Makes Multibillion-Dollar Debut on Nasdaq**\
-`Anthropic began trading on Nasdaq on Thursday, becoming one of the world’s most valuable public companies. Its stock market debut comes amid concerns over economic disruption and the safety risks of artificial intelligence.`\
-https://www.nytimes.com/video/business/economy/100000011296431/anthropic-ipo-price-stock-market.html
-
-**Where to Eat: Bistromania**\
-`Is a bistro a tradition? A mind-set? Or something else entirely?`\
-https://www.nytimes.com/2026/11/19/dining/where-to-eat-bistromania.html
-
-**Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza**\
-`The ruling by the International Court of Justice deals with issues relevant to the case brought against Israel alleging genocide in Gaza. Israel has rejected the charge.`\
-https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html
-
-**Why Is the Stock Market Down After Anthropic’s Successful IPO?**\
-`Anthropic shares rose in their first day of trading, while both the S&P 500 and Nasdaq indexes fell. There are a few factors at play.`\
-https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-stock-market.html
-
-**With GTA 6 Release, DoorDash and Other Food Delivery Apps Are Making a Killing**\
-`The gamers staying home in droves have to be fed, and the meal business is more than ready to feed them.`\
-https://www.nytimes.com/2026/11/19/dining/grand-theft-auto-food-delivery.html
-
-**Lawsuit Seeks to Block Trump’s Housing Rule Targeting Immigrants**\
-`A rule set to take effect next month would deny federal housing assistance to households that include undocumented immigrants, even if other family members are citizens.`\
-https://www.nytimes.com/2026/11/19/nyregion/trump-hud-immigrants-housing-aid.html
-
-**madison-shooting-corey-ruiz-district-attorney-statement**\
-`A Madison, Wis., police officer will not face charges in the fatal shooting in July of Corey Ruiz, the local district attorney, Ismael Ozanne, said on Thursday. Here is Mr. Ozanne’s statement about his decision and his summary of the evidence.`\
-https://www.nytimes.com/interactive/2026/11/19/us/press-release-no-criminal-liability-for-mpd-officers11-19-26.html
-
-**U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
-`The first-ever lease sale took place over the objections of a federal judge. Wetstone U.S. Ventures paid $6 million to lease the seabed for mapping and preparation, not actual mining.`\
-https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
 
