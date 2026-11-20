@@ -1,3 +1,7 @@
+**How Anthropic Employees Really Feel About The I.P.O.**\
+`Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011297245/how-anthropic-employees-really-feel-about-the-ipo.html
+
 **$160 Million in Church Property Is Mortgaged to Fund Abuse Settlement**\
 `The New York Archdiocese recently agreed to pay more than $800 million to 1,300 people who say they were sexually abused by clergy.`\
 https://www.nytimes.com/2026/11/19/nyregion/catholic-church-archdiocese-nyc-sexual-abuse.html
