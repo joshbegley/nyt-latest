@@ -1,3 +1,11 @@
+**Trump Threatens to Bar U.S. Tech Firms From Building Data Centers Abroad**\
+`The president suggested he would tax the same companies, though it was not clear how he would carry out the plan unveiled at a news conference.`\
+https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
+
+**Preppers Are Cashing In on Tech Anxiety**\
+`Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
+https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
+
 **Why It Took 13 Years to Make G.T.A. VI**\
 `Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/crosswords/wordle-review-1981.html
 **NYT Strands Hints for November 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
 https://www.nytimes.com/2026/11/20/crosswords/strands-sidekick-993.html
-
-**NYT Connections Answers for November 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
-https://www.nytimes.com/2026/11/20/crosswords/connections-companion-1259.html
-
-**We Visited the HQ of a Celebrity Christian ‘Scam’**\
-`Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
-https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
 
