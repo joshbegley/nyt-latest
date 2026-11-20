@@ -1,3 +1,11 @@
+**Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
+`Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
+https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
+
+**Poland Says Russian Objects Crashed in Its Territory**\
+`Poland said on Friday that three Russian objects, including at least one missile, crashed into Polish territory. This incident came as Poland was hosting a two-week military exercise by Ukraine’s allies.`\
+https://www.nytimes.com/video/world/europe/100000011298424/poland-russia-crash.html
+
 **Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
 `Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy defended its policy.`\
 https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-qui
 **How the U.S. Economy Is Tied to A.I.**\
 `Artificial intelligence has become a huge piece of the U.S. economy. Ben Casselman, the chief economics correspondent for The New York Times, explains why that is and how it might be risky.`\
 https://www.nytimes.com/video/business/100000011293737/how-the-us-economy-is-tied-to-ai.html
-
-**What Trump, Putin and Xi Left on the Table**\
-`A summit among the leaders of the United States, China and Russia produced no treaties on war or nuclear weapons — and the A.I. race wasn’t even on the agenda.`\
-https://www.nytimes.com/2026/11/20/podcasts/the-daily/trump-putin-xi-summit-ai.html
-
-**G.T.A. VI Is a Monumental Human Achievement**\
-`Anthropic goes public, Jensen Huang wants back in at Nvidia, and software patches seem to be breaking everything. But first, let’s talk about G.T.A.`\
-https://www.nytimes.com/2026/11/20/podcasts/hardfork-gta6-nvidia-anthropic.html
 

@@ -1,3 +1,11 @@
+**Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
+`Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
+https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
+
+**Poland Says Russian Objects Crashed in Its Territory**\
+`Poland said on Friday that three Russian objects, including at least one missile, crashed into Polish territory. This incident came as Poland was hosting a two-week military exercise by Ukraine’s allies.`\
+https://www.nytimes.com/video/world/europe/100000011298424/poland-russia-crash.html
+
 **Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
 `Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy defended its policy.`\
 https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
