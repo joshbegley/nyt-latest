@@ -1,3 +1,7 @@
+**Top N.H. Election Official Reiterates Intent to Keep Nation’s First Primary**\
+`The New Hampshire secretary of state said he would again hold the Democratic primary first in the nation, defying the party’s intent to prioritize other states in 2028.`\
+https://www.nytimes.com/2026/11/20/us/elections/new-hampshire-presidential-primary.html
+
 **Bowen Yang Apologizes to Regina Spektor for Calling Her an Antisemitic Slur on His Podcast**\
 `The former “Saturday Night Live” star used the slur when talking about the musician Regina Spektor in a recent episode of his “Las Culturistas” podcast.`\
 https://www.nytimes.com/2026/11/20/arts/music/bowen-yang-apology-antisemitic-slur-regina-spektor.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.htm
 **‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
 `There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
 https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.html
-
-**C.F.T.C. Officials Considered Investigating Trump’s Memecoin, Then Punted**\
-`Lawyers at the Commodity Futures Trading Commission looked into possible fraud soon after the digital token’s launch, then decided they would not get the commission’s support.`\
-https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
 

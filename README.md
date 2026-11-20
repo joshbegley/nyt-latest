@@ -1,3 +1,7 @@
+**Sam Altman on Jensen Huang’s Possible Return to Nvidia**\
+`At The New York Times DealBook Summit on Nov. 18, Sam Altman spoke about Jensen Huang’s possible return as C.E.O. of Nvidia. The tech reporters Erin Griffith and Mike Isaac joined the guest host Max Read on the “Hard Fork” podcast to talk about it.`\
+https://www.nytimes.com/video/technology/100000011299401/sam-altman-jensen-huang-nvidia.html
+
 **Top N.H. Election Official Reiterates Intent to Keep Nation’s First Primary**\
 `The New Hampshire secretary of state said he would again hold the Democratic primary first in the nation, defying the party’s intent to prioritize other states in 2028.`\
 https://www.nytimes.com/2026/11/20/us/elections/new-hampshire-presidential-primary.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.ht
 **“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
 `A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
 https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.html
-
-**‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
-`There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
-https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.html
 
