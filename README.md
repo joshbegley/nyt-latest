@@ -1,3 +1,7 @@
+**Can Robert Pattinson Play Both James Bond and Batman?**\
+`The demands of playing 007 have limited some of the actors cast as Ian Fleming’s dashing British spy over the decades.`\
+https://www.nytimes.com/2026/11/20/movies/robert-pattinson-james-bond-career.html
+
 **Trump Threatens to Bar U.S. Tech Firms From Building Data Centers Abroad**\
 `The president suggested he would tax the same companies, though it was not clear how he would carry out the plan unveiled at a news conference.`\
 https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/the-headlines/fear-humiliation-nvidi
 **Today’s Wordle Hints for November 21, 2026**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
 https://www.nytimes.com/2026/11/20/crosswords/wordle-review-1981.html
-
-**NYT Strands Hints for November 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
-https://www.nytimes.com/2026/11/20/crosswords/strands-sidekick-993.html
 

@@ -1,3 +1,23 @@
+**Trump Threatens to Bar U.S. Tech Firms From Building Data Centers Abroad**\
+`The president suggested he would tax the same companies, though it was not clear how he would carry out the plan unveiled at a news conference.`\
+https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
+
+**Preppers Are Cashing In on Tech Anxiety**\
+`Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
+https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
+
+**Why It Took 13 Years to Make G.T.A. VI**\
+`Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
+https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
+
+**Democrats Strengthen the Legal Line with Attorneys General Triumphs**\
+`Once considered vulnerable to local issues, Democratic candidates for attorneys general romped on Tuesday, with the final contests called against Republican attorneys general in Kansas and Ohio.`\
+https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
+
+**Alice Huang, Accused of Spying on Nvidia’s CEO, Is Linked to Firms With Ties to China’s Military**\
+`Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
+https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
+
 **Live Updates: Trump Promotes Data Centers and Praises His Asia Trip**\
 `President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
