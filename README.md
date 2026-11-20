@@ -1,3 +1,7 @@
+**As a Storm Floods Florida, Heavy Rain Will Creep Up the East Coast**\
+`A potential tropical storm off the coast of Florida is expected to move up the coast and could snarl Thanksgiving week travel.`\
+https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-thanksgiving.html
+
 **Playbill Removes Casting Call for George Floyd Musical Album**\
 `The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
 https://www.nytimes.com/2026/11/20/arts/george-floyd-musical-playbill-busted-broadway.html
@@ -155,7 +159,7 @@ https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
 https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
 
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
-`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled on their second day of trading.`\
+`Investors are growing more concerned about the durability of the artificial intelligence boom even after Anthropic’s successful market debut on Thursday.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
 
 **The Most Important Days**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011295020/trump-seems-untouchable-bu
 **N.F.L.’s Global Expansion**\
 `Plus, a look at Fernando Mendoza’s N.F.L. debut and Mauricio Pochettino’s U.S.M.N.T. exit.`\
 https://www.nytimes.com/2026/11/20/podcasts/nfls-global-expansion.html
-
-**G.T.A. VI Is a Monumental Human Achievement**\
-`Max, Erin Griffith and Mike Isaac talk with Joseph Bernstein about his early access to the new Grand Theft Auto and why A.I. could make it the last game of its kind. Plus: the fallout from Jensen Huang leaving Nvidia, and Anthropic’s $2 trillion IPO.`\
-https://www.nytimes.com/video/podcasts/100000011291225/gta-vi-is-a-monumental-human-achievement.html
 
