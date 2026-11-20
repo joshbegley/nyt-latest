@@ -1,3 +1,11 @@
+**HUD Takes Over Newark’s Troubled Housing Authority**\
+`Newark’s mayor, Ras J. Baraka, said he was concerned that residents and local stakeholders would lose influence in the city’s housing authority, which manages more than 6,000 apartments.`\
+https://www.nytimes.com/2026/11/20/nyregion/hud-newark-housing-authority.html
+
+**California Storm Forecast to Hit Thanksgiving Week Amid High King Tides**\
+`“We could have flooding in areas where we have never seen flooding before,” a forecaster with the National Weather Service said.`\
+https://www.nytimes.com/2026/11/20/weather/california-thanksgiving-storm-king-tides.html
+
 **Officials Find Cascade of Problems With ICE Training in Trump’s Immigration Crackdown**\
 `In a draft report, officials found widespread training gaps as the Department of Homeland Security sought to rapidly hire and deploy 10,000 new officers.`\
 https://www.nytimes.com/2026/11/20/us/politics/training-ice-immigration-inspector-general.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/dining/you-deserve-this-20-minute-beef-stir-f
 **A Supermodel Will Finally Get Her Day in Court**\
 `Carré Otis spent years trying to serve her former agent in a lawsuit accusing him of sexual abuse. It took an international operation to make it happen.`\
 https://www.nytimes.com/2026/11/20/style/carre-otis-gerald-marie-lawsuit-sexual-abuse.html
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s picks include an alien pregnancy, a surreal suburban disaster, a time-loop wedding night murder and more.`\
-https://www.nytimes.com/2026/11/20/movies/science-fiction-movies-streaming-end-of-oak-street.html
-
-**Is Your Employer Telling You to Use A.I.? We Want to Hear From You.**\
-`Please tell us what kind of instructions your employer is providing about A.I. We may include your experiences in an article.`\
-https://www.nytimes.com/2026/11/20/business/is-your-employer-telling-you-to-use-ai-we-want-to-hear-from-you.html
 

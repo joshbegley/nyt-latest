@@ -1,3 +1,11 @@
+**HUD Takes Over Newark’s Troubled Housing Authority**\
+`Newark’s mayor, Ras J. Baraka, said he was concerned that residents and local stakeholders would lose influence in the city’s housing authority, which manages more than 6,000 apartments.`\
+https://www.nytimes.com/2026/11/20/nyregion/hud-newark-housing-authority.html
+
+**California Storm Forecast to Hit Thanksgiving Week Amid High King Tides**\
+`“We could have flooding in areas where we have never seen flooding before,” a forecaster with the National Weather Service said.`\
+https://www.nytimes.com/2026/11/20/weather/california-thanksgiving-storm-king-tides.html
+
 **Officials Find Cascade of Problems With ICE Training in Trump’s Immigration Crackdown**\
 `In a draft report, officials found widespread training gaps as the Department of Homeland Security sought to rapidly hire and deploy 10,000 new officers.`\
 https://www.nytimes.com/2026/11/20/us/politics/training-ice-immigration-inspector-general.html
