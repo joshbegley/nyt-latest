@@ -1,3 +1,15 @@
+**Senate Passes Major Permitting Bill to Speed Up Energy Projects**\
+`The bill would overhaul federal environmental laws to make it easier to build everything from gas pipelines to wind farms. But it faces hurdles in the House.`\
+https://www.nytimes.com/2026/11/19/climate/senate-passes-baaja-permitting-bill-energy.html
+
+**California Thieves Carried Out String of Train Heists, Prosecutors Say**\
+`A crew of 14 men boarded moving trains in Southern California, forced them to stop and made away with sneakers, electronics and power tools, according to an indictment unsealed on Thursday.`\
+https://www.nytimes.com/2026/11/19/us/california-train-robberies-indictment.html
+
+**The Countless Temptations of Grand Theft Auto 6**\
+`Even a small convenience store is filled with choices for the player. Smoke a vape or eat a hot dog? Hold up the clerk or sneak into a safe?`\
+https://www.nytimes.com/interactive/2026/11/19/arts/gta-vi-game-design.html
+
 **The ‘Traitors’ Winner ‘Felt So Guilty’ at the End**\
 `The first champion of “The Traitors: New Blood” took home over $200,000, as well as remorse at having deceived the other finalists.`\
 https://www.nytimes.com/2026/11/19/arts/television/traitors-winner.html
@@ -181,18 +193,6 @@ https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi
 **Of Thee I Sing**\
 `Marian Anderson was seen as a symbol, but not as herself.`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
-
-**Why C.E.O.s Who Commit Adultery Are Dangerous for Their Companies**\
-`The reason has nothing to do with the sanctity of marriage.`\
-https://www.nytimes.com/2026/11/19/opinion/jensen-huang-ceo-affairs.html
-
-**What’s Going On in This Picture? | Nov. 30, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-picture-nov-30-2026.html
-
-**What’s Going On in This Graph? | Dec. 2, 2026**\
-`How much money flows to the players on each college football team’s roster? What do you notice?`\
-https://www.nytimes.com/2026/11/19/learning/whats-going-on-in-this-graph-dec-2-2026.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
