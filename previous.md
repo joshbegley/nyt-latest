@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s News Conference After His Asia Trip**\
+`President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
+https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html
+
 **Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
 `Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
 https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
 **‘The Headlines’ News Quiz: Nov. 20, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-quiz-nov-20-2026.html
-
-**How the U.S. Economy Is Tied to A.I.**\
-`Artificial intelligence has become a huge piece of the U.S. economy. Ben Casselman, the chief economics correspondent for The New York Times, explains why that is and how it might be risky.`\
-https://www.nytimes.com/video/business/100000011293737/how-the-us-economy-is-tied-to-ai.html
 

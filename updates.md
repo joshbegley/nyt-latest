@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s News Conference After His Asia Trip**\
+`President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
+https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 is close to ending the day in a correction, a drop of 10 percent from its recent high and a symbolic measure of investors’ souring mood.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
