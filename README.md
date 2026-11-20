@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/11/20/arts/television/jimmy-kimmel-trump-xi-putin-s
 
 **Wreck of First Australian-Built Warship Is Revealed 128 Years After It Sank**\
 `The wooden gunboat Spitfire was entombed in waters near the Great Barrier Reef after it went down in a cyclone in 1898.`\
-https://www.nytimes.com/2026/11/20/world/australia/wreck-of-first-australian-built-warship-is-revealed-128-years-after-it-sank.html
+https://www.nytimes.com/2026/11/20/world/australia/shipwreck-warship-spitfire-great-barrier-reef.html
 
 **Wreck of Australian Warship Found 128 Years After Sinking**\
 `The wreck of Australia’s first locally built warship was discovered in August near the Great Barrier Reef 128 years after it sank.`\
