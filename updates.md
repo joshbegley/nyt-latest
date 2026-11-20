@@ -1,3 +1,7 @@
+**Bobby Ray Inman, Intelligence Official Under Carter and Reagan, Dies at 95**\
+`An admiral who was a well-regarded director of the National Security Agency and deputy director of central intelligence, he turned down a nomination from President Bill Clinton to be secretary of defense.`\
+https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
+
 **White Police Officers Are Convicted of Beating a Black Man in France**\
 `The three officers were filmed beating Michel Zecler, a music producer, inside his Paris studio in 2020, setting off a national backlash.`\
 https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html

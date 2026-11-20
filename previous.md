@@ -1,3 +1,7 @@
+**Bobby Ray Inman, Intelligence Official Under Carter and Reagan, Dies at 95**\
+`An admiral who was a well-regarded director of the National Security Agency and deputy director of central intelligence, he turned down a nomination from President Bill Clinton to be secretary of defense.`\
+https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
+
 **White Police Officers Are Convicted of Beating a Black Man in France**\
 `The three officers were filmed beating Michel Zecler, a music producer, inside his Paris studio in 2020, setting off a national backlash.`\
 https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 **Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
 `In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
-
-**The War in Ukraine Is Killing Wildlife**\
-`The war in Ukraine, now in its fifth year, is taking a heavy toll on the country’s wildlife. If not outright killed in the fighting, wild animals are often caught in anti-drone netting or razor wire, and their natural habitats have been drastically transformed.`\
-https://www.nytimes.com/video/world/europe/100000011297989/ukraine-war-killing-wildlife.html
 
