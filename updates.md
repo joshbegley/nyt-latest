@@ -1,3 +1,11 @@
+**Nissan Shuts Down System Used for Repairs After Hack Attempt**\
+`The outage, which began a week ago, could delay repairs involving vehicle electronics and key fobs.`\
+https://www.nytimes.com/2026/11/20/business/nissan-reapirs-hack-technology.html
+
+**Playbill Removes Casting Call for George Floyd Musical Album**\
+`The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
+https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-broadway.html
+
 **Devilish or Delightful? Krampus Is Banned From a Christmas Parade.**\
 `After an appearance last year, a float depicting Krampus, St. Nicholas’s evil accomplice, will not be allowed in an Ontario town’s Santa Claus parade on Saturday.`\
 https://www.nytimes.com/2026/11/20/world/canada/krampus-christmas-parade-ban-ontario.html

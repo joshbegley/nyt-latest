@@ -1,3 +1,7 @@
+**Nissan Shuts Down System Used for Repairs After Hack Attempt**\
+`The outage, which began a week ago, could delay repairs involving vehicle electronics and key fobs.`\
+https://www.nytimes.com/2026/11/20/business/nissan-reapirs-hack-technology.html
+
 **Devilish or Delightful? Krampus Is Banned From a Christmas Parade.**\
 `After an appearance last year, a float depicting Krampus, St. Nicholas’s evil accomplice, will not be allowed in an Ontario town’s Santa Claus parade on Saturday.`\
 https://www.nytimes.com/2026/11/20/world/canada/krampus-christmas-parade-ban-ontario.html
@@ -8,7 +12,7 @@ https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-than
 
 **Playbill Removes Casting Call for George Floyd Musical Album**\
 `The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
-https://www.nytimes.com/2026/11/20/arts/george-floyd-musical-playbill-busted-broadway.html
+https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-broadway.html
 
 **Mamdani Will Run New York With a Limp After Tearing Achilles Playing Soccer**\
 `The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011295023/it-feels-corrupt-because-i
 **House Oversight Democrat on the Epstein Files**\
 `The Department of Justice has yet to release 2.5 million documents related to Jeffrey Epstein. On “The Ezra Klein Show,” Representative Robert Garcia, soon to lead the House Oversight Committee, discusses why, and what’s next.`\
 https://www.nytimes.com/video/opinion/100000011295021/house-oversight-democrat-on-the-epstein-files.html
-
-**Trump Seems Untouchable. But That’s Changing.**\
-`Trump and his close associates believe that they are “untouchable,” and that the public will remain largely apathetic to their business dealings, says Representative Robert Garcia, the top Democrat on the House Oversight Committee. On “The Ezra Klein Show,” Garcia explains why he thinks that’s starting to change.`\
-https://www.nytimes.com/video/opinion/100000011295020/trump-seems-untouchable-but-thats-changing.html
 
