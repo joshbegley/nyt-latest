@@ -1,3 +1,7 @@
+**Top White House Cybersecurity Official Steps Down**\
+`The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
+https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
+
 **4 British Men Convicted of Sexually Assaulting Joanne Young**\
 `A jury rejected the men’s defense that they had been relying on assurances from Joanne Young’s husband — who himself has pleaded guilty to rape — that she had consented.`\
 https://www.nytimes.com/2026/11/19/world/europe/uk-joanne-young-abuse-conviction.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
 **Workers at Holiday Inn Were Threatened With Deportation, Lawsuit Says**\
 `The New York attorney general said that immigrant workers renovating a Rochester hotel had lived in unfit conditions and been underpaid.`\
 https://www.nytimes.com/2026/11/19/nyregion/immigrants-hotel-rochester-lawsuit.html
-
-**No Charges Filed in Wisconsin Police Shooting That Led to Protests**\
-`Demonstrators blocked traffic for days last summer after a Madison police officer shot and killed a man during a confrontation.`\
-https://www.nytimes.com/2026/11/19/us/madison-police-shooting-charges-corey-ruiz.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
