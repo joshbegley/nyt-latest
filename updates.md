@@ -1,3 +1,7 @@
+**The Most Important Days**\
+`The Times has been publishing for 175 years. We look back at the most significant days in that time.`\
+https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
+
 **Handwritten Lyrics to Early Dylan Songs to Be Sold by Sotheby’s**\
 `The auction house estimates the manuscripts for “Masters of War” and “Subterranean Homesick Blues” could together draw bids totaling as much as $1 million.`\
 https://www.nytimes.com/2026/11/20/arts/music/bob-dylan-handwritten-lyrics-sothebys-auction.html

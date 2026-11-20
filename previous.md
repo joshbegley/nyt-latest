@@ -1,3 +1,7 @@
+**The Most Important Days**\
+`The Times has been publishing for 175 years. We look back at the most significant days in that time.`\
+https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
+
 **‘The Headlines’ News Quiz: Nov. 20, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-quiz-nov-20-2026.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/books/review/carlo-collodi-italian-chldrens-b
 **Step 1 of Reporting an Obituary: Confirming Someone Is Actually Dead**\
 `Nailing down the most important fact in the story of a prominent person’s death can be surprisingly complicated.`\
 https://www.nytimes.com/2026/11/20/insider/obituaries-facts-confirmation.html
-
-**Mercury Is a Mystery. An International Mission Aims to Solve It.**\
-`BepiColombo is about to become the second spacecraft in history to orbit the planet closest to the sun.`\
-https://www.nytimes.com/2026/11/20/science/mercury-bepi-colombo-orbit.html
 
