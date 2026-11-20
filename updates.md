@@ -1,3 +1,11 @@
+**Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
+`Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
+https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
+
+**Designers Accuse Ssense of Misrepresenting Clothes Online**\
+`After designers accused the luxury retailer Ssense of misrepresenting their clothes, the company said it relied on a “virtual try-on” program for some online imagery.`\
+https://www.nytimes.com/2026/11/20/style/ssense-ai-rcos-sage-nation.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 ended the day down 10 percent from its recent high, in a symbolic measure of investors’ souring mood.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
