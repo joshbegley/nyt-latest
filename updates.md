@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 21, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
+
 **Inside the Fight Between Native American Tribes and Kalshi**\
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
