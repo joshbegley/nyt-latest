@@ -1,3 +1,7 @@
+**Can a Country Be Guilty of Genocide? Finally, the Answer Is Yes.**\
+`In finding that Myanmar committed genocide against the Rohingya, an international court put another brick in the legal foundation for the crime.`\
+https://www.nytimes.com/2026/11/20/opinion/genocide-gambia-rwanda-rohingya-israel.html
+
 **A Summit Gives Putin the Win He Craves: Equal Stature With Superpowers**\
 `Standing alongside the U.S. and Chinese leaders, President Vladimir V. Putin secured a symbolic triumph in his long quest to restore Russia’s place as a global power.`\
 https://www.nytimes.com/2026/11/20/world/europe/putin-trump-xi-summit-apec.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
 **In Florida, More Rain Threatens Flooded Areas and Roads**\
 `Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 24 hours, forecasters said.`\
 https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
-
-**JPMorgan Chase Customer Data Is Exposed in Latest Hack**\
-`The bank, which earlier this week suffered a brief technology outage, said no sensitive information was taken in an incident that also affected Mastercard and Visa.`\
-https://www.nytimes.com/2026/11/19/business/jpmorgan-chase-customer-data-breach.html
 

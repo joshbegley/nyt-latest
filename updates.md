@@ -1,3 +1,7 @@
+**Can a Country Be Guilty of Genocide? Finally, the Answer Is Yes.**\
+`In finding that Myanmar committed genocide against the Rohingya, an international court put another brick in the legal foundation for the crime.`\
+https://www.nytimes.com/2026/11/20/opinion/genocide-gambia-rwanda-rohingya-israel.html
+
 **A Summit Gives Putin the Win He Craves: Equal Stature With Superpowers**\
 `Standing alongside the U.S. and Chinese leaders, President Vladimir V. Putin secured a symbolic triumph in his long quest to restore Russia’s place as a global power.`\
 https://www.nytimes.com/2026/11/20/world/europe/putin-trump-xi-summit-apec.html
