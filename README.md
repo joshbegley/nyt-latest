@@ -1,3 +1,7 @@
+**2 Earthquakes Strike Los Angeles Area and Central California**\
+`A 5.0-magnitude quake struck around Pinnacles, Calif., southeast of San Francisco. A few hours later, a 4.2-magnitude quake hit just outside of Los Angeles.`\
+https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacles.html
+
 **Let’s Talk About This Year’s Book Awards**\
 `MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
 https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
@@ -78,13 +82,13 @@ https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-sur
 `Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
 https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
 
-**E.R. Doctors on Avoiding Thanksgiving Hazards**\
-`Don’t deep-fry a frozen turkey, for starters.`\
-https://www.nytimes.com/2026/11/20/well/thanksgiving-emergency-room-er.html
-
 **Don’t Let Inflated Prices Ruin Your Black Friday Shopping**\
 `Our expert shares strategies to find real savings.`\
 https://www.nytimes.com/2026/11/20/podcasts/black-friday-shopping-prices.html
+
+**E.R. Doctors on Avoiding Thanksgiving Hazards**\
+`Don’t deep-fry a frozen turkey, for starters.`\
+https://www.nytimes.com/2026/11/20/well/thanksgiving-emergency-room-er.html
 
 **Corrections: Nov. 20, 2026**\
 `Corrections that appeared in print on Friday, Nov. 20, 2026.`\
@@ -142,8 +146,8 @@ https://www.nytimes.com/2026/11/20/science/quantum-contextuality.html
 `As we approach the holiday season, this month’s lineup looks back at childhood, including Ingmar Bergman’s “Fanny and Alexander” and Annie Baker’s “Janet Planet.”`\
 https://www.nytimes.com/2026/11/20/arts/free-movies-streaming.html
 
-**These Underdogs Were Just Elected. No One Is More Surprised Than They Are.**\
-`An Arkansas dairy farmer’s Democratic victory in a race for county assessor was one of many unlikely down-ballot wins that showed the depth of the blue wave.`\
+**A Dairy Farmer Ran for Office to Prove a Point. He Accidentally Won.**\
+`An Arkansas Democrat’s victory in a race for county assessor was one of many unlikely down-ballot wins that showed the depth of the blue wave.`\
 https://www.nytimes.com/2026/11/20/us/democrats-unexpected-winning-candidates-midterms.html
 
 **New Ph.D. Enrollment in the Sciences Dropped 10 Percent Under Trump**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/books/review/pinocchio-carlo-collodi-200th-bi
 **China’s A.I. Ambitions Are Running Into a Money Problem**\
 `While Anthropic and other Silicon Valley A.I. giants are raising tens of billions in capital, Chinese rivals are struggling to keep pace financially.`\
 https://www.nytimes.com/2026/11/20/business/china-ai-investment-spending.html
-
-**Everything You Need to Know Before Seeing the New ‘Hunger Games’ Prequel**\
-`“The Hunger Games: Sunrise on the Reaping” is the sixth film in the franchise. Here’s your training guide before entering the arena.`\
-https://www.nytimes.com/2026/11/20/movies/the-hunger-games-sunrise-on-the-reaping-explainer.html
 
