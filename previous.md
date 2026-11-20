@@ -1,3 +1,7 @@
+**Anthropic’s Banner Debut Not Enough to Stop Slide in Stock Market**\
+`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **The Most Important Days**\
 `The Times has been publishing for 175 years. We look back at the most significant days in that time.`\
 https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
@@ -58,7 +62,7 @@ https://www.nytimes.com/2026/11/20/crosswords/connections-companion-1259.html
 `Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
 https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
 
-**Elon Musk’s $500 Million Mistake**\
+**Elon Musk Has Regrets**\
 `Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
 https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/movies/horror-movies-watch-victorian-psycho-d
 **Italian Children’s Book Characters in America**\
 `First, hard-working Italian immigrants began populating American books for young readers. Then Bruno Munari arrived on the scene.`\
 https://www.nytimes.com/2026/11/20/books/review/carlo-collodi-italian-chldrens-books-in-america.html
-
-**Step 1 of Reporting an Obituary: Confirming Someone Is Actually Dead**\
-`Nailing down the most important fact in the story of a prominent person’s death can be surprisingly complicated.`\
-https://www.nytimes.com/2026/11/20/insider/obituaries-facts-confirmation.html
 

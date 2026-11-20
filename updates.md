@@ -1,3 +1,11 @@
+**Anthropic’s Banner Debut Not Enough to Stop Slide in Stock Market**\
+`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
+**Elon Musk Has Regrets**\
+`Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
+https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
+
 **The Most Important Days**\
 `The Times has been publishing for 175 years. We look back at the most significant days in that time.`\
 https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
