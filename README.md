@@ -55,7 +55,7 @@ https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.h
 https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
 
 **On the Carpet of Melania Trump’s Amazon Premiere in New York**\
-`Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
+`Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
 **Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
