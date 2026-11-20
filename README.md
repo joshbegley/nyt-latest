@@ -1,3 +1,51 @@
+**How the U.S. Economy Is Tied to A.I.**\
+`Artificial intelligence has become a huge piece of the U.S. economy. Ben Casselman, the chief economics correspondent for The New York Times, explains why that is and how it might be risky.`\
+https://www.nytimes.com/video/business/100000011293737/how-the-us-economy-is-tied-to-ai.html
+
+**What Trump, Putin and Xi Left on the Table**\
+`A summit among the leaders of the United States, China and Russia produced no treaties on war or nuclear weapons — and the A.I. race wasn’t even on the agenda.`\
+https://www.nytimes.com/2026/11/20/podcasts/the-daily/trump-putin-xi-summit-ai.html
+
+**G.T.A. VI Is a Monumental Human Achievement**\
+`Anthropic goes public, Jensen Huang wants back in at Nvidia, and software patches seem to be breaking everything. But first, let’s talk about G.T.A.`\
+https://www.nytimes.com/2026/11/20/podcasts/hardfork-gta6-nvidia-anthropic.html
+
+**‘It Feels Corrupt Because It Likely Is’**\
+`On “The Ezra Klein Show,” Representative Robert Garcia, the top Democrat on the House Oversight Committee, calls for oversight on Department of Defense deals linked to Donald Trump Jr. and Eric Trump.`\
+https://www.nytimes.com/video/opinion/100000011295023/it-feels-corrupt-because-it-likely-is.html
+
+**House Oversight Democrat on the Epstein Files**\
+`The Department of Justice has yet to release 2.5 million documents related to Jeffrey Epstein. On “The Ezra Klein Show,” Representative Robert Garcia, soon to lead the House Oversight Committee, discusses why, and what’s next.`\
+https://www.nytimes.com/video/opinion/100000011295021/house-oversight-democrat-on-the-epstein-files.html
+
+**Trump Seems Untouchable. But That’s Changing.**\
+`Trump and his close associates believe that they are “untouchable,” and that the public will remain largely apathetic to their business dealings, says Representative Robert Garcia, the top Democrat on the House Oversight Committee. On “The Ezra Klein Show,” Garcia explains why he thinks that’s starting to change.`\
+https://www.nytimes.com/video/opinion/100000011295020/trump-seems-untouchable-but-thats-changing.html
+
+**N.F.L.’s Global Expansion**\
+`Plus, a look at Fernando Mendoza’s N.F.L. debut and Mauricio Pochettino’s U.S.M.N.T. exit.`\
+https://www.nytimes.com/2026/11/20/podcasts/nfls-global-expansion.html
+
+**G.T.A. VI Is a Monumental Human Achievement**\
+`Max, Erin Griffith and Mike Isaac talk with Joseph Bernstein about his early access to the new Grand Theft Auto and why A.I. could make it the last game of its kind. Plus: the fallout from Jensen Huang leaving Nvidia, and Anthropic’s $2 trillion IPO.`\
+https://www.nytimes.com/video/podcasts/100000011291225/gta-vi-is-a-monumental-human-achievement.html
+
+**Fear and Humiliation at Nvidia, and Why Google Bought Spirit Airlines Data**\
+`Plus, the Friday news quiz.`\
+https://www.nytimes.com/2026/11/20/podcasts/the-headlines/fear-humiliation-nvidia-google-spirit-airlines-data-quiz.html
+
+**Today’s Wordle Hints for November 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
+https://www.nytimes.com/2026/11/20/crosswords/wordle-review-1981.html
+
+**NYT Strands Hints for November 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
+https://www.nytimes.com/2026/11/20/crosswords/strands-sidekick-993.html
+
+**NYT Connections Answers for November 21, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
+https://www.nytimes.com/2026/11/20/crosswords/connections-companion-1259.html
+
 **We Visited the HQ of a Celebrity Christian ‘Scam’**\
 `Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
 https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
@@ -149,52 +197,4 @@ https://www.nytimes.com/2026/11/20/science/mercury-bepi-colombo-orbit.html
 **Grand Theft Auto VI: 30 Years in the Making**\
 `Our reporter Zachary Small explores some of the most ambitious features of Grand Theft Auto VI.`\
 https://www.nytimes.com/video/arts/100000011247287/grand-theft-auto-vi-30-years-in-the-making.html
-
-**Gen Z-ers Are Rising Up. This Mayor Is Joining Them.**\
-`Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
-https://www.nytimes.com/2026/11/20/opinion/france-gen-z-protests-bally-bagayoko.html
-
-**The Internet Broke Our Taste. Will A.I. Destroy It for Good?**\
-`In a world of slop capitalism, vibe-crafted culture and taste paranoia, why we like what we like feels harder than ever to know.`\
-https://www.nytimes.com/2026/11/20/magazine/ai-slop-taste-aesthetic-silicon-valley.html
-
-**Judith LeClair, the New York Philharmonic’s Bassoonist, Gets a Starring Moment**\
-`Kevin Puts has written a concerto for Judith LeClair, the New York Philharmonic’s star bassoonist, whom he calls “a legend in the woodwind world.”`\
-https://www.nytimes.com/2026/11/20/arts/music/judith-leclair-bassoon-ny-phil-kevin-puts.html
-
-**From Gig Workers to Tycoons, China Is Reaching Into Every Pocket**\
-`China’s economy is sluggish, and its population is aging. Its people are feeling the sting of new taxes.`\
-https://www.nytimes.com/2026/11/20/business/from-gig-workers-to-tycoons-china-is-reaching-into-every-pocket.html
-
-**Word of the Day: posthumous**\
-`This word has appeared in 86 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/20/learning/word-of-the-day-posthumous.html
-
-**The War Is Ravaging Ukraine’s Wildlife, Too**\
-`The war in Ukraine has had untold consequences for dolphins, moose, storks and a huge range of other wildlife whose habitats are now rife with anti-drone netting, minefields or in the direct line of fire.`\
-https://www.nytimes.com/2026/11/20/world/europe/ukraine-wildlife-war.html
-
-**Don’t Wear Camo in Jamaica, and Other Surprising Travel Rules**\
-`Some destinations have laws governing what you can bring in, take out and put on. Here are a few not-widely-known rules that could catch you off guard.`\
-https://www.nytimes.com/2026/11/20/travel/travel-rules-international-tourism-monuments-fines.html
-
-**He Finds Laughs in ‘The Crucible’**\
-`Joe Hegyes lit up social media with his devilish satires of Arthur Miller’s masterwork. That led to his most ambitious creation yet, a teen comedy with a gay Gen Z sensibility.`\
-https://www.nytimes.com/2026/11/20/style/the-crucible-satire-tiktok-joe-hegyes.html
-
-**Four Terrific New Mystery Books**\
-`Our columnist on 4 books worth your time.`\
-https://www.nytimes.com/2026/11/20/books/review/new-mystery-books.html
-
-**What Words, Phrases or Sayings Does Only Your Family Use?**\
-`For some, “gummy” means grandma, whipped cream is “shush” and “manicotti” and “lasagna” are codes for “I love you.” Share some examples of your own family’s language quirks.`\
-https://www.nytimes.com/2026/11/20/learning/what-words-phrases-or-sayings-does-only-your-family-use.html
-
-**This Poem Is a Three-Minute Vacation**\
-`William Butler Yeats’s poem “The Lake Isle of Innisfree” imagines a retreat from the noise of modern life — but its speaker remains on a gray pavement. A.O. Scott, our critic at large, describes how the poem’s third stanza changes everything.`\
-https://www.nytimes.com/video/books/review/100000011132055/this-poem-is-a-three-minute-vacation.html
-
-**The New York Times News Quiz, November 20, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/11/20/briefing/weekly-news-quiz.html
 
