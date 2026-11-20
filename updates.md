@@ -1,3 +1,11 @@
+**2 Earthquakes Strike Los Angeles Area and Central California**\
+`A 5.0-magnitude quake struck around Pinnacles, Calif., southeast of San Francisco. A few hours later, a 4.2-magnitude quake hit just outside of Los Angeles.`\
+https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacles.html
+
+**A Dairy Farmer Ran for Office to Prove a Point. He Accidentally Won.**\
+`An Arkansas Democrat’s victory in a race for county assessor was one of many unlikely down-ballot wins that showed the depth of the blue wave.`\
+https://www.nytimes.com/2026/11/20/us/democrats-unexpected-winning-candidates-midterms.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled, part of a tech sell-off.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
