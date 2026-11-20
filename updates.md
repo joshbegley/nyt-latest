@@ -1,3 +1,15 @@
+**Wreck of Australian Warship Found 128 Years After Sinking**\
+`The wreck of Australia’s first locally built warship was discovered in August near the Great Barrier Reef 128 years after it sank.`\
+https://www.nytimes.com/video/world/australia/100000011297846/australia-warship-found.html
+
+**Familiar Dangers Drive a Rise in Fire Deaths in New York City Buildings**\
+`Fatalities have nearly doubled this year. While a series of factors has driven the increase, the deadliest blazes have occurred in homes built more than 100 years ago.`\
+https://www.nytimes.com/2026/11/20/nyregion/nyc-fire-deaths-city-council-hearing.html
+
+**NYT Spelling Bee Answers for November 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/20/crosswords/spelling-bee-forum.html
+
 **Jennifer Lopez: ‘My Legacy Is What It Is. I Don’t Care!’**\
 `Watch the full ‘Popcast’ conversation with Jennifer Lopez here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011288355/jennifer-lopez-my-legacy-is-what-it-is-i-dont-care.html
