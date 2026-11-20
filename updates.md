@@ -1,3 +1,23 @@
+**The Overhead Lighting Debate**\
+`What’s your preference?`\
+https://www.nytimes.com/2026/11/20/briefing/the-overhead-lighting-debate.html
+
+**You Deserve This 20-Minute Beef Stir-Fry**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/20/dining/you-deserve-this-20-minute-beef-stir-fry.html
+
+**A Supermodel Will Finally Get Her Day in Court**\
+`Carré Otis spent years trying to serve her former agent in a lawsuit accusing him of sexual abuse. It took an international operation to make it happen.`\
+https://www.nytimes.com/2026/11/20/style/carre-otis-gerald-marie-lawsuit-sexual-abuse.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include an alien pregnancy, a surreal suburban disaster, a time-loop wedding night murder and more.`\
+https://www.nytimes.com/2026/11/20/movies/science-fiction-movies-streaming-end-of-oak-street.html
+
+**Is Your Employer Telling You to Use A.I.? We Want to Hear From You.**\
+`Please tell us what kind of instructions your employer is providing about A.I. We may include your experiences in an article.`\
+https://www.nytimes.com/2026/11/20/business/is-your-employer-telling-you-to-use-ai-we-want-to-hear-from-you.html
+
 **As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
 `The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
 https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html

@@ -1,3 +1,23 @@
+**The Overhead Lighting Debate**\
+`What’s your preference?`\
+https://www.nytimes.com/2026/11/20/briefing/the-overhead-lighting-debate.html
+
+**You Deserve This 20-Minute Beef Stir-Fry**\
+`And more popular recipes from the week.`\
+https://www.nytimes.com/2026/11/20/dining/you-deserve-this-20-minute-beef-stir-fry.html
+
+**A Supermodel Will Finally Get Her Day in Court**\
+`Carré Otis spent years trying to serve her former agent in a lawsuit accusing him of sexual abuse. It took an international operation to make it happen.`\
+https://www.nytimes.com/2026/11/20/style/carre-otis-gerald-marie-lawsuit-sexual-abuse.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include an alien pregnancy, a surreal suburban disaster, a time-loop wedding night murder and more.`\
+https://www.nytimes.com/2026/11/20/movies/science-fiction-movies-streaming-end-of-oak-street.html
+
+**Is Your Employer Telling You to Use A.I.? We Want to Hear From You.**\
+`Please tell us what kind of instructions your employer is providing about A.I. We may include your experiences in an article.`\
+https://www.nytimes.com/2026/11/20/business/is-your-employer-telling-you-to-use-ai-we-want-to-hear-from-you.html
+
 **As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
 `The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
 https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/20/movies/new-movies-this-week-critics.html
 **Quantum Computing Is Even Weirder Than You Think**\
 `In a new study, Google researchers demonstrated a strange phenomenon called quantum contextuality, in which a quantum machine’s data can change as the context does.`\
 https://www.nytimes.com/2026/11/20/science/quantum-contextuality.html
-
-**Five Free Films to Stream Now**\
-`As we approach the holiday season, this month’s lineup looks back at childhood, including Ingmar Bergman’s “Fanny and Alexander” and Annie Baker’s “Janet Planet.”`\
-https://www.nytimes.com/2026/11/20/arts/free-movies-streaming.html
-
-**A Dairy Farmer Ran for Office to Prove a Point. He Accidentally Won.**\
-`An Arkansas Democrat’s victory in a race for county assessor was one of many unlikely down-ballot wins that showed the depth of the blue wave.`\
-https://www.nytimes.com/2026/11/20/us/democrats-unexpected-winning-candidates-midterms.html
-
-**New Ph.D. Enrollment in the Sciences Dropped 10 Percent Under Trump**\
-`Falling international enrollment drove most of the decline, but there were also fewer American students starting doctoral programs in 2025.`\
-https://www.nytimes.com/2026/11/20/us/phd-enrollment-sciences-declines.html
-
-**Stocks Often Prosper After an Abrupt C.E.O. Exit. Is Nvidia Different?**\
-`The stock value of a top executive is often less important than it initially seems. But Nvidia’s entanglement in U.S.-Chinese relations poses special problems.`\
-https://www.nytimes.com/2026/11/20/business/nvidia-ceo-stock-succession-jensen-huang.html
-
-**Rikers Will Stay Open Until 2032 as Mamdani Commits to New Closure Plan**\
-`The mayor acknowledged that New York City would miss a legal deadline to close Rikers Island by next year, but offered a new vision to see through its closure.`\
-https://www.nytimes.com/2026/11/20/nyregion/rikers-island-mamdani-close-2032.html
 
