@@ -1,3 +1,11 @@
+**The Democrats’ Plan for Investigating Trump**\
+`The incoming House Oversight Committee chairman, Robert Garcia, lays out his committee’s top targets.`\
+https://www.nytimes.com/video/opinion/100000011295018/the-democrats-plan-for-investigating-trump.html
+
+**Gen Z-ers Are Rising Up. This Mayor Is Joining Them.**\
+`Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
+https://www.nytimes.com/video/opinion/100000011242505/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
+
 **4 British Men Convicted of Sexually Assaulting Woman Drugged by Husband**\
 `It is the first time in Britain that a jury has convicted several defendants relating to drug-facilitated sexual assault.`\
 https://www.nytimes.com/video/world/europe/100000011297609/4-british-men-convicted-of-sexually-assaulting-woman-drugged-by-husband.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/weather/100000011295937/storm-rain-california.html
 **Set Your Holiday Table Like a Milanese Design Gallerist**\
 `Nina Yashar shows us how, especially at this time of year, her eclectic tastes play out in her own dining room.`\
 https://www.nytimes.com/2026/11/19/t-magazine/holiday-tablescaping-design-nina-yashar.html
-
-**The Golden Age of Fashion?**\
-`Gold was everywhere on the runways earlier this fall. T Magazine’s Nick Haramis considers the material’s history and symbolism in the latest episode of “Anatomy of a Trend.”`\
-https://www.nytimes.com/video/t-magazine/100000011297174/the-golden-age-of-fashion.html
-
-**Anthropic’s I.P.O. Turns Tech Researchers Into Overnight Millionaires**\
-`Many people who joined the A.I. company a few years ago might have had little reason to think how big Anthropic would become. They are now worth tens of millions of dollars, if not more.`\
-https://www.nytimes.com/2026/11/19/technology/anthropic-ipo-employees-payout.html
 

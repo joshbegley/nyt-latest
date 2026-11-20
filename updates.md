@@ -1,3 +1,11 @@
+**The Democrats’ Plan for Investigating Trump**\
+`The incoming House Oversight Committee chairman, Robert Garcia, lays out his committee’s top targets.`\
+https://www.nytimes.com/video/opinion/100000011295018/the-democrats-plan-for-investigating-trump.html
+
+**Gen Z-ers Are Rising Up. This Mayor Is Joining Them.**\
+`Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
+https://www.nytimes.com/video/opinion/100000011242505/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
+
 **4 British Men Convicted of Sexually Assaulting Woman Drugged by Husband**\
 `It is the first time in Britain that a jury has convicted several defendants relating to drug-facilitated sexual assault.`\
 https://www.nytimes.com/video/world/europe/100000011297609/4-british-men-convicted-of-sexually-assaulting-woman-drugged-by-husband.html
