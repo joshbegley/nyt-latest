@@ -1,3 +1,7 @@
+**Of Thee I Sing**\
+`Marian Anderson was seen as a symbol, but not as herself.`\
+https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
+
 **Technology Promised Ease. Outages Are Making Many Americans Uneasy.**\
 `The recent spate of tech disruptions has forced Americans to reckon with how dependent they have become on worldwide computer networks.`\
 https://www.nytimes.com/2026/11/19/us/tech-outages-computer-networks.html
