@@ -1,3 +1,7 @@
+**How to Create an Easy, Elegant Chignon**\
+`Three experts share their tips for creating an easy, elegant chignon.`\
+https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
+
 **“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
 `A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
 https://www.nytimes.com/2026/11/20/theater/eurotrash-old-vic-london-review.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/nyregion/acorns-mice-lyme-disease.html
 **Is an ‘A.I. Agent’ Coming for Our Sourdough Starter?**\
 `A lab-grown shortcut named Leaven is wooing many high-end bakers and pizza makers who’ve prided themselves on their painstaking use of live cultures.`\
 https://www.nytimes.com/2026/11/20/dining/leaven-lab-grown-sourdough-starter.html
-
-**Turkey’s Van Cats Contend With Rising Temperatures**\
-`A feline research center uses air-conditioning and pools to keep residents comfortable as their numbers recover. And yes, they like to swim.`\
-https://www.nytimes.com/2026/11/20/climate/van-cats-turkey.html
 
