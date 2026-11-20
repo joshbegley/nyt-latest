@@ -1,3 +1,7 @@
+**4 British Men Convicted of Sexually Assaulting Joanne Young**\
+`A jury rejected the men’s defense that they had been relying on assurances from Joanne Young’s husband — who himself has pleaded guilty to rape — that she had consented.`\
+https://www.nytimes.com/2026/11/19/world/europe/uk-joanne-young-abuse-conviction.html
+
 **At Anthropic, Complicated Feelings After the I.P.O.**\
 `Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011297377/at-anthropic-complicated-feelings-after-the-ipo.html
