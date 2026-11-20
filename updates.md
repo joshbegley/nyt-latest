@@ -1,3 +1,7 @@
+**Live Updates: Trump to Speak on China Summit and Trade**\
+`President Trump is set to hold a news conference on Friday, his first since he met with the leaders of Russia and China during a trip to Asia.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Flashback: Your Weekly History Quiz, Nov. 21, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
