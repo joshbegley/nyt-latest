@@ -42,7 +42,7 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
-**Live Updates: Trump Speaks on Asia Trip, Trade Deals and Data Centers**\
+**Live Updates: Trump Promotes Data Centers and Praises His Asia Trip**\
 `President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
