@@ -1,3 +1,11 @@
+**Playbill Removes Casting Call for George Floyd Musical Album**\
+`The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
+https://www.nytimes.com/2026/11/20/arts/george-floyd-musical-playbill-busted-broadway.html
+
+**Mamdani Will Run New York With a Limp After Tearing Achilles Playing Soccer**\
+`The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
+https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
+
 **Can Robert Pattinson Play Both James Bond and Batman?**\
 `The demands of playing 007 have limited some of the actors cast as Ian Fleming’s dashing British spy over the decades.`\
 https://www.nytimes.com/2026/11/20/movies/robert-pattinson-james-bond-career.html
@@ -14,7 +22,7 @@ https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.ht
 `Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
 
-**Democrats Strengthen the Legal Line with Attorneys General Triumphs**\
+**Democrats Strengthen the Legal Line With Attorneys General Triumphs**\
 `Once considered vulnerable to local issues, Democratic candidates for attorneys general romped on Tuesday, with the final contests called against Republican attorneys general in Kansas and Ohio.`\
 https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
 
@@ -123,7 +131,7 @@ https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoi
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
 **Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
-`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection process took more than an hour.`\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection routine took more than an hour.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
 
 **Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/nfls-global-expansion.html
 **G.T.A. VI Is a Monumental Human Achievement**\
 `Max, Erin Griffith and Mike Isaac talk with Joseph Bernstein about his early access to the new Grand Theft Auto and why A.I. could make it the last game of its kind. Plus: the fallout from Jensen Huang leaving Nvidia, and Anthropic’s $2 trillion IPO.`\
 https://www.nytimes.com/video/podcasts/100000011291225/gta-vi-is-a-monumental-human-achievement.html
-
-**Fear and Humiliation at Nvidia, and Why Google Bought Spirit Airlines Data**\
-`Plus, the Friday news quiz.`\
-https://www.nytimes.com/2026/11/20/podcasts/the-headlines/fear-humiliation-nvidia-google-spirit-airlines-data-quiz.html
-
-**Today’s Wordle Hints for November 21, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 21, 2026.`\
-https://www.nytimes.com/2026/11/20/crosswords/wordle-review-1981.html
 
