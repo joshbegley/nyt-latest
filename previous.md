@@ -1,3 +1,7 @@
+**Inside the Fight Between Native American Tribes and Kalshi**\
+`For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
+https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
+
 **Live Updates: Trump to Speak on China Trip and Trade**\
 `President Trump is set to hold a news conference on Friday, his first since he met with the leaders of Russia and China during a visit to Asia.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
@@ -55,7 +59,7 @@ https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.h
 https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoin.html
 
 **On the Carpet of Melania Trump’s Amazon Premiere in New York**\
-`Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
+`Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
 **Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/israel-politics-arab-racism.html
 **The Genius of Jan van Eyck in Three Works**\
 `A rare exhibition at the National Gallery in London gathers all of the 15th-century artist’s surviving portraits. Here’s a close look at what makes van Eyck’s paintings unique.`\
 https://www.nytimes.com/interactive/2026/11/20/arts/jan-van-eyck-portraits-exhibition.html
-
-**John Grisham: Scott Colom Makes Me Proud of Mississippi**\
-`As a kid, I once watched the Ku Klux Klan burn a cross in my hometown in Mississippi. Sixty years later, I look forward to shaking Mr. Colom’s hand and telling him I’m proud he’s my senator.`\
-https://www.nytimes.com/2026/11/20/opinion/colom-mississippi-grisham.html
 

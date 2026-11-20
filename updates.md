@@ -1,3 +1,11 @@
+**Inside the Fight Between Native American Tribes and Kalshi**\
+`For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
+https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
+
+**On the Carpet of Melania Trump’s Amazon Premiere in New York**\
+`Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
+https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
+
 **Live Updates: Trump to Speak on China Trip and Trade**\
 `President Trump is set to hold a news conference on Friday, his first since he met with the leaders of Russia and China during a visit to Asia.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
