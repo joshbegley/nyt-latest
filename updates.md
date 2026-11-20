@@ -1,3 +1,11 @@
+**Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
+`The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
+https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
+
+**L.A. Aims to Fence Off Park That’s Become Symbol of City’s Struggles**\
+`MacArthur Park near downtown Los Angeles has long been a disquieting example of the city’s inability to address drug sales, homelessness and people dealing with mental health issues.`\
+https://www.nytimes.com/2026/11/20/us/los-angeles-macarthur-park-fence.html
+
 **Nissan Shuts Down System Used for Repairs After Hack Attempt**\
 `The outage, which began a week ago, could delay repairs involving vehicle electronics and key fobs.`\
 https://www.nytimes.com/2026/11/20/business/nissan-reapirs-hack-technology.html

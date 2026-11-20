@@ -1,3 +1,7 @@
+**Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
+`The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
+https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
+
 **Nissan Shuts Down System Used for Repairs After Hack Attempt**\
 `The outage, which began a week ago, could delay repairs involving vehicle electronics and key fobs.`\
 https://www.nytimes.com/2026/11/20/business/nissan-reapirs-hack-technology.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.h
 `A fashion gimmick that works. Kinda.`\
 https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html
 
-**L.A. Wants to Clean Up MacArthur Park. Will Fencing It Off Work?**\
-`The park near downtown Los Angeles has long been a disquieting example of the city’s struggles to address drug sales, homelessness and people struggling with mental health issues.`\
+**L.A. Aims to Fence Off Park That’s Become Symbol of City’s Struggles**\
+`MacArthur Park near downtown Los Angeles has long been a disquieting example of the city’s inability to address drug sales, homelessness and people dealing with mental health issues.`\
 https://www.nytimes.com/2026/11/20/us/los-angeles-macarthur-park-fence.html
 
 **Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/hardfork-gta6-nvidia-anthropic.html
 **‘It Feels Corrupt Because It Likely Is’**\
 `On “The Ezra Klein Show,” Representative Robert Garcia, the top Democrat on the House Oversight Committee, calls for oversight on Department of Defense deals linked to Donald Trump Jr. and Eric Trump.`\
 https://www.nytimes.com/video/opinion/100000011295023/it-feels-corrupt-because-it-likely-is.html
-
-**House Oversight Democrat on the Epstein Files**\
-`The Department of Justice has yet to release 2.5 million documents related to Jeffrey Epstein. On “The Ezra Klein Show,” Representative Robert Garcia, soon to lead the House Oversight Committee, discusses why, and what’s next.`\
-https://www.nytimes.com/video/opinion/100000011295021/house-oversight-democrat-on-the-epstein-files.html
 
