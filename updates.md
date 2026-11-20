@@ -1,3 +1,7 @@
+**Live Updates: Trump Speaks on Asia Trip and Trade Deals**\
+`President Trump is holding a news conference at the White House, his first session with reporters since he met with the leaders of Russia and China.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection process took more than an hour.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
