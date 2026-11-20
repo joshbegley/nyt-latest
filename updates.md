@@ -1,3 +1,7 @@
+**Handwritten Lyrics to Early Dylan Songs to Be Sold by Sotheby’s**\
+`The auction house estimates the manuscripts for “Masters of War” and “Subterranean Homesick Blues” could together draw bids totaling as much as $1 million.`\
+https://www.nytimes.com/2026/11/20/arts/music/bob-dylan-handwritten-lyrics-sothebys-auction.html
+
 **‘The Headlines’ News Quiz: Nov. 20, 2026**\
 `Following the news? Tracy Mumford has some questions for you.`\
 https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-quiz-nov-20-2026.html

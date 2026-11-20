@@ -88,7 +88,7 @@ https://www.nytimes.com/2026/11/20/technology/jensen-huang-nvidia-culture.html
 
 **Handwritten Lyrics to Early Dylan Songs to Be Sold by Sotheby’s**\
 `The auction house estimates the manuscripts for “Masters of War” and “Subterranean Homesick Blues” could together draw bids totaling as much as $1 million.`\
-https://www.nytimes.com/2026/11/20/arts/music/handwritten-lyrics-to-early-dylan-songs-to-be-sold-by-sothebys.html
+https://www.nytimes.com/2026/11/20/arts/music/bob-dylan-handwritten-lyrics-sothebys-auction.html
 
 **Victims of Clerical Sexual Abuse Want More Engagement From Pope Leo**\
 `As he toured South America this month, Pope Leo XIV met with 11 victims of clerical sexual abuse. Some want him to engage more meaningfully.`\
