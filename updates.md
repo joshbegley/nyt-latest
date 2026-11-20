@@ -1,3 +1,7 @@
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled, part of a tech sell-off.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Let’s Talk About This Year’s Book Awards**\
 `MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
 https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
