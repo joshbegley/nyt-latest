@@ -1,3 +1,7 @@
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Anthropic’s Banner Debut Not Enough to Stop Slide in Stock Market**\
 `The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
