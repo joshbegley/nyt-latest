@@ -1,3 +1,7 @@
+**The War in Ukraine Is Killing Wildlife**\
+`The war in Ukraine, now in its fifth year, is taking a heavy toll on the country’s wildlife. If not outright killed in the fighting, wild animals are often caught in anti-drone netting or razor wire, and their natural habitats have been drastically transformed.`\
+https://www.nytimes.com/video/world/europe/100000011297989/ukraine-war-killing-wildlife.html
+
 **Jonathan Yardley, Who Reviewed 3,000 Books and Pulled Zero Punches, Has Died**\
 `As a Pulitzer Prize-winning critic for The Washington Post, he believed praise could be boring. He was 87.`\
 https://www.nytimes.com/2026/11/20/books/jonathan-yardley-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/colom-mississippi-grisham.html
 **The U.A.E. Quietly Built Two Bases in Somalia. Now the U.S. Is Eyeing Them**\
 `Satellite images reveal the Emiratis transformed civilian airports in breakaway regions of Somalia into large military facilities. Flight tracking data shows the U.S. has made visits.`\
 https://www.nytimes.com/video/world/africa/100000011290919/the-uae-quietly-built-two-bases-in-somalia-now-the-us-is-eyeing-them.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://www.nytimes.com/2026/11/20/movies/new-movies-this-week-critics.html
 
