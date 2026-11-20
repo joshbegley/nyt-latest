@@ -1,3 +1,7 @@
+**We Visited the HQ of a Celebrity Christian ‘Scam’**\
+`Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
+https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
+
 **Elon Musk’s $500 Million Mistake**\
 `Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
 https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/books/review/100000011132055/this-poem-is-a-three-
 **The New York Times News Quiz, November 20, 2026**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://www.nytimes.com/quiz/2026/11/20/briefing/weekly-news-quiz.html
-
-**Can You Dog-Ear Your Spouse’s Books?**\
-`And can you crack the spines?`\
-https://www.nytimes.com/quiz/2026/11/20/magazine/dog-ear-books-hodgman-quiz.html
 

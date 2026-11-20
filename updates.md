@@ -1,3 +1,7 @@
+**We Visited the HQ of a Celebrity Christian ‘Scam’**\
+`Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
+https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
+
 **Elon Musk’s $500 Million Mistake**\
 `Musk can’t escape politics, and not just because his about-face is so transparently self-serving.`\
 https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
