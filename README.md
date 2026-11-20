@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 21, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
+
 **Inside the Fight Between Native American Tribes and Kalshi**\
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/world/europe/pope-leo-catholic-sexual-abuse.h
 **The Obscenely Simple Question at the Heart of Israeli Politics**\
 `It all comes down to this.`\
 https://www.nytimes.com/2026/11/20/opinion/israel-politics-arab-racism.html
-
-**The Genius of Jan van Eyck in Three Works**\
-`A rare exhibition at the National Gallery in London gathers all of the 15th-century artist’s surviving portraits. Here’s a close look at what makes van Eyck’s paintings unique.`\
-https://www.nytimes.com/interactive/2026/11/20/arts/jan-van-eyck-portraits-exhibition.html
 
