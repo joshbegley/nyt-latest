@@ -1,3 +1,7 @@
+**Let’s Talk About This Year’s Book Awards**\
+`MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
+https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
+
 **Can Anthropic Revive the A.I. Trade?**\
 `Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
 https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
