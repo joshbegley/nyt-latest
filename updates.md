@@ -1,3 +1,7 @@
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 is close to ending the day in a correction, a drop of 10 percent from its recent high and a symbolic measure of investors’ souring mood.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
 `Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
 https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
