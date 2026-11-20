@@ -1,3 +1,7 @@
+**Devilish or Delightful? Krampus Is Banned From a Christmas Parade.**\
+`After an appearance last year, a float depicting Krampus, St. Nicholas’s evil accomplice, will not be allowed in an Ontario town’s Santa Claus parade on Saturday.`\
+https://www.nytimes.com/2026/11/20/world/canada/krampus-christmas-parade-ban-ontario.html
+
 **As a Storm Floods Florida, Heavy Rain Will Creep Up the East Coast**\
 `A potential tropical storm off the coast of Florida is expected to move up the coast and could snarl Thanksgiving week travel.`\
 https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-thanksgiving.html
@@ -74,8 +78,8 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
-**Live Updates: Trump Promotes Data Centers and Praises His Asia Trip**\
-`President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
+**Live Updates: Free-Wheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
+`In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
 **The War in Ukraine Is Killing Wildlife**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/opinion/100000011295021/house-oversight-democrat-o
 **Trump Seems Untouchable. But That’s Changing.**\
 `Trump and his close associates believe that they are “untouchable,” and that the public will remain largely apathetic to their business dealings, says Representative Robert Garcia, the top Democrat on the House Oversight Committee. On “The Ezra Klein Show,” Garcia explains why he thinks that’s starting to change.`\
 https://www.nytimes.com/video/opinion/100000011295020/trump-seems-untouchable-but-thats-changing.html
-
-**N.F.L.’s Global Expansion**\
-`Plus, a look at Fernando Mendoza’s N.F.L. debut and Mauricio Pochettino’s U.S.M.N.T. exit.`\
-https://www.nytimes.com/2026/11/20/podcasts/nfls-global-expansion.html
 

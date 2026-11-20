@@ -1,3 +1,11 @@
+**Devilish or Delightful? Krampus Is Banned From a Christmas Parade.**\
+`After an appearance last year, a float depicting Krampus, St. Nicholas’s evil accomplice, will not be allowed in an Ontario town’s Santa Claus parade on Saturday.`\
+https://www.nytimes.com/2026/11/20/world/canada/krampus-christmas-parade-ban-ontario.html
+
+**Live Updates: Free-Wheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
+`In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **As a Storm Floods Florida, Heavy Rain Will Creep Up the East Coast**\
 `A potential tropical storm off the coast of Florida is expected to move up the coast and could snarl Thanksgiving week travel.`\
 https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-thanksgiving.html
