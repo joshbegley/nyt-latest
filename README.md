@@ -1,3 +1,15 @@
+**Powerful Health Panel Has Tumultuous First Meeting With RFK Jr’s Appointees**\
+`Since March 2025, the work of the U.S. Preventive Services Task Force has been at a standstill.`\
+https://www.nytimes.com/2026/11/20/well/rfk-jr-uspstf-panel-meeting.html
+
+**The System Is ‘Stacked’ Against the Young**\
+`“The entire system is stacked against people who are my age,” says the “Breaking Points” co-host Saagar Enjeti. He argues that unchecked corporate power has left young Americans behind, and it’s time for Republicans to strike back at the private sector.`\
+https://www.nytimes.com/video/opinion/100000011291598/the-system-is-stacked-against-the-young.html
+
+**This Is JD Vance’s Biggest Problem**\
+`Can JD Vance win in 2028 without criticizing Trump? Saagar Enjeti is doubtful. He says Vance needs to learn from Kamala Harris’s biggest mistake on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011291593/this-is-jd-vances-biggest-problem.html
+
 **Sam Altman on Jensen Huang’s Possible Return to Nvidia**\
 `At The New York Times DealBook Summit on Nov. 18, Sam Altman spoke about Jensen Huang’s possible return as C.E.O. of Nvidia. The tech reporters Erin Griffith and Mike Isaac joined the guest host Max Read on the “Hard Fork” podcast to talk about it.`\
 https://www.nytimes.com/video/technology/100000011299401/sam-altman-jensen-huang-nvidia.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/20/business/is-your-employer-telling-you-to-use-
 **As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
 `The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
 https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html
-
-**Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
-`For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
-https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
-
-**How to Create an Easy, Elegant Chignon**\
-`Three experts share their tips for creating an easy, elegant chignon.`\
-https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
-
-**“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
-`A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
-https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.html
 
