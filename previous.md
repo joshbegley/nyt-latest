@@ -1,3 +1,7 @@
+**“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
+`A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
+https://www.nytimes.com/2026/11/20/theater/eurotrash-old-vic-london-review.html
+
 **‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
 `There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
 https://www.nytimes.com/2026/11/20/world/europe/poland-russia-airspace-missile.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/dining/leaven-lab-grown-sourdough-starter.htm
 **Turkey’s Van Cats Contend With Rising Temperatures**\
 `A feline research center uses air-conditioning and pools to keep residents comfortable as their numbers recover. And yes, they like to swim.`\
 https://www.nytimes.com/2026/11/20/climate/van-cats-turkey.html
-
-**Jennifer Lopez Feels Like She’s Getting Better at Everything**\
-`After a vulnerable and tumultuous run, the performer is back with a new TV spectacular and hard-earned boundaries.`\
-https://www.nytimes.com/2026/11/20/arts/music/popcast-interview-jennifer-lopez.html
 
