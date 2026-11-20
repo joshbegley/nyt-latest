@@ -1,3 +1,11 @@
+**The Evening: Are Nvidia Chips Helping Power the Chinese Military?**\
+`Plus, Trump is bullish on data centers. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/11/20/briefing/nvidia-anthropic-ice.html
+
+**Mamdani Will Run New York With a Limp After Tearing Achilles’ Tendon Playing Soccer**\
+`The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
+https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
+
 **Anthropic Mathematician Claims to Solve Riemann Hypothesis With Help From Claude**\
 `If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
 https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
