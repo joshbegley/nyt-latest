@@ -11,11 +11,11 @@ https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-depart
 https://www.nytimes.com/2026/11/19/world/europe/uk-joanne-young-abuse-conviction.html
 
 **At Anthropic, Complicated Feelings After the I.P.O.**\
-`Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
+`Natalie Kitroeff calls Jasmine Sun, a New York Times opinion writer, in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than with potential gains to their personal wealth.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011297377/at-anthropic-complicated-feelings-after-the-ipo.html
 
 **How Anthropic Employees Really Feel About The I.P.O.**\
-`Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
+`Natalie Kitroeff calls Jasmine Sun, a New York Times opinion writer, in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than with potential gains to their personal wealth.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011297245/how-anthropic-employees-really-feel-about-the-ipo.html
 
 **$160 Million in Church Property Is Mortgaged to Fund Abuse Settlement**\

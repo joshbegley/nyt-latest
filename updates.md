@@ -1,3 +1,11 @@
+**At Anthropic, Complicated Feelings After the I.P.O.**\
+`Natalie Kitroeff calls Jasmine Sun, a New York Times opinion writer, in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than with potential gains to their personal wealth.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011297377/at-anthropic-complicated-feelings-after-the-ipo.html
+
+**How Anthropic Employees Really Feel About The I.P.O.**\
+`Natalie Kitroeff calls Jasmine Sun, a New York Times opinion writer, in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than with potential gains to their personal wealth.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011297245/how-anthropic-employees-really-feel-about-the-ipo.html
+
 **Tinto Brass Has Died. He Directed the Erotic Epic ‘Caligula.’**\
 `“The moments of lust and desire” in his movies, he said, grew “out of the stories themselves,” transcending pornography. He was 93.`\
 https://www.nytimes.com/2026/11/19/movies/tinto-brass-dead.html

@@ -1,3 +1,7 @@
+**Technology Promised Ease. Outages Are Making Many Americans Uneasy.**\
+`The recent spate of tech disruptions has forced Americans to reckon with how dependent they have become on worldwide computer networks.`\
+https://www.nytimes.com/2026/11/19/us/tech-outages-computer-networks.html
+
 **Tinto Brass Has Died. He Directed the Erotic Epic ‘Caligula.’**\
 `“The moments of lust and desire” in his movies, he said, grew “out of the stories themselves,” transcending pornography. He was 93.`\
 https://www.nytimes.com/2026/11/19/movies/tinto-brass-dead.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/video/podcasts/100000011293273/the-casual-virtuosity-of-
 **Whatever You Thought Texas Was, It’s Bigger and Bluer Than That**\
 `After Democrats broke a decades-long Republican winning streak this month, Texans are reflecting on who gets to define the place they call home.`\
 https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
-
-**Senate Republicans Block Bid to Rein in Trump on Iran War**\
-`In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
-https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
