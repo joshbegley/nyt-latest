@@ -1,3 +1,7 @@
+**Tinto Brass Has Died. He Directed the Erotic Epic ‘Caligula.’**\
+`“The moments of lust and desire” in his movies, he said, grew “out of the stories themselves,” transcending pornography. He was 93.`\
+https://www.nytimes.com/2026/11/19/movies/tinto-brass-dead.html
+
 **Top White House Cybersecurity Official Steps Down**\
 `The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
 https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/19/us/texas-culture-identity.html
 **Senate Republicans Block Bid to Rein in Trump on Iran War**\
 `In the first vote on the conflict since the midterm elections, most in the G.O.P. banded together against placing any limits on a conflict that voters repudiated at the polls.`\
 https://www.nytimes.com/2026/11/19/us/politics/senate-iran-war-powers-trump.html
-
-**Workers at Holiday Inn Were Threatened With Deportation, Lawsuit Says**\
-`The New York attorney general said that immigrant workers renovating a Rochester hotel had lived in unfit conditions and been underpaid.`\
-https://www.nytimes.com/2026/11/19/nyregion/immigrants-hotel-rochester-lawsuit.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\

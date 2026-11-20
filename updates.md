@@ -1,3 +1,7 @@
+**Top White House Cybersecurity Official Steps Down**\
+`The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
+https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
+
 **4 British Men Convicted of Sexually Assaulting Joanne Young**\
 `A jury rejected the men’s defense that they had been relying on assurances from Joanne Young’s husband — who himself has pleaded guilty to rape — that she had consented.`\
 https://www.nytimes.com/2026/11/19/world/europe/uk-joanne-young-abuse-conviction.html
