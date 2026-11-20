@@ -1,3 +1,19 @@
+**Playbill Removes Casting Call for George Floyd Musical Album**\
+`The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
+https://www.nytimes.com/2026/11/20/arts/george-floyd-musical-playbill-busted-broadway.html
+
+**Mamdani Will Run New York With a Limp After Tearing Achilles Playing Soccer**\
+`The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
+https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
+
+**Democrats Strengthen the Legal Line With Attorneys General Triumphs**\
+`Once considered vulnerable to local issues, Democratic candidates for attorneys general romped on Tuesday, with the final contests called against Republican attorneys general in Kansas and Ohio.`\
+https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
+
+**Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection routine took more than an hour.`\
+https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
+
 **Can Robert Pattinson Play Both James Bond and Batman?**\
 `The demands of playing 007 have limited some of the actors cast as Ian Fleming’s dashing British spy over the decades.`\
 https://www.nytimes.com/2026/11/20/movies/robert-pattinson-james-bond-career.html
