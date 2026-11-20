@@ -1,3 +1,7 @@
+**Officials Find Cascade of Problems With ICE Training in Trump’s Immigration Crackdown**\
+`In a draft report, officials found widespread training gaps as the Department of Homeland Security sought to rapidly hire and deploy 10,000 new officers.`\
+https://www.nytimes.com/2026/11/20/us/politics/training-ice-immigration-inspector-general.html
+
 **Powerful Health Panel Has Tumultuous First Meeting With RFK Jr’s Appointees**\
 `Since March 2025, the work of the U.S. Preventive Services Task Force has been at a standstill.`\
 https://www.nytimes.com/2026/11/20/well/rfk-jr-uspstf-panel-meeting.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/movies/science-fiction-movies-streaming-end-o
 **Is Your Employer Telling You to Use A.I.? We Want to Hear From You.**\
 `Please tell us what kind of instructions your employer is providing about A.I. We may include your experiences in an article.`\
 https://www.nytimes.com/2026/11/20/business/is-your-employer-telling-you-to-use-ai-we-want-to-hear-from-you.html
-
-**As He Leaves Office, Ken Paxton Drops Suits Against Political Opponents**\
-`The Texas attorney general has abandoned suits against Muslim and immigrant rights groups — and the N.C.A.A.`\
-https://www.nytimes.com/2026/11/20/us/texas-ken-paxton-drops-lawsuits.html
 

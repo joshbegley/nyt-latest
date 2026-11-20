@@ -1,3 +1,7 @@
+**Officials Find Cascade of Problems With ICE Training in Trump’s Immigration Crackdown**\
+`In a draft report, officials found widespread training gaps as the Department of Homeland Security sought to rapidly hire and deploy 10,000 new officers.`\
+https://www.nytimes.com/2026/11/20/us/politics/training-ice-immigration-inspector-general.html
+
 **Powerful Health Panel Has Tumultuous First Meeting With RFK Jr’s Appointees**\
 `Since March 2025, the work of the U.S. Preventive Services Task Force has been at a standstill.`\
 https://www.nytimes.com/2026/11/20/well/rfk-jr-uspstf-panel-meeting.html
