@@ -1,3 +1,7 @@
+**Jennifer Lopez: ‘My Legacy Is What It Is. I Don’t Care!’**\
+`Watch the full ‘Popcast’ conversation with Jennifer Lopez here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011288355/jennifer-lopez-my-legacy-is-what-it-is-i-dont-care.html
+
 **Can a Country Be Guilty of Genocide? Finally, the Answer Is Yes.**\
 `In finding that Myanmar committed genocide against the Rohingya, an international court put another brick in the legal foundation for the crime.`\
 https://www.nytimes.com/2026/11/20/opinion/genocide-gambia-rwanda-rohingya-israel.html
