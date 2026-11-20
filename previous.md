@@ -1,3 +1,7 @@
+**‘Class Is Not an Identity’**\
+`The American working class is suffering. The author and leftist thinker Catherine Liu argues elite culture wars ignore the painful realities of economic disparity.`\
+https://www.nytimes.com/video/opinion/100000011274190/class-is-not-an-identity.html
+
 **Bobby Ray Inman, Intelligence Official Under Carter and Reagan, Dies at 95**\
 `An admiral who was a well-regarded director of the National Security Agency and deputy director of central intelligence, he turned down a nomination from President Bill Clinton to be secretary of defense.`\
 https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 **Inside the Fight Between Native American Tribes and Kalshi**\
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
-
-**Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
-`In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
-https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 

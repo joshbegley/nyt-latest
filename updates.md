@@ -1,3 +1,7 @@
+**‘Class Is Not an Identity’**\
+`The American working class is suffering. The author and leftist thinker Catherine Liu argues elite culture wars ignore the painful realities of economic disparity.`\
+https://www.nytimes.com/video/opinion/100000011274190/class-is-not-an-identity.html
+
 **Bobby Ray Inman, Intelligence Official Under Carter and Reagan, Dies at 95**\
 `An admiral who was a well-regarded director of the National Security Agency and deputy director of central intelligence, he turned down a nomination from President Bill Clinton to be secretary of defense.`\
 https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
