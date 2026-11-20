@@ -1,3 +1,7 @@
+**The Evening: Are Nvidia Chips Helping Power the Chinese Military?**\
+`Plus, Trump is bullish on data centers. Here’s the latest at the end of Friday.`\
+https://www.nytimes.com/2026/11/20/briefing/nvidia-anthropic-ice.html
+
 **HUD Takes Over Newark’s Troubled Housing Authority**\
 `Newark’s mayor, Ras J. Baraka, said he was concerned that residents and local stakeholders would lose influence in the city’s housing authority, which manages more than 6,000 apartments.`\
 https://www.nytimes.com/2026/11/20/nyregion/hud-newark-housing-authority.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/briefing/the-overhead-lighting-debate.html
 **You Deserve This 20-Minute Beef Stir-Fry**\
 `And more popular recipes from the week.`\
 https://www.nytimes.com/2026/11/20/dining/you-deserve-this-20-minute-beef-stir-fry.html
-
-**A Supermodel Will Finally Get Her Day in Court**\
-`Carré Otis spent years trying to serve her former agent in a lawsuit accusing him of sexual abuse. It took an international operation to make it happen.`\
-https://www.nytimes.com/2026/11/20/style/carre-otis-gerald-marie-lawsuit-sexual-abuse.html
 

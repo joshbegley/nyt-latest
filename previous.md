@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/11/20/arts/music/bowen-yang-apology-antisemitic-slu
 `Mayor Zohran Mamdani of New York City limped into a news conference on Friday wearing an orthopedic walking boot. He said he had torn his Achilles during an organized soccer game between the mayor’s press office and reporters, which the mayor’s office reported it won 10 to 5.`\
 https://www.nytimes.com/video/nyregion/100000011299375/mamdani-limp-soccer-injury.html
 
-**Anthropic Mathematician Claims to Have Solved Math’s Most Famous Problem**\
+**Anthropic Mathematician Claims to Solve Riemann Hypothesis With Help From Claude**\
 `If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
 https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
 

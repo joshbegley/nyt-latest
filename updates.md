@@ -1,3 +1,7 @@
+**Anthropic Mathematician Claims to Solve Riemann Hypothesis With Help From Claude**\
+`If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
+https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
+
 **HUD Takes Over Newark’s Troubled Housing Authority**\
 `Newark’s mayor, Ras J. Baraka, said he was concerned that residents and local stakeholders would lose influence in the city’s housing authority, which manages more than 6,000 apartments.`\
 https://www.nytimes.com/2026/11/20/nyregion/hud-newark-housing-authority.html
