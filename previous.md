@@ -1,3 +1,7 @@
+**Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
+`A streaming sequel to the documentary that was released in January follows Melania Trump in the days after her husband’s second inauguration.`\
+https://www.nytimes.com/2026/11/20/arts/television/melania-the-series-takeaways.html
+
 **Flashback: Your Weekly History Quiz, Nov. 21, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
@@ -91,7 +95,7 @@ https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
 https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
 
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
-`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled as much as 8 percent when U.S. markets opened on Friday.`\
+`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled on their second day of trading.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
 
 **The Most Important Days**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/arts/music/bob-dylan-handwritten-lyrics-sothe
 **Victims of Clerical Sexual Abuse Want More Engagement From Pope Leo**\
 `As he toured South America this month, Pope Leo XIV met with 11 victims of clerical sexual abuse. Some want him to engage more meaningfully.`\
 https://www.nytimes.com/2026/11/20/world/europe/pope-leo-catholic-sexual-abuse.html
-
-**The Obscenely Simple Question at the Heart of Israeli Politics**\
-`It all comes down to this.`\
-https://www.nytimes.com/2026/11/20/opinion/israel-politics-arab-racism.html
 

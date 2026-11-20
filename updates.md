@@ -1,3 +1,11 @@
+**Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
+`A streaming sequel to the documentary that was released in January follows Melania Trump in the days after her husband’s second inauguration.`\
+https://www.nytimes.com/2026/11/20/arts/television/melania-the-series-takeaways.html
+
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled on their second day of trading.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Live Updates: Trump to Speak on China Summit and Trade**\
 `President Trump is set to hold a news conference on Friday, his first since he met with the leaders of Russia and China during a trip to Asia.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
