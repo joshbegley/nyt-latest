@@ -110,7 +110,7 @@ https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-than
 `The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
 https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-broadway.html
 
-**Mamdani Will Run New York With a Limp After Tearing Achilles Playing Soccer**\
+**Mamdani Will Run New York With a Limp After Tearing Achilles’ Tendon Playing Soccer**\
 `The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
 https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
 
