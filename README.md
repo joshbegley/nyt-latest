@@ -1,3 +1,7 @@
+**Iraqi Forces Enter Stronghold of Powerful Iran-Backed Militia**\
+`For the first time in over a decade, army and police units were deployed in territory controlled by the group, Kataib Hezbollah. But it was unclear if it would withdraw its forces.`\
+https://www.nytimes.com/2026/11/20/world/middleeast/iraq-militia-iran-kataib-hezbollah.html
+
 **How to Create an Easy, Elegant Chignon**\
 `Three experts share their tips for creating an easy, elegant chignon.`\
 https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/nyregion/rikers-island-mamdani-close-2032.htm
 **The Acorn-Mouse-Tick-Lyme Connection**\
 `In a year when trees yield a lot of acorns, Lyme disease tends to rise. Here’s why.`\
 https://www.nytimes.com/2026/11/20/nyregion/acorns-mice-lyme-disease.html
-
-**Is an ‘A.I. Agent’ Coming for Our Sourdough Starter?**\
-`A lab-grown shortcut named Leaven is wooing many high-end bakers and pizza makers who’ve prided themselves on their painstaking use of live cultures.`\
-https://www.nytimes.com/2026/11/20/dining/leaven-lab-grown-sourdough-starter.html
 
