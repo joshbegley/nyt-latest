@@ -1,3 +1,7 @@
+**At Anthropic, Complicated Feelings After the I.P.O.**\
+`Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011297377/at-anthropic-complicated-feelings-after-the-ipo.html
+
 **How Anthropic Employees Really Feel About The I.P.O.**\
 `Natalie Kitroeff calls the domestic correspondent Jasmine Sun in San Francisco Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than potential gains to their personal wealth.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011297245/how-anthropic-employees-really-feel-about-the-ipo.html
@@ -150,7 +154,7 @@ https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi
 `Seen as a symbol, but not as herself`\
 https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
 
-**It Really Matters When C.E.O.s Have Affairs**\
+**Why C.E.O.s Who Commit Adultery Are Dangerous for Their Companies**\
 `The reason has nothing to do with the sanctity of marriage.`\
 https://www.nytimes.com/2026/11/19/opinion/jensen-huang-ceo-affairs.html
 
