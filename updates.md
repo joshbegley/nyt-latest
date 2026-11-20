@@ -1,3 +1,7 @@
+**Jonathan Yardley, Who Reviewed 3,000 Books and Pulled Zero Punches, Has Died**\
+`As a Pulitzer Prize-winning critic for The Washington Post, he believed praise could be boring. He was 87.`\
+https://www.nytimes.com/2026/11/20/books/jonathan-yardley-dead.html
+
 **The Overhead Lighting Debate**\
 `What’s your preference?`\
 https://www.nytimes.com/2026/11/20/briefing/the-overhead-lighting-debate.html

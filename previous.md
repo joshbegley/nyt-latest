@@ -1,3 +1,7 @@
+**Jonathan Yardley, Who Reviewed 3,000 Books and Pulled Zero Punches, Has Died**\
+`As a Pulitzer Prize-winning critic for The Washington Post, he believed praise could be boring. He was 87.`\
+https://www.nytimes.com/2026/11/20/books/jonathan-yardley-dead.html
+
 **The Overhead Lighting Debate**\
 `What’s your preference?`\
 https://www.nytimes.com/2026/11/20/briefing/the-overhead-lighting-debate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/africa/100000011290919/the-uae-quietly-built
 **7 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://www.nytimes.com/2026/11/20/movies/new-movies-this-week-critics.html
-
-**Quantum Computing Is Even Weirder Than You Think**\
-`In a new study, Google researchers demonstrated a strange phenomenon called quantum contextuality, in which a quantum machine’s data can change as the context does.`\
-https://www.nytimes.com/2026/11/20/science/quantum-contextuality.html
 
