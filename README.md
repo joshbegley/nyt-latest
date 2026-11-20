@@ -1,5 +1,13 @@
+**Can Anthropic Revive the A.I. Trade?**\
+`Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
+https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
+
+**What Are King Tides, and Why Is Everyone Talking About Them?**\
+`Because of El Niño, the Pacific Ocean is already higher than normal. This year, that could lead to some especially high tides.`\
+https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
-`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
+`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year. Anthropic’s shares tumbled on their second day of trading, part of a broad sell-off in technology shares.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
 
 **The Most Important Days**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/movies/the-hunger-games-sunrise-on-the-reapin
 **Book Review: ‘The Flying Death,’ by Matt O’Hara**\
 `In “The Flying Death,” Matt O’Hara tells the story of curare and the beginnings of big pharma.`\
 https://www.nytimes.com/2026/11/20/books/review/matt-o-hara-the-flying-death.html
-
-**8 Horror Movies to Watch After ‘Victorian Psycho’ and ‘The Devils’**\
-`Stream these period films for a mix of history and terror.`\
-https://www.nytimes.com/2026/11/20/movies/horror-movies-watch-victorian-psycho-devils.html
-
-**Italian Children’s Book Characters in America**\
-`First, hard-working Italian immigrants began populating American books for young readers. Then Bruno Munari arrived on the scene.`\
-https://www.nytimes.com/2026/11/20/books/review/carlo-collodi-italian-chldrens-books-in-america.html
 
