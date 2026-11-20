@@ -1,3 +1,7 @@
+**Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection process took more than an hour.`\
+https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
+
 **It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
 `A fashion gimmick that works. Kinda.`\
 https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html

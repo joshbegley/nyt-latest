@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoi
 `Ten months after the premiere of her Amazon documentary in Washington, the first lady debuted a follow-up series far from her husband’s seat of power.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
-**Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
-`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
+**Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection process took more than an hour.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
 
 **Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
