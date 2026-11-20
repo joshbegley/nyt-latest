@@ -1,3 +1,7 @@
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled as much as 8 percent when U.S. markets opened on Friday.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **On the Carpet of Melania Trump’s Amazon Premiere in New York**\
 `Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html

@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
 https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
 
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
-`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled, part of a tech sell-off.`\
+`The S&P 500 and Nasdaq were on course for their worst weekly performances in over a year. Anthropic’s shares tumbled as much as 8 percent when U.S. markets opened on Friday.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
 
 **The Most Important Days**\
