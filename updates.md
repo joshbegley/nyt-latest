@@ -1,3 +1,7 @@
+**Justice Department Gives Up on Alaska Senate Lawsuit**\
+`The Trump administration had sought to block certification of election results if Senator Dan Sullivan, a Republican, lost narrowly in his bid for re-election. Critics had called the suit meritless.`\
+https://www.nytimes.com/2026/11/19/us/politics/justice-department-gives-up-on-alaska-senate-lawsuit.html
+
 **Excavation Compromised Building That Collapsed, Visual Evidence Suggests**\
 `The Times analyzed videos and built a 3-D model of the construction site next to a collapsed building in Brooklyn.`\
 https://www.nytimes.com/interactive/2026/11/19/nyregion/brooklyn-building-collapse-excavation-foundation.html
