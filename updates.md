@@ -1,3 +1,7 @@
+**Victims of Clerical Sexual Abuse Want More Engagement From Pope Leo**\
+`As he toured South America this month, Pope Leo XIV met with 11 victims of clerical sexual abuse. Some want him to engage more meaningfully.`\
+https://www.nytimes.com/2026/11/20/world/europe/pope-leo-catholic-sexual-abuse.html
+
 **We Visited the HQ of a Celebrity Christian ‘Scam’**\
 `Investigating the latest rabbit hole inside Life Surge and Tim Tebow’s history with multilevel marketing.`\
 https://www.nytimes.com/2026/11/20/podcasts/hq-celebrity-christian-scam-life-surge.html
