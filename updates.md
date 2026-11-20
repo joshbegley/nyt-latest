@@ -1,3 +1,7 @@
+**Wreck of First Australian-Built Warship Is Revealed 128 Years After It Sank**\
+`The wooden gunboat Spitfire was entombed in waters near the Great Barrier Reef after it went down in a cyclone in 1898.`\
+https://www.nytimes.com/2026/11/20/world/australia/shipwreck-warship-spitfire-great-barrier-reef.html
+
 **Jimmy Kimmel Recaps Trump’s ‘Big Dim Summit’**\
 `“My God, even if you voted for this guy, you have to admit, he has the worst taste in friends,” the late night host said of Trump’s chummy meeting with Xi Jinping and Vladimir Putin.`\
 https://www.nytimes.com/2026/11/20/arts/television/jimmy-kimmel-trump-xi-putin-summit.html
