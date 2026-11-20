@@ -1,3 +1,7 @@
+**4 British Men Convicted of Sexually Assaulting Woman Drugged by Husband**\
+`It is the first time in Britain that a jury has convicted several defendants relating to drug-facilitated sexual assault.`\
+https://www.nytimes.com/video/world/europe/100000011297609/4-british-men-convicted-of-sexually-assaulting-woman-drugged-by-husband.html
+
 **Wreck of First Australian-Built Warship Is Revealed 128 Years After It Sank**\
 `The wooden gunboat Spitfire was entombed in waters near the Great Barrier Reef after it went down in a cyclone in 1898.`\
 https://www.nytimes.com/2026/11/20/world/australia/shipwreck-warship-spitfire-great-barrier-reef.html
