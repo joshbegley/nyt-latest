@@ -1,3 +1,11 @@
+**Familiar Dangers Drive a Rise in Fire Deaths in New York City Buildings**\
+`Fatalities have nearly doubled this year. While a series of factors has driven the increase, the deadliest blazes have occurred in homes built more than 100 years ago.`\
+https://www.nytimes.com/2026/11/20/nyregion/nyc-fire-deaths-city-council-hearing.html
+
+**NYT Spelling Bee Answers for November 20, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/20/crosswords/spelling-bee-forum.html
+
 **Jennifer Lopez: ‘My Legacy Is What It Is. I Don’t Care!’**\
 `Watch the full ‘Popcast’ conversation with Jennifer Lopez here. Edited excerpts from the interview are below.`\
 https://www.nytimes.com/video/podcasts/100000011288355/jennifer-lopez-my-legacy-is-what-it-is-i-dont-care.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.h
 **Fire at Recycling Facility in Alabama Leads to Evacuations**\
 `Fire at a railroad tie recycling plant in Attalla, Ala., caused school closures and residents to evacuate. There were no immediate reports of any casualties or the cause of the fire.`\
 https://www.nytimes.com/video/us/100000011296451/alabama-fire-attalla-evacuations.html
-
-**What You Should Know About Downdetector Before the Next Big Tech Outage**\
-`The website has been checked and cited often during an unusually busy week of technology problems, though its operators acknowledge its limitations.`\
-https://www.nytimes.com/2026/11/19/technology/downdetector-tech-outages-microsoft-chase-apple.html
-
-**How Much Anthropic Are You About to Own?**\
-`See how much of the stock you may own through common index funds, like those found in retirement accounts.`\
-https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
 
