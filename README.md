@@ -1,3 +1,7 @@
+**Jennifer Lopez: ‘My Legacy Is What It Is. I Don’t Care!’**\
+`Watch the full ‘Popcast’ conversation with Jennifer Lopez here. Edited excerpts from the interview are below.`\
+https://www.nytimes.com/video/podcasts/100000011288355/jennifer-lopez-my-legacy-is-what-it-is-i-dont-care.html
+
 **Can a Country Be Guilty of Genocide? Finally, the Answer Is Yes.**\
 `In finding that Myanmar committed genocide against the Rohingya, an international court put another brick in the legal foundation for the crime.`\
 https://www.nytimes.com/2026/11/20/opinion/genocide-gambia-rwanda-rohingya-israel.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/19/technology/downdetector-tech-outages-microsof
 **How Much Anthropic Are You About to Own?**\
 `See how much of the stock you may own through common index funds, like those found in retirement accounts.`\
 https://www.nytimes.com/2026/11/19/upshot/anthropic-ipo-stock.html
-
-**In Florida, More Rain Threatens Flooded Areas and Roads**\
-`Parts of Broward County, including the cities of Hollywood and Plantation, received about 15 inches of rain in 24 hours, forecasters said.`\
-https://www.nytimes.com/2026/11/19/weather/florida-floods-rain-closures-evacuations.html
 
