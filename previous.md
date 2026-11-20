@@ -138,7 +138,7 @@ https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
 `For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
 https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
-**Live Updates: Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
+**Freewheeling Trump Promotes Data Centers, Asia Trip and His Veto Power**\
 `In a wide-ranging news conference, President Trump pressed forcefully for more data centers, threatened to block Democratic priorities in the new Congress and invited various officials to the mic.`\
 https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 
