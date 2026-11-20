@@ -1,3 +1,7 @@
+**Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
+`Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
+https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
+
 **Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
 `The Treasury Department is working with a private service, ID.me, to grant access to the TreasuryDirect website. Some users reported trouble getting in.`\
 https://www.nytimes.com/2026/11/20/your-money/us-savings-bonds.html
