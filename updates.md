@@ -1,3 +1,7 @@
+**People Are Anxious About Major Tech Failures. Preppers Are Cashing In.**\
+`Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
+https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
+
 **Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
 `The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
 https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
