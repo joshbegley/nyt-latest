@@ -1,3 +1,7 @@
+**White Police Officers Are Convicted of Beating a Black Man in France**\
+`The three officers were filmed beating Michel Zecler, a music producer, inside his Paris studio in 2020, setting off a national backlash.`\
+https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html
+
 **Jury Finds Man Guilty of Arson in Devastating L.A. Fire**\
 `The defendant, Jonathan Rinderknecht, was found guilty on two counts. It was the second time he was tried in federal court in connection with the blaze. His first trial ended in a mistrial.`\
 https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
 **The War in Ukraine Is Killing Wildlife**\
 `The war in Ukraine, now in its fifth year, is taking a heavy toll on the country’s wildlife. If not outright killed in the fighting, wild animals are often caught in anti-drone netting or razor wire, and their natural habitats have been drastically transformed.`\
 https://www.nytimes.com/video/world/europe/100000011297989/ukraine-war-killing-wildlife.html
-
-**Jonathan Yardley, Who Reviewed 3,000 Books and Pulled Zero Punches, Has Died**\
-`As a Pulitzer Prize-winning critic for The Washington Post, he believed praise could be boring. He was 87.`\
-https://www.nytimes.com/2026/11/20/books/jonathan-yardley-dead.html
 
