@@ -1,3 +1,11 @@
+**As a Storm Floods Florida, Heavy Rain Will Creep Up the East Coast**\
+`A potential tropical storm off the coast of Florida is expected to move up the coast and could snarl Thanksgiving week travel.`\
+https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-thanksgiving.html
+
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`Investors are growing more concerned about the durability of the artificial intelligence boom even after Anthropic’s successful market debut on Thursday.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Playbill Removes Casting Call for George Floyd Musical Album**\
 `The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
 https://www.nytimes.com/2026/11/20/arts/george-floyd-musical-playbill-busted-broadway.html
