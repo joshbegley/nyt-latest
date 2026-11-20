@@ -1,3 +1,11 @@
+**Jennifer Lopez No Longer Wants to Love in Public**\
+`On ‘Popcast’ Jennifer Lopez, whose relationship with and split from Ben Affleck sparked lots of media coverage, speaks about navigating her love life in the public eye.`\
+https://www.nytimes.com/video/podcasts/100000011291364/jennifer-lopez-no-longer-wants-to-love-in-public.html
+
+**Stream These 5 Movies and Shows Before They Leave Netflix in December**\
+`The workplace comedy “9 to 5” and the Shonda Rhimes hit “Scandal” are among the titles leaving for U.S. subscribers next month.`\
+https://www.nytimes.com/2026/11/20/arts/television/netflix-expiring-december.html
+
 **Experimental Drugs for the Sickest Patients**\
 `Three doctors respond to “Could a Psychedelic Trip Help My Dying Patients?,” a guest essay by Dr. Daniela J. Lamas. Also: The Senate Democratic contest.`\
 https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/elon-musk-regrets-moderate.html
 **Don’t Let Inflated Prices Ruin Your Black Friday Shopping**\
 `Our expert shares strategies to find real savings.`\
 https://www.nytimes.com/2026/11/20/podcasts/black-friday-shopping-prices.html
-
-**E.R. Doctors on Avoiding Thanksgiving Hazards**\
-`Don’t deep-fry a frozen turkey, for starters.`\
-https://www.nytimes.com/2026/11/20/well/thanksgiving-emergency-room-er.html
-
-**Corrections: Nov. 20, 2026**\
-`Corrections that appeared in print on Friday, Nov. 20, 2026.`\
-https://www.nytimes.com/2026/11/20/pageoneplus/corrections-nov-20-2026.html
 
