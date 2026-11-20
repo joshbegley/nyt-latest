@@ -1,3 +1,7 @@
+**Mamdani Closes Last Migrant Shelter, Leaving ICE Subpoena in Limbo**\
+`The Trump administration had sought the names of undocumented immigrants with criminal records who lived in the Bronx center.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-mamdani-migrant-shelter-trump-subpoena.html
+
 **Justice Department Gives Up on Alaska Senate Lawsuit**\
 `The Trump administration had sought to block certification of election results if Senator Dan Sullivan, a Republican, lost narrowly in his bid for re-election. Critics had called the suit meritless.`\
 https://www.nytimes.com/2026/11/19/us/politics/justice-department-gives-up-on-alaska-senate-lawsuit.html

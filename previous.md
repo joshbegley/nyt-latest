@@ -1,3 +1,7 @@
+**Mamdani Closes Last Migrant Shelter, Leaving ICE Subpoena in Limbo**\
+`The Trump administration had sought the names of undocumented immigrants with criminal records who lived in the Bronx center.`\
+https://www.nytimes.com/2026/11/19/nyregion/nyc-mamdani-migrant-shelter-trump-subpoena.html
+
 **Justice Department Gives Up on Alaska Senate Lawsuit**\
 `The Trump administration had sought to block certification of election results if Senator Dan Sullivan, a Republican, lost narrowly in his bid for re-election. Critics had called the suit meritless.`\
 https://www.nytimes.com/2026/11/19/us/politics/justice-department-gives-up-on-alaska-senate-lawsuit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/19/us/press-release-no-criminal-liab
 **U.S. Auctions 31.5 Million Acres of Pacific Ocean to Deep Sea Mining Company**\
 `The first-ever lease sale took place over the objections of a federal judge. Wetstone U.S. Ventures paid $6 million to lease the seabed for mapping and preparation, not actual mining.`\
 https://www.nytimes.com/2026/11/19/climate/metals-company-seafloor-mining-auction.html
-
-**Books Our Editors Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://www.nytimes.com/2026/11/19/books/review/new-recommended-books.html
 
