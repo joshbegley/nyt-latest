@@ -1,3 +1,15 @@
+**Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
+`Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
+https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
+
+**Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
+`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and had been hospitalized ever since.`\
+https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
+
+**Live Updates: Trump Speaks on Asia Trip, Trade Deals and Data Centers**\
+`President Trump pressed forcefully for an expansion of the data center construction in the United States, and said he would tax companies that build them abroad.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
 `Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and been hospitalized ever since.`\
 https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
