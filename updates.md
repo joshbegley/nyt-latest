@@ -1,3 +1,7 @@
+**Technology Promised Ease. Outages Are Making Many Americans Uneasy.**\
+`The recent spate of tech disruptions has forced Americans to reckon with how dependent they have become on worldwide computer networks.`\
+https://www.nytimes.com/2026/11/19/us/tech-outages-computer-networks.html
+
 **At Anthropic, Complicated Feelings After the I.P.O.**\
 `Natalie Kitroeff calls Jasmine Sun, a New York Times opinion writer, in San Francisco on Thursday afternoon to hear what employees at Anthropic are saying about its $1.7 trillion I.P.O. In this episode of “The Call,” Sun shares that many at Anthropic are “more concerned” with A.I. safety than with potential gains to their personal wealth.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011297377/at-anthropic-complicated-feelings-after-the-ipo.html
