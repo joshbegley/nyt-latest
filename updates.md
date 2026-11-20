@@ -1,3 +1,7 @@
+**Leaked Draft Report Finds ‘Catastrophic’ Training Failures at ICE**\
+`The Trump administration graduated thousands of new ICE officers through a training regiment that one instructor called a “catastrophic failure,” according to a draft copy of a Department of Homeland Security inspector general’s report obtained by the Times. Our immigration reporter Hamed Aleazis explains.`\
+https://www.nytimes.com/video/us/100000011291007/leaked-draft-report-finds-catastrophic-training-failures-at-ice.html
+
 **The Evening: Are Nvidia Chips Helping Power the Chinese Military?**\
 `Plus, Trump is bullish on data centers. Here’s the latest at the end of Friday.`\
 https://www.nytimes.com/2026/11/20/briefing/nvidia-anthropic-ice.html
