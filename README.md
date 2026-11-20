@@ -1,3 +1,7 @@
+**Wreck of Australian Warship Found 128 Years After Sinking**\
+`The wreck of Australia’s first locally built warship was discovered in August near the Great Barrier Reef 128 years after it sank.`\
+https://www.nytimes.com/video/world/australia/100000011297846/australia-warship-found.html
+
 **Familiar Dangers Drive a Rise in Fire Deaths in New York City Buildings**\
 `Fatalities have nearly doubled this year. While a series of factors has driven the increase, the deadliest blazes have occurred in homes built more than 100 years ago.`\
 https://www.nytimes.com/2026/11/20/nyregion/nyc-fire-deaths-city-council-hearing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/19/us/politics/alex-soros-jen-omalley-dillon-202
 **Unexpected Fallout From the Iran War**\
 `Global oil shocks are accelerating the shift to electric vehicles and renewable energy, a new report finds.`\
 https://www.nytimes.com/2026/11/19/climate/iea-energy-transition-electric-cars.html
-
-**Fire at Recycling Facility in Alabama Leads to Evacuations**\
-`Fire at a railroad tie recycling plant in Attalla, Ala., caused school closures and residents to evacuate. There were no immediate reports of any casualties or the cause of the fire.`\
-https://www.nytimes.com/video/us/100000011296451/alabama-fire-attalla-evacuations.html
 
