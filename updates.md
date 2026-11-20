@@ -1,3 +1,19 @@
+**Powerful Health Panel Has Tumultuous First Meeting With RFK Jr’s Appointees**\
+`Since March 2025, the work of the U.S. Preventive Services Task Force has been at a standstill.`\
+https://www.nytimes.com/2026/11/20/well/rfk-jr-uspstf-panel-meeting.html
+
+**The System Is ‘Stacked’ Against the Young**\
+`“The entire system is stacked against people who are my age,” says the “Breaking Points” co-host Saagar Enjeti. He argues that unchecked corporate power has left young Americans behind, and it’s time for Republicans to strike back at the private sector.`\
+https://www.nytimes.com/video/opinion/100000011291598/the-system-is-stacked-against-the-young.html
+
+**This Is JD Vance’s Biggest Problem**\
+`Can JD Vance win in 2028 without criticizing Trump? Saagar Enjeti is doubtful. He says Vance needs to learn from Kamala Harris’s biggest mistake on “Interesting Times.”`\
+https://www.nytimes.com/video/opinion/100000011291593/this-is-jd-vances-biggest-problem.html
+
+**Sam Altman on Jensen Huang’s Possible Return to Nvidia**\
+`At The New York Times DealBook Summit on Nov. 18, Sam Altman spoke about Jensen Huang’s possible return as C.E.O. of Nvidia. The tech reporters Erin Griffith and Mike Isaac joined the guest host Max Read on the “Hard Fork” podcast to talk about it.`\
+https://www.nytimes.com/video/technology/100000011299401/sam-altman-jensen-huang-nvidia.html
+
 **Top N.H. Election Official Reiterates Intent to Keep Nation’s First Primary**\
 `The New Hampshire secretary of state said he would again hold the Democratic primary first in the nation, defying the party’s intent to prioritize other states in 2028.`\
 https://www.nytimes.com/2026/11/20/us/elections/new-hampshire-presidential-primary.html
