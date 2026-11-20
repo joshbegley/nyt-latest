@@ -1,3 +1,7 @@
+**‘The Headlines’ News Quiz: Nov. 20, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-quiz-nov-20-2026.html
+
 **How the U.S. Economy Is Tied to A.I.**\
 `Artificial intelligence has become a huge piece of the U.S. economy. Ben Casselman, the chief economics correspondent for The New York Times, explains why that is and how it might be risky.`\
 https://www.nytimes.com/video/business/100000011293737/how-the-us-economy-is-tied-to-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/insider/obituaries-facts-confirmation.html
 **Mercury Is a Mystery. An International Mission Aims to Solve It.**\
 `BepiColombo is about to become the second spacecraft in history to orbit the planet closest to the sun.`\
 https://www.nytimes.com/2026/11/20/science/mercury-bepi-colombo-orbit.html
-
-**Grand Theft Auto VI: 30 Years in the Making**\
-`Our reporter Zachary Small explores some of the most ambitious features of Grand Theft Auto VI.`\
-https://www.nytimes.com/video/arts/100000011247287/grand-theft-auto-vi-30-years-in-the-making.html
 
