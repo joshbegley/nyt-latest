@@ -1,3 +1,7 @@
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 ended the day down 10 percent from its recent high, in a symbolic measure of investors’ souring mood.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
 `President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
 https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html

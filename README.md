@@ -1,3 +1,11 @@
+**Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
+`Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
+https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
+
+**Designers Accuse Ssense of Misrepresenting Clothes Online**\
+`After designers accused the luxury retailer Ssense of misrepresenting their clothes, the company said it relied on a “virtual try-on” program for some online imagery.`\
+https://www.nytimes.com/2026/11/20/style/ssense-ai-rcos-sage-nation.html
+
 **Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
 `President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
 https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
 **Can Anthropic Revive the A.I. Trade?**\
 `Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
 https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
-
-**What Are King Tides, and Why Is Everyone Talking About Them?**\
-`Because of El Niño, the Pacific Ocean is already higher than normal. This year, that could lead to some especially high tides.`\
-https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
-
-**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
-`The S&P 500 ended the day down 10 percent from its recent high, in a symbolic measure of investors’ souring mood.`\
-https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
 
