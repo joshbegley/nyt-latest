@@ -1,3 +1,7 @@
+**How to Create an Easy, Elegant Chignon**\
+`Three experts share their tips for creating an easy, elegant chignon.`\
+https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.html
+
 **“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
 `A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
 https://www.nytimes.com/2026/11/20/theater/eurotrash-old-vic-london-review.html

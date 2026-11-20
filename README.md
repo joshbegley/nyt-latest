@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/11/20/t-magazine/chignon-at-home-hairstyle-guide.ht
 
 **“Eurotrash” Review: Who Knew a Toxic Family Road Trip Could Be So Fun?**\
 `A London stage adaptation of Christian Kracht’s lauded novel “Eurotrash” takes us on a poignant and delightful mother-and-son journey.`\
-https://www.nytimes.com/2026/11/20/theater/eurotrash-old-vic-london-review.html
+https://www.nytimes.com/2026/11/20/theater/eurotrash-young-vic-london-review.html
 
 **‘Russian Objects’ Crashed in Poland, Officials Say. Here’s What We Can See.**\
 `There were no injuries or damage from three incidents that the Polish authorities called a likely “provocation” from Russia during military exercises by Ukraine’s allies.`\
@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/20/us/politics/cftc-cryptocurrency-trump-memecoi
 `Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
 https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 
-**Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
+**Texas Execution Took an Hour as Prisoner Moaned in Pain, Witnesses Say**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
 
