@@ -1,3 +1,7 @@
+**On the Carpet of Melania Trump’s Amazon Premiere in New York**\
+`Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
+https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
+
 **Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/science/quantum-computer-neutral-atoms.html
 **Choose Your Favorite $1.6 Million House in Tuscany**\
 `In the countryside around Florence, buyers can find converted villas with adaptable guest quarters.`\
 https://www.nytimes.com/2026/11/20/realestate/favorite-house-tuscany.html
-
-**I’m a Socialist. Wokeness Is Still the Left’s Biggest Liability.**\
-`I’ve seen a lot of wokeness in my time on the left, and I’ve never seen it produce an effective political formation.`\
-https://www.nytimes.com/2026/11/20/opinion/democrats-woke-1-socialist.html
 

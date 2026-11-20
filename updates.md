@@ -1,3 +1,7 @@
+**On the Carpet of Melania Trump’s Amazon Premiere in New York**\
+`Ten months after the premiere of the “Melania” documentary in Washington, the first lady debuted a follow-up docuseries at Lincoln Center.`\
+https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
+
 **Lethal Injection Took an Hour as Texas Executioners Hunted for a Vein**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
