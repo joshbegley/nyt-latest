@@ -1,3 +1,7 @@
+**Excavation Compromised Building That Collapsed, Visual Evidence Suggests**\
+`The Times analyzed videos and built a 3-D model of the construction site next to a collapsed building in Brooklyn.`\
+https://www.nytimes.com/interactive/2026/11/19/nyregion/brooklyn-building-collapse-excavation-foundation.html
+
 **Fiona the Hippo of Internet Fame Dies**\
 `Cinncinati Zoo’s Nile hippopotamus died about two weeks after eating a child’s knit hat.`\
 https://www.nytimes.com/video/us/100000011297326/fiona-the-hippo-of-internet-fame-dies.html
@@ -34,7 +38,7 @@ https://www.nytimes.com/2026/11/19/us/tech-outages-computer-networks.html
 `“The moments of lust and desire” in his movies, he said, grew “out of the stories themselves,” transcending pornography. He was 93.`\
 https://www.nytimes.com/2026/11/19/movies/tinto-brass-dead.html
 
-**Top White House Cybersecurity Official Steps Down**\
+**Top White House Cybersecurity Official Is Replaced**\
 `The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
 https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/19/books/review/new-recommended-books.html
 **China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
 `China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
 https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
-
-**Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
-`Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
-https://www.nytimes.com/live/2026/11/19/technology/anthropic-ipo-ai
 

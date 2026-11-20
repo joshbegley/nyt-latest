@@ -1,3 +1,11 @@
+**Excavation Compromised Building That Collapsed, Visual Evidence Suggests**\
+`The Times analyzed videos and built a 3-D model of the construction site next to a collapsed building in Brooklyn.`\
+https://www.nytimes.com/interactive/2026/11/19/nyregion/brooklyn-building-collapse-excavation-foundation.html
+
+**Top White House Cybersecurity Official Is Replaced**\
+`The departure of Sean Cairncross comes after a series of technological outages affected U.S. companies and federal agencies in the past week.`\
+https://www.nytimes.com/2026/11/19/us/politics/white-house-cyber-director-departs.html
+
 **Fiona the Hippo of Internet Fame Dies**\
 `Cinncinati Zoo’s Nile hippopotamus died about two weeks after eating a child’s knit hat.`\
 https://www.nytimes.com/video/us/100000011297326/fiona-the-hippo-of-internet-fame-dies.html
