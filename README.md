@@ -1,3 +1,15 @@
+**Anthropic Mathematician Claims to Have Solved Math’s Most Famous Problem**\
+`If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
+https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
+
+**Denmark Expels Russian Diplomat After Accusing Moscow of Planning a Hit**\
+`Danish officials say Russian intelligence services recruited members of a violent gang to try to assassinate a Ukrainian rapper at a concert outside Copenhagen.`\
+https://www.nytimes.com/2026/11/20/world/europe/denmark-russia-ukraine-rapper-assassination.html
+
+**H.I.V. Research Networks May Again Seek Federal Funding, With a Twist**\
+`The Trump administration restarted the process for funding four large research networks after postponing it earlier this year.`\
+https://www.nytimes.com/2026/11/20/science/hiv-research-funding-nih.html
+
 **Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
 `Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
 https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/20/style/melania-trump-series-premiere-nyc.html
 **Texas Prisoner Moaned as Drugs Flowed During Execution, Witnesses Say**\
 `Prison personnel placed needles in the neck and foot of Reinaldo Dennes, who was convicted of killing a diamond broker 30 years ago. The lethal injection routine took more than an hour.`\
 https://www.nytimes.com/2026/11/20/us/texas-execution-lethal-injection-reinaldo-dennes.html
-
-**Savings Bonds Offer Enticing Rates. You Need to Prove Your Identity First.**\
-`The Treasury Department is working with a private service, ID.me, to grant access to the TreasuryDirect website. Some users reported trouble getting in.`\
-https://www.nytimes.com/2026/11/20/your-money/us-savings-bonds.html
-
-**2 Earthquakes Strike Los Angeles Area and Central California**\
-`A 5.0-magnitude quake struck around Pinnacles, Calif., southeast of San Francisco. A few hours later, a 4.2-magnitude quake hit just outside of Los Angeles.`\
-https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacles.html
-
-**Let’s Talk About This Year’s Book Awards**\
-`MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
-https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
 

@@ -1,3 +1,7 @@
+**Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
+`Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
+https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
+
 **Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
 `Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
 https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/earthquakes-california-los-angeles-pinnacl
 **Let’s Talk About This Year’s Book Awards**\
 `MJ Franklin hosts three editors from The Times’s Book Review to discuss the Booker Prize, the Nobel Prize, the National Book Awards and more.`\
 https://www.nytimes.com/2026/11/20/podcasts/lets-talk-book-awards.html
-
-**Can Anthropic Revive the A.I. Trade?**\
-`Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
-https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
 

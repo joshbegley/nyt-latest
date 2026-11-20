@@ -1,3 +1,7 @@
+**Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
+`Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
+https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
+
 **Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
 `Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
 https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
