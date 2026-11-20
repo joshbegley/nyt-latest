@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-prince
 https://www.nytimes.com/video/world/europe/100000011298424/poland-russia-crash.html
 
 **Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
-`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy defended its policy.`\
+`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy said it would revise its policy.`\
 https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
 
 **Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\

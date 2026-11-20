@@ -1,3 +1,7 @@
+**Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
+`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy said it would revise its policy.`\
+https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
+
 **Anthropic Mathematician Claims to Have Solved Math’s Most Famous Problem**\
 `If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
 https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
