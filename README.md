@@ -38,7 +38,7 @@ https://www.nytimes.com/2026/11/20/technology/jensen-huang-nvidia-culture.html
 `The auction house estimates the manuscripts for “Masters of War” and “Subterranean Homesick Blues” could together draw bids totaling as much as $1 million.`\
 https://www.nytimes.com/2026/11/20/arts/music/handwritten-lyrics-to-early-dylan-songs-to-be-sold-by-sothebys.html
 
-**Victims of Clerical Sexual Abuse Want More From Pope Leo**\
+**Victims of Clerical Sexual Abuse Want More Engagement From Pope Leo**\
 `As he toured South America this month, Pope Leo XIV met with 11 victims of clerical sexual abuse. Some want him to engage more meaningfully.`\
 https://www.nytimes.com/2026/11/20/world/europe/pope-leo-catholic-sexual-abuse.html
 
