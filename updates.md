@@ -1,3 +1,15 @@
+**It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
+`A fashion gimmick that works. Kinda.`\
+https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html
+
+**L.A. Wants to Clean Up MacArthur Park. Will Fencing It Off Work?**\
+`The park near downtown Los Angeles has long been a disquieting example of the city’s struggles to address drug sales, homelessness and people struggling with mental health issues.`\
+https://www.nytimes.com/2026/11/20/us/los-angeles-macarthur-park-fence.html
+
+**Live Updates: Trump Speaks on Asia Trip and Trade**\
+`President Trump is holding a news conference at the White House, his first session with reporters since he met with the leaders of Russia and China.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
 `A streaming sequel to the documentary that was released in January follows Melania Trump in the days after her husband’s second inauguration.`\
 https://www.nytimes.com/2026/11/20/arts/television/melania-the-series-takeaways.html
