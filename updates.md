@@ -1,3 +1,11 @@
+**Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
+`President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
+https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html
+
+**The Local: How a news start-up broke the Uber assault**\
+`Plus, turkey time approaches.`\
+https://www.nytimes.com/2026/11/20/briefing/the-local-how-a-news-start-up-broke-the-uber-assault.html
+
 **Fact-Checking Trump’s News Conference After His Asia Trip**\
 `President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
 https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html

@@ -1,3 +1,11 @@
+**Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
+`President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
+https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html
+
+**The Local: How a news start-up broke the Uber assault**\
+`Plus, turkey time approaches.`\
+https://www.nytimes.com/2026/11/20/briefing/the-local-how-a-news-start-up-broke-the-uber-assault.html
+
 **Fact-Checking Trump’s News Conference After His Asia Trip**\
 `President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
 https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 is close to ending the day in a correction, a drop of 10 percent from its recent high and a symbolic measure of investors’ souring mood.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
-
-**The Most Important Days**\
-`The Times has been publishing for 175 years. We look back at the most significant days in that time.`\
-https://www.nytimes.com/2026/11/20/briefing/the-most-important-days.html
-
-**‘The Headlines’ News Quiz: Nov. 20, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://www.nytimes.com/2026/11/20/podcasts/the-headlines/the-headlines-news-quiz-nov-20-2026.html
 
