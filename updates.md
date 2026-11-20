@@ -1,3 +1,7 @@
+**Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
+`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy defended its policy.`\
+https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
+
 **People Are Anxious About Major Tech Failures. Preppers Are Cashing In.**\
 `Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
 https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html

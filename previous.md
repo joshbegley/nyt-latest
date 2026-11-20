@@ -1,3 +1,7 @@
+**Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
+`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy defended its policy.`\
+https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
+
 **Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
 `The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
 https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/podcasts/the-daily/trump-putin-xi-summit-ai.h
 **G.T.A. VI Is a Monumental Human Achievement**\
 `Anthropic goes public, Jensen Huang wants back in at Nvidia, and software patches seem to be breaking everything. But first, let’s talk about G.T.A.`\
 https://www.nytimes.com/2026/11/20/podcasts/hardfork-gta6-nvidia-anthropic.html
-
-**‘It Feels Corrupt Because It Likely Is’**\
-`On “The Ezra Klein Show,” Representative Robert Garcia, the top Democrat on the House Oversight Committee, calls for oversight on Department of Defense deals linked to Donald Trump Jr. and Eric Trump.`\
-https://www.nytimes.com/video/opinion/100000011295023/it-feels-corrupt-because-it-likely-is.html
 
