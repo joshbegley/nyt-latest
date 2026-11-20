@@ -1,3 +1,15 @@
+**Can Anthropic Revive the A.I. Trade?**\
+`Shares in the artificial intelligence giant jumped in their debut. But that didn’t lift the technology sector, as investors worry about the future of the A.I. boom.`\
+https://www.nytimes.com/2026/11/20/business/dealbook/anthropic-ipo-ai-rally.html
+
+**What Are King Tides, and Why Is Everyone Talking About Them?**\
+`Because of El Niño, the Pacific Ocean is already higher than normal. This year, that could lead to some especially high tides.`\
+https://www.nytimes.com/2026/11/20/weather/what-is-a-king-tide.html
+
+**Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
+`The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year. Anthropic’s shares tumbled on their second day of trading, part of a broad sell-off in technology shares.`\
+https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
+
 **Anthropic Shares Slip as AI and Tech Stock Sell-Off Continues**\
 `The S&P 500 and Nasdaq were both on course for their worst weekly performances in over a year, as a broad sell-off in technology shares carried into Friday.`\
 https://www.nytimes.com/2026/11/20/business/anthropic-ai-stocks-sp500.html
