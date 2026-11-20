@@ -1,3 +1,7 @@
+**Live Updates: Trump to Speak on China Trip and Trade**\
+`President Trump is set to hold a news conference on Friday, his first since he met with the leaders of Russia and China during a visit to Asia.`\
+https://www.nytimes.com/live/2026/11/20/us/trump-news-conference
+
 **The War in Ukraine Is Killing Wildlife**\
 `The war in Ukraine, now in its fifth year, is taking a heavy toll on the country’s wildlife. If not outright killed in the fighting, wild animals are often caught in anti-drone netting or razor wire, and their natural habitats have been drastically transformed.`\
 https://www.nytimes.com/video/world/europe/100000011297989/ukraine-war-killing-wildlife.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/20/arts/jan-van-eyck-portraits-exhib
 **John Grisham: Scott Colom Makes Me Proud of Mississippi**\
 `As a kid, I once watched the Ku Klux Klan burn a cross in my hometown in Mississippi. Sixty years later, I look forward to shaking Mr. Colom’s hand and telling him I’m proud he’s my senator.`\
 https://www.nytimes.com/2026/11/20/opinion/colom-mississippi-grisham.html
-
-**The U.A.E. Quietly Built Two Bases in Somalia. Now the U.S. Is Eyeing Them**\
-`Satellite images reveal the Emiratis transformed civilian airports in breakaway regions of Somalia into large military facilities. Flight tracking data shows the U.S. has made visits.`\
-https://www.nytimes.com/video/world/africa/100000011290919/the-uae-quietly-built-two-bases-in-somalia-now-the-us-is-eyeing-them.html
 
