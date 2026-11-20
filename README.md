@@ -1,3 +1,7 @@
+**Fiona the Hippo of Internet Fame Dies**\
+`Cinncinati Zoo’s Nile hippopotamus died about two weeks after eating a child’s knit hat.`\
+https://www.nytimes.com/video/us/100000011297326/fiona-the-hippo-of-internet-fame-dies.html
+
 **Senate Passes Major Permitting Bill to Speed Up Energy Projects**\
 `The bill would overhaul federal environmental laws to make it easier to build everything from gas pipelines to wind farms. But it faces hurdles in the House.`\
 https://www.nytimes.com/2026/11/19/climate/senate-passes-baaja-permitting-bill-energy.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/19/books/review/new-recommended-books.html
 **China Welcomes Japan at APEC With Song Inspired by Protests Against the U.S.**\
 `China welcomed Prime Minister Sanae Takaichi of Japan with “Ue o Muite Arukou,” a song that was inspired partly by protests against the U.S. presence in Japan after World War II.`\
 https://www.nytimes.com/video/world/asia/100000011295938/china-japan-xi-takaichi-trump-apec.html
-
-**Of Thee I Sing**\
-`Marian Anderson was seen as a symbol, but not as herself.`\
-https://www.nytimes.com/2026/11/19/opinion/marian-anderson-discrimination-talent.html
 
 **Anthropic’s Value Surges After Multibillion-Dollar I.P.O.**\
 `Investor enthusiasm for the artificial intelligence giant initially sent its share price surging as much as 38 percent. It later fell back, after briefly pushing the company’s market value to about $2 trillion.`\
