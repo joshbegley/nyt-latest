@@ -1,3 +1,7 @@
+**What to Know About the Planned Explosion in Iowa**\
+`The Army intends to detonate a stockpile of lead azide on Monday at a facility in southeastern Iowa, sending a plume of toxic lead dust into the nearby community.`\
+https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explosion-in-iowa.html
+
 **Like Fiona the Hippo, Internet Famous Animals Can Bring Value to Zoos**\
 `Animal videos have long been popular online, but as it did with Fiona, social media can foster deeper connections that are valuable to zoos.`\
 https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html

@@ -1,3 +1,7 @@
+**What to Know About the Planned Explosion in Iowa**\
+`The Army intends to detonate a stockpile of lead azide on Monday at a facility in southeastern Iowa, sending a plume of toxic lead dust into the nearby community.`\
+https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explosion-in-iowa.html
+
 **What’s Big, Hairy and Bipedal? Bigfoot’s Paper Trail Is Now Public.**\
 `This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
 https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/obituaries/david-sanders-dead.html
 **Read These Books Before They Hit Screens in December**\
 `Jennifer Harlan, an editor at The New York Times Book Review, recommends three books to read before their on-screen adaptations premiere in December.`\
 https://www.nytimes.com/video/books/100000011268506/read-these-books-before-they-hit-screens-in-december.html
-
-**The California Grandparents Accused of Killing Jonathan McKinsey, Their Son-in-Law**\
-`Jonathan McKinsey, 40, was gunned down in a suburban park after spending time with his three children. His wife’s parents have been charged with murder.`\
-https://www.nytimes.com/2026/11/21/us/jonathan-mckinsey-shooting-in-laws.html
 
