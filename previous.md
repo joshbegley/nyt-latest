@@ -1,3 +1,7 @@
+**Hakeem Jeffries Thinks He’s the Man for This Moment**\
+`The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
+https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
+
 **Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
 `The A.I. giant broke records with its initial public offering this week before a rocky first full day of trading, as the markets plunged on worries about artificial intelligence spending.`\
 https://www.nytimes.com/2026/11/21/business/anthropics-debut-shows-the-disconnect-between-wall-street-and-silicon-valley.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/20/world/americas/earthquake-peru-ma
 **Takeaways From Trump’s Post-Trip News Conference**\
 `President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
 https://www.nytimes.com/2026/11/20/us/politics/trump-news-conference-asia-trip.html
-
-**Nvidia Said to Face S.E.C. Probe Into Its Accounting Practices**\
-`Questions around the company’s accounting had surfaced amid revelations about its questionable chip sales in Asia.`\
-https://www.nytimes.com/2026/11/20/business/nvidia-sec-accounting.html
 
