@@ -1,3 +1,11 @@
+**F.B.I. Is Still Looking for Evidence That Georgia’s 2020 Election Was Rigged**\
+`On Friday, investigators interviewed the former head of elections in Fulton County. Their questions suggested that they are still pursuing debunked claims of widespread fraud.`\
+https://www.nytimes.com/2026/11/20/us/fbi-investigation-fulton-county-2020-election.html
+
+**It’s a Bill on Energy Permits, but Trump’s Pet Projects Are Part of the Debate**\
+`The pervasive presence of the president hovers over the bipartisan legislation to speed up construction of energy projects that are advancing through Congress.`\
+https://www.nytimes.com/2026/11/20/us/politics/baaja-permitting-bill-trump.html
+
 **Fiona the Hippo Died After Eating a Hat. Some Want Justice.**\
 `Social media commenters have called for investigations, the release of zoo video footage and punishment for the parents of a child whose hat Fiona ingested.`\
 https://www.nytimes.com/2026/11/20/us/fiona-hippo-internet-justice.html
@@ -19,7 +27,7 @@ https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
 https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html
 
 **Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
-`The defendant, Jonathan Rinderknecht, was found guilty on two counts. It was the second time he was tried in federal court in connection with the blaze. His first trial ended in a mistrial.`\
+`The defendant, Jonathan Rinderknecht, was found guilty on two counts. The verdict provides a measure of accountability for a painful chapter in recent L.A. history.`\
 https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
 
 **Leaked Draft Report Finds ‘Catastrophic’ Training Failures at ICE**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.h
 **It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
 `A fashion gimmick that works. Kinda.`\
 https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html
-
-**L.A. Aims to Fence Off Park That’s Become Symbol of City’s Struggles**\
-`MacArthur Park near downtown Los Angeles has long been a disquieting example of the city’s inability to address drug sales, homelessness and people dealing with mental health issues.`\
-https://www.nytimes.com/2026/11/20/us/los-angeles-macarthur-park-fence.html
-
-**Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
-`A streaming sequel to the documentary that was released in January follows Melania Trump in the days after her husband’s second inauguration.`\
-https://www.nytimes.com/2026/11/20/arts/television/melania-the-series-takeaways.html
 

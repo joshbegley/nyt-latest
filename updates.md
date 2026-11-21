@@ -1,3 +1,15 @@
+**F.B.I. Is Still Looking for Evidence That Georgia’s 2020 Election Was Rigged**\
+`On Friday, investigators interviewed the former head of elections in Fulton County. Their questions suggested that they are still pursuing debunked claims of widespread fraud.`\
+https://www.nytimes.com/2026/11/20/us/fbi-investigation-fulton-county-2020-election.html
+
+**It’s a Bill on Energy Permits, but Trump’s Pet Projects Are Part of the Debate**\
+`The pervasive presence of the president hovers over the bipartisan legislation to speed up construction of energy projects that are advancing through Congress.`\
+https://www.nytimes.com/2026/11/20/us/politics/baaja-permitting-bill-trump.html
+
+**Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
+`The defendant, Jonathan Rinderknecht, was found guilty on two counts. The verdict provides a measure of accountability for a painful chapter in recent L.A. history.`\
+https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
+
 **Leaked Draft Report Finds ‘Catastrophic’ Training Failures at ICE**\
 `The Trump administration graduated thousands of new ICE officers through a training regiment that one instructor called a “catastrophic failure,” according to a draft copy of a Department of Homeland Security inspector general’s report obtained by the Times. Our immigration reporter Hamed Aleaziz explains.`\
 https://www.nytimes.com/video/us/100000011291007/leaked-draft-report-finds-catastrophic-training-failures-at-ice.html
