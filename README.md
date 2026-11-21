@@ -1,3 +1,7 @@
+**From the Front Page: On Nov. 21, 1995, Bosnia, Croatia and Serbia Agree to Peace**\
+`The leaders of the Balkan states reached the Dayton peace agreement, ending nearly four years of war in Bosnia that killed more than 100,000 people.`\
+https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-bosnia-croatia-and-serbia-agree-to-peace.html
+
 **Mishaps**\
 `Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
 https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
 **People Are Anxious About Major Tech Failures. Preppers Are Cashing In.**\
 `Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
 https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
-
-**Why It Took 13 Years to Make G.T.A. VI**\
-`Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
-https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
 
