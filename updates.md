@@ -1,3 +1,7 @@
+**Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
+`The salt is a flaky favorite of food influencers and famous chefs. But a revelation this week raised questions about what makes artisanal “artisanal.”`\
+https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
+
 **Hakeem Jeffries Thinks He’s the Man for This Moment**\
 `The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
 https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
