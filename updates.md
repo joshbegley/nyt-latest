@@ -1,3 +1,7 @@
+**Federal Court Halts Pregnant Workers’ Protection Law**\
+`The Fifth Circuit Court of Appeals said the law was unconstitutional because it was passed with proxy voting during the Covid pandemic. It is expected to be appealed to the Supreme Court.`\
+https://www.nytimes.com/2026/11/21/us/politics/federal-court-halts-pregnant-workers-protection-law.html
+
 **Quote of the Day: For Rohingya Who Escaped, the Misery Lingers**\
 `Quote of the Day for Saturday, November 20, 2026.`\
 https://www.nytimes.com/2026/11/21/pageoneplus/quote-of-the-day-for-rohingya-who-escaped-the-misery-lingers.html
