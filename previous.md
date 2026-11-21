@@ -1,3 +1,7 @@
+**Top Drug Kingpin Is Captured by Mexican Army as Gunfire Erupts**\
+`The arrest of Fausto Isidro Meza Flores, who is known as El Chapo Isidro and was one of the F.B.I.’s 10 most wanted, was a victory for the Mexican government.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-captured-drugs.html
+
 **A Chinese Tech Hub Offers a Peek at the Electric Cars Headed for Canada**\
 `Prime Minister Mark Carney attended an economic summit in the city of Shenzhen, where electric vehicles rule the hectic, but largely silent, road.`\
 https://www.nytimes.com/2026/11/21/world/canada/carney-china-electric-vehicles-tariffs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
 **Judge Approves $7 Billion Settlement Over Claims That Roundup Caused Cancer**\
 `The ruling, in a nationwide class-action suit, is expected to end tens of thousands of lawsuits by people claiming that Roundup caused non-Hodgkin lymphoma.`\
 https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-over-claims-that-roundup-caused-cancer.html
-
-**A Prosecutor Got Drunk to Help the Police. Things Got Out of Hand.**\
-`The man drank too much while participating in a “wet lab” to help officers recognize inebriation — and wound up the subject of an internal investigation, officials said.`\
-https://www.nytimes.com/2026/11/20/us/drunk-officers-training-maricopa-county-arizona.html
 

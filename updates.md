@@ -1,3 +1,7 @@
+**Top Drug Kingpin Is Captured by Mexican Army as Gunfire Erupts**\
+`The arrest of Fausto Isidro Meza Flores, who is known as El Chapo Isidro and was one of the F.B.I.’s 10 most wanted, was a victory for the Mexican government.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-captured-drugs.html
+
 **A Chinese Tech Hub Offers a Peek at the Electric Cars Headed for Canada**\
 `Prime Minister Mark Carney attended an economic summit in the city of Shenzhen, where electric vehicles rule the hectic, but largely silent, road.`\
 https://www.nytimes.com/2026/11/21/world/canada/carney-china-electric-vehicles-tariffs.html
