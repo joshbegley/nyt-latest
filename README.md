@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/21/world/europe/un-lethal-autonomous-weapons.htm
 `The chief executive of Tesla and SpaceX spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/21/business/dealbook/elon-musk-dealbook-summit.html
 
-**Trump, Xi and Putin’s New World Order**\
+**Advice to Democrats: Impeach Trump’s Cabinet**\
 `Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
 https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
 
@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democr
 `But should daughters bear the brunt of their folks’ care?`\
 https://www.nytimes.com/2026/11/21/opinion/sister-snl-family-care-parents.html
 
-**I’m a Hollywood Agent. We Can Fix the Problem of A.I. Deepfakes.**\
+**Tom Hanks Got A.I.-Cloned. Here’s How We Stop It From Happening to You.**\
 `Our copyright law needs tweaks for the A.I. age.`\
 https://www.nytimes.com/2026/11/21/opinion/ai-clones-copyright-law.html
 
