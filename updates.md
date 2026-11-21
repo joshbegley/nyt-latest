@@ -1,3 +1,11 @@
+**Who Is the Mexican Drug Kingpin Known as El Chapo Isidro?**\
+`The kingpin, Fausto Isidro Meza Flores, was captured in a violent operation in Mexico. He was one of the F.B.I.’s 10 most wanted fugitives.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-drug-kingpin.html
+
+**Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
+`The A.I. giant broke records with its initial public offering this week before a rocky first full day of trading, as the markets plunged on worries about artificial intelligence spending.`\
+https://www.nytimes.com/2026/11/21/business/anthropic-stock-wall-street-silicon-valley.html
+
 **How I’m Tackling Thanksgiving Desserts This Year**\
 `What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
 https://www.nytimes.com/2026/11/21/dining/thanksgiving-desserts-planning-checklist.html
