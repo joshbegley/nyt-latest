@@ -1,3 +1,7 @@
+**Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\
+`The first storm is expected to arrive on Sunday night, with a second storm potentially coming on Wednesday.`\
+https://www.nytimes.com/2026/11/21/weather/northeast-storm-thanksgiving.html
+
 **The Penny Is Dead. Now It’s Official.**\
 `President Trump signed a law on Friday formally putting the penny out of mint, a year after it stopped being struck.`\
 https://www.nytimes.com/2026/11/21/us/politics/penny-mint-trump-common-cent-act.html
