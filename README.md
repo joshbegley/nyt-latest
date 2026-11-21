@@ -1,3 +1,7 @@
+**Trump Got Together With the Boys**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/video/opinion/100000011295825/trump-got-together-with-the-boys.html
+
 **Who Owns Thanksgiving?**\
 `How to claim a stake in the holiday, even if you’re not hosting.`\
 https://www.nytimes.com/2026/11/21/briefing/who-owns-thanksgiving.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/world/europe/in-frances-angry-autumn-tv-news-
 **From the Front Page: On Nov. 21, 1995, Bosnia, Croatia and Serbia Agree to Peace**\
 `The leaders of the Balkan states reached the Dayton peace agreement, ending nearly four years of war in Bosnia that killed more than 100,000 people.`\
 https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-bosnia-croatia-and-serbia-agree-to-peace.html
-
-**Mishaps**\
-`Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
-https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
 
