@@ -1,3 +1,7 @@
+**The Penny Is Dead. Now It’s Official.**\
+`President Trump signed a law on Friday formally putting the penny out of mint, a year after it stopped being struck.`\
+https://www.nytimes.com/2026/11/21/us/politics/penny-mint-trump-common-cent-act.html
+
 **On the Fritz**\
 `Curran Eggertson’s debut New York Times puzzle will send solvers scrambling.`\
 https://www.nytimes.com/2026/11/21/crosswords/daily-puzzle-2026-11-22.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/television/meghann-fahy-good-daughter.ht
 **My Condo’s Management Company Is Inept. Could A.I. Do a Better Job?**\
 `Just because a company advertises A.I.-driven efficiencies doesn’t mean those efficiencies will be passed along to you.`\
 https://www.nytimes.com/2026/11/21/realestate/my-condos-management-company-is-inept-could-ai-do-a-better-job.html
-
-**David Sanders Has Died. As a Pilot, He Fought Off a Hijacker’s Violent Attack.**\
-`When a disgruntled employee tried to kill him and his two crew members in 1994, a midair battle ensued. He has died at 82.`\
-https://www.nytimes.com/2026/11/21/obituaries/david-sanders-dead.html
 

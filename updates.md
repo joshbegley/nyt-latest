@@ -1,3 +1,7 @@
+**The Penny Is Dead. Now It’s Official.**\
+`President Trump signed a law on Friday formally putting the penny out of mint, a year after it stopped being struck.`\
+https://www.nytimes.com/2026/11/21/us/politics/penny-mint-trump-common-cent-act.html
+
 **On the Fritz**\
 `Curran Eggertson’s debut New York Times puzzle will send solvers scrambling.`\
 https://www.nytimes.com/2026/11/21/crosswords/daily-puzzle-2026-11-22.html
