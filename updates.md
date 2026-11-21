@@ -1,3 +1,7 @@
+**How I’m Tackling Thanksgiving Desserts This Year**\
+`What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
+https://www.nytimes.com/2026/11/21/dining/how-im-tackling-thanksgiving-desserts-this-year.html
+
 **Advice to Democrats: Impeach Trump’s Cabinet**\
 `Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
 https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
