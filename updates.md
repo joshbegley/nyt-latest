@@ -1,3 +1,11 @@
+**Fiona the Hippo Died After Eating a Hat. Some Want Justice.**\
+`Social media commenters have called for investigations, the release of zoo video footage and punishment for the parents of a child whose hat Fiona ingested.`\
+https://www.nytimes.com/2026/11/20/us/fiona-hippo-internet-justice.html
+
+**Judge Denies Release of Immigrant Shot by ICE in New York**\
+`The Dominican man wounded by an Immigration and Customs Enforcement agent last month must remain in detention, a federal judge ruled on Friday.`\
+https://www.nytimes.com/2026/11/20/nyregion/nyc-ice-shooting-oscar-belgal-ruling.html
+
 **Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
 `The defendant, Jonathan Rinderknecht, was found guilty on two counts. It was the second time he was tried in federal court in connection with the blaze. His first trial ended in a mistrial.`\
 https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
