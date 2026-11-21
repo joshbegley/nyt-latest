@@ -1,3 +1,19 @@
+**10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
+`A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
+https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
+
+**Before a Fatal Building Collapse, Officials Signed Off on a Dubious Plan**\
+`Experts say that the New York City Buildings Department approved a risky method of shoring up a structure next to a Brooklyn construction site. Months later, it collapsed.`\
+https://www.nytimes.com/2026/11/21/nyregion/flatbush-building-collapse-oversight.html
+
+**NYT Spelling Bee Answers for November 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/21/crosswords/spelling-bee-forum.html
+
+**How a Liberal Fox News Host Braced for a Game-Changing Election Day**\
+`Jessica Tarlov, co-host of “The Five,” spent the day before the midterm elections a bit nervous but hopeful as she sparred with her conservative colleagues.`\
+https://www.nytimes.com/interactive/2026/11/21/nyregion/routine-jessica-tarlov.html
+
 **Federal Court Halts Pregnant Workers’ Protection Law**\
 `The Fifth Circuit Court of Appeals said the law was unconstitutional because it was passed with proxy voting during the Covid pandemic. It is expected to be appealed to the Supreme Court.`\
 https://www.nytimes.com/2026/11/21/us/politics/federal-court-halts-pregnant-workers-protection-law.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
 **Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
 `The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
 https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
-
-**Nissan Shuts Down System Used for Repairs After Hack Attempt**\
-`The outage, which began a week ago, could delay repairs involving vehicle electronics and key fobs.`\
-https://www.nytimes.com/2026/11/20/business/nissan-reapirs-hack-technology.html
-
-**Devilish or Delightful? Krampus Is Banned From a Christmas Parade.**\
-`After an appearance last year, a float depicting Krampus, St. Nicholas’s evil accomplice, will not be allowed in an Ontario town’s Santa Claus parade on Saturday.`\
-https://www.nytimes.com/2026/11/20/world/canada/krampus-christmas-parade-ban-ontario.html
-
-**As a Storm Floods Florida, Heavy Rain Will Creep Up the East Coast**\
-`A potential tropical storm off the coast of Florida is expected to move up the coast and could snarl Thanksgiving week travel.`\
-https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-thanksgiving.html
-
-**Playbill Removes Casting Call for George Floyd Musical Album**\
-`The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
-https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-broadway.html
 
