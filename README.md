@@ -1,3 +1,7 @@
+**Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\
+`The first storm is expected to arrive on Sunday night, with a second storm potentially coming on Wednesday.`\
+https://www.nytimes.com/2026/11/21/weather/northeast-storm-thanksgiving.html
+
 **The Penny Is Dead. Now It’s Official.**\
 `President Trump signed a law on Friday formally putting the penny out of mint, a year after it stopped being struck.`\
 https://www.nytimes.com/2026/11/21/us/politics/penny-mint-trump-common-cent-act.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/business/used-car-auctions-manheim-prices.htm
 **Meghann Fahy Is a Self-Proclaimed Water Snob**\
 `“I really feel like I can taste water now in a way that I didn’t used to be able to,” says the actress, now starring in “The Good Daughter.”`\
 https://www.nytimes.com/2026/11/21/arts/television/meghann-fahy-good-daughter.html
-
-**My Condo’s Management Company Is Inept. Could A.I. Do a Better Job?**\
-`Just because a company advertises A.I.-driven efficiencies doesn’t mean those efficiencies will be passed along to you.`\
-https://www.nytimes.com/2026/11/21/realestate/my-condos-management-company-is-inept-could-ai-do-a-better-job.html
 
