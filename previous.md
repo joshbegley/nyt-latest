@@ -1,6 +1,6 @@
 **Map: Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/11/20/world/americas/20wea-quake-tracker-peru-nytcz7ry-v2.html
+https://www.nytimes.com/interactive/2026/11/20/world/americas/earthquake-peru-map-tracker.html
 
 **Takeaways From Trump’s Post-Trip News Conference**\
 `President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
