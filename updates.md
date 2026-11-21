@@ -1,3 +1,11 @@
+**Washington State Fines Company $9 Million Over Fatal Tank Implosion**\
+`Investigators said the company, Nippon Dynawave Packaging, knew conditions at its plant in Longview, Wash., were unsafe. The company said it would appeal.`\
+https://www.nytimes.com/2026/11/20/us/washington-state-fatal-tank-implosion-fine.html
+
+**Trump Administration Says Army Can Blow Up Lead-Laced Explosives**\
+`The detonation, now set for Monday, could create a cloud of lead dust stretching for miles over homes and farms, the Army has said. Environmental groups are seeking an emergency stay.`\
+https://www.nytimes.com/2026/11/20/climate/iowa-lead-plume-ammunition-explosion.html
+
 **Map: Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/11/20/world/americas/earthquake-peru-map-tracker.html

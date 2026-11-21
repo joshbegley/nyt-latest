@@ -1,3 +1,7 @@
+**A Prosecutor Got Drunk to Help the Police. Things Got Out of Hand.**\
+`The man drank too much while participating in a “wet lab” to help officers recognize inebriation — and wound up the subject of an internal investigation, officials said.`\
+https://www.nytimes.com/2026/11/20/us/drunk-officers-training-maricopa-county-arizona.html
+
 **Washington State Fines Company $9 Million Over Fatal Tank Implosion**\
 `Investigators said the company, Nippon Dynawave Packaging, knew conditions at its plant in Longview, Wash., were unsafe. The company said it would appeal.`\
 https://www.nytimes.com/2026/11/20/us/washington-state-fatal-tank-implosion-fine.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
 **Jennifer Lopez No Longer Wants to Love in Public**\
 `On ‘Popcast’ Jennifer Lopez, whose relationship with and split from Ben Affleck sparked lots of media coverage, speaks about navigating her love life in the public eye.`\
 https://www.nytimes.com/video/podcasts/100000011291364/jennifer-lopez-no-longer-wants-to-love-in-public.html
-
-**Stream These 5 Movies and Shows Before They Leave Netflix in December**\
-`The workplace comedy “9 to 5” and the Shonda Rhimes hit “Scandal” are among the titles leaving for U.S. subscribers next month.`\
-https://www.nytimes.com/2026/11/20/arts/television/netflix-expiring-december.html
 
