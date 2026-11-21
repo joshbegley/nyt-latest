@@ -1,3 +1,7 @@
+**The Army Rejected a Safer Option to Destroy Lead-Laced Explosives in Iowa**\
+`The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
+https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
+
 **Trump Moves to Restrict Congressional Oversight of Contractors**\
 `The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
 https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
