@@ -1,3 +1,7 @@
+**A Prosecutor Got Drunk to Help the Police. Things Got Out of Hand.**\
+`The man drank too much while participating in a “wet lab” to help officers recognize inebriation — and wound up the subject of an internal investigation, officials said.`\
+https://www.nytimes.com/2026/11/20/us/drunk-officers-training-maricopa-county-arizona.html
+
 **Washington State Fines Company $9 Million Over Fatal Tank Implosion**\
 `Investigators said the company, Nippon Dynawave Packaging, knew conditions at its plant in Longview, Wash., were unsafe. The company said it would appeal.`\
 https://www.nytimes.com/2026/11/20/us/washington-state-fatal-tank-implosion-fine.html
