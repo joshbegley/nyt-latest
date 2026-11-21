@@ -1,3 +1,7 @@
+**Make Your Sunday Breakfast on Saturday Night**\
+`Smart make-ahead dishes, like this herby cottage cheese egg bake, take the stress out of the weekend-morning scramble.`\
+https://www.nytimes.com/2026/11/21/dining/make-your-sunday-breakfast-on-saturday-night.html
+
 **How I’m Tackling Thanksgiving Desserts This Year**\
 `What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
 https://www.nytimes.com/2026/11/21/dining/how-im-tackling-thanksgiving-desserts-this-year.html
@@ -66,8 +70,8 @@ https://www.nytimes.com/2026/11/21/crosswords/strands-sidekick-994.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
 https://www.nytimes.com/2026/11/21/crosswords/wordle-review-1982.html
 
-**Hakeem Jeffries Thinks He’s the Man for This Moment**\
-`The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
+**Hakeem Jeffries on Trump, Stephen Miller, AIPAC and the Road Ahead**\
+`The Democratic nominee for House speaker will have a challenging job. We asked him how he plans to lead.`\
 https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
 
 **Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/theater/leila-slimani-resurrection-comedie-fr
 **A Short Workout to Strengthen Your Neck**\
 `Build muscle and fight the effects of bad posture with a few simple exercises.`\
 https://www.nytimes.com/2026/11/21/well/move/neck-strengthening-workout.html
-
-**A Punk Rocker’s Painful Wait for Wheelchair Repairs**\
-`Two private equity-backed companies now dominate the U.S. wheelchair market. For users, extended repair times can be dangerous and frustrating.`\
-https://www.nytimes.com/2026/11/21/us/wheelchair-repair-delays-public-equity.html
 
