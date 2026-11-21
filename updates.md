@@ -1,3 +1,7 @@
+**Elon Musk on His Politics, a Potential Merger and Ukraine**\
+`The chief executive of Tesla and SpaceX spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/21/business/dealbook/elon-musk-dealbook-summit.html
+
 **Trump, Xi and Putin’s New World Order**\
 `Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
 https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
