@@ -1,3 +1,19 @@
+**10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
+`A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
+https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
+
+**Before a Fatal Building Collapse, Officials Signed Off on a Dubious Plan**\
+`Experts say that the New York City Buildings Department approved a risky method of shoring up a structure next to a Brooklyn construction site. Months later, it collapsed.`\
+https://www.nytimes.com/2026/11/21/nyregion/flatbush-building-collapse-oversight.html
+
+**NYT Spelling Bee Answers for November 21, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/21/crosswords/spelling-bee-forum.html
+
+**How a Liberal Fox News Host Braced for a Game-Changing Election Day**\
+`Jessica Tarlov, co-host of “The Five,” spent the day before the midterm elections a bit nervous but hopeful as she sparred with her conservative colleagues.`\
+https://www.nytimes.com/interactive/2026/11/21/nyregion/routine-jessica-tarlov.html
+
 **Federal Court Halts Pregnant Workers’ Protection Law**\
 `The Fifth Circuit Court of Appeals said the law was unconstitutional because it was passed with proxy voting during the Covid pandemic. It is expected to be appealed to the Supreme Court.`\
 https://www.nytimes.com/2026/11/21/us/politics/federal-court-halts-pregnant-workers-protection-law.html
