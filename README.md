@@ -1,3 +1,7 @@
+**The Army Plans to Blow Up Tons of Toxic Explosives. It Rejected a Safer Option.**\
+`The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
+https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
+
 **Tech Outages Are Only the Beginning. A.I. Will Bring More Disruptions.**\
 `Cybersecurity has been an afterthought since the early days of the internet. Now A.I. is uncovering dormant problems, making the bill come due for decades of vulnerable code.`\
 https://www.nytimes.com/2026/11/21/us/politics/tech-outages-ai-disruptions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-
 **Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
 `Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
 https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
-
-**Why Nostalgia for Tamagotchis, the Virtual Pets, Won’t Die**\
-`Millennials are answering the beeping call of the pocket-size game that caused a sensation 30 years ago. But analog-craving Gen Zers are, too.`\
-https://www.nytimes.com/2026/11/21/arts/tamagotchis-comeback.html
 
