@@ -1,3 +1,7 @@
+**Elon Musk on His Politics, a Potential Merger and Ukraine**\
+`The chief executive of Tesla and SpaceX spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/21/business/dealbook/elon-musk-dealbook-summit.html
+
 **Trump, Xi and Putin’s New World Order**\
 `Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
 https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-
 **Before a Fatal Building Collapse, Officials Signed Off on a Dubious Plan**\
 `Experts say that the New York City Buildings Department approved a risky method of shoring up a structure next to a Brooklyn construction site. Months later, it collapsed.`\
 https://www.nytimes.com/2026/11/21/nyregion/flatbush-building-collapse-oversight.html
-
-**NYT Spelling Bee Answers for November 21, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/21/crosswords/spelling-bee-forum.html
 
