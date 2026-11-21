@@ -1,3 +1,7 @@
+**The Army Plans to Blow Up Tons of Toxic Explosives in Iowa. It Rejected a Safer Option.**\
+`The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
+https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
+
 **Pentagon Issued Memo Limiting ‘Social Activities’ With Canadian Military**\
 `The latest salvo in the fraught U.S. relationship with Canada has not affected their vast joint military operation, including the shared airspace command, NORAD.`\
 https://www.nytimes.com/2026/11/21/world/canada/defense-department-canada-military-trump.html
