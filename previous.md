@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, Documents Life With Cancer in BBC Film**\
+`“Cancer does change you,” Catherine, who is in remission, says in a trailer for the film. It will be released this month.`\
+https://www.nytimes.com/2026/11/21/world/europe/princess-kate-bbc-cancer-film.html
+
 **U.N. Fails to Regulate Lethal Autonomous Weapons, but Plans to Try Again**\
 `Major military powers like the United States and Russia expressed strong resistance to binding restrictions.`\
 https://www.nytimes.com/2026/11/21/world/europe/un-lethal-autonomous-weapons.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/us/wheelchair-repair-delays-public-equity.htm
 **What Really Happened When Daniel Day-Lewis Walked Offstage in 1989**\
 `The moment is recreated in a new drama, “Elsinore,” about Ian Charleson, the dying actor who succeeded him as Hamlet.`\
 https://www.nytimes.com/2026/11/21/movies/elsinore-daniel-day-lewis-hamlet.html
-
-**10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
-`A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
-https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
 

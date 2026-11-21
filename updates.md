@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, Documents Life With Cancer in BBC Film**\
+`“Cancer does change you,” Catherine, who is in remission, says in a trailer for the film. It will be released this month.`\
+https://www.nytimes.com/2026/11/21/world/europe/princess-kate-bbc-cancer-film.html
+
 **U.N. Fails to Regulate Lethal Autonomous Weapons, but Plans to Try Again**\
 `Major military powers like the United States and Russia expressed strong resistance to binding restrictions.`\
 https://www.nytimes.com/2026/11/21/world/europe/un-lethal-autonomous-weapons.html
