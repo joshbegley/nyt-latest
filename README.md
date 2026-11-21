@@ -1,3 +1,43 @@
+**6 Podcasts for Cozy Autumn Evenings**\
+`These shows full of wholesome recipes, nature walks and compelling audio fiction will help see you through to winter’s arrival.`\
+https://www.nytimes.com/2026/11/21/arts/6-podcasts-cozy-autumn-evenings.html
+
+**A Night of Sweets and Saris for the Diwali Holiday**\
+`Guests, many of them from New York City by way of India, were in a festive mood at this event celebrating Diwali. It’s no wonder: The holiday is all “about finding light in the darkness.”`\
+https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
+
+**This Event Designer Can Help You Find Your Quirky, Highly Specific Wedding Style**\
+`Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
+https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
+
+**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
+`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
+https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
+
+**Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
+`Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
+https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
+
+**Why Nostalgia for Tamagotchis, the Virtual Pets, Won’t Die**\
+`Millennials are answering the beeping call of the pocket-size game that caused a sensation 30 years ago. But analog-craving Gen Zers are, too.`\
+https://www.nytimes.com/2026/11/21/arts/tamagotchis-comeback.html
+
+**With Tolstoy as Her Guide, a Hit Novelist Stages a ‘Resurrection’**\
+`Leïla Slimani, the best-selling author of “The Perfect Nanny,” long struggled with writing dialogue. Now, her first play is opening at the Comédie-Française in Paris.`\
+https://www.nytimes.com/2026/11/21/theater/leila-slimani-resurrection-comedie-francaise.html
+
+**A Short Workout to Strengthen Your Neck**\
+`Build muscle and fight the effects of bad posture with a few simple exercises.`\
+https://www.nytimes.com/2026/11/21/well/move/neck-strengthening-workout.html
+
+**A Punk Rocker’s Painful Wait for Wheelchair Repairs**\
+`Two private equity-backed companies now dominate the U.S. wheelchair market. For users, extended repair times can be dangerous and frustrating.`\
+https://www.nytimes.com/2026/11/21/us/wheelchair-repair-delays-public-equity.html
+
+**What Really Happened When Daniel Day-Lewis Walked Offstage in 1989**\
+`The moment is recreated in a new drama, “Elsinore,” about Ian Charleson, the dying actor who succeeded him as Hamlet.`\
+https://www.nytimes.com/2026/11/21/movies/elsinore-daniel-day-lewis-hamlet.html
+
 **10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
 `A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
 https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
@@ -157,44 +197,4 @@ https://www.nytimes.com/2026/11/20/world/europe/denmark-russia-ukraine-rapper-as
 **H.I.V. Research Networks May Again Seek Federal Funding, With a Twist**\
 `The Trump administration restarted the process for funding four large research networks after postponing it earlier this year.`\
 https://www.nytimes.com/2026/11/20/science/hiv-research-funding-nih.html
-
-**Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
-`Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
-https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
-
-**Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
-`Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
-https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
-
-**Designers Accuse Ssense of Misrepresenting Clothes Online**\
-`After designers accused the luxury retailer Ssense of misrepresenting their clothes, the company said it relied on a “virtual try-on” program for some online imagery.`\
-https://www.nytimes.com/2026/11/20/style/ssense-ai-rcos-sage-nation.html
-
-**Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
-`President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
-https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html
-
-**The Local: How a news start-up broke the Uber assault**\
-`Plus, turkey time approaches.`\
-https://www.nytimes.com/2026/11/20/briefing/the-local-how-a-news-start-up-broke-the-uber-assault.html
-
-**Fact-Checking Trump’s News Conference After His Asia Trip**\
-`President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
-https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html
-
-**Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
-`Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
-https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
-
-**Poland Says Russian Objects Crashed in Its Territory**\
-`Poland said on Friday that three Russian objects, including at least one missile, crashed into Polish territory. This incident came as Poland was hosting a two-week military exercise by Ukraine’s allies.`\
-https://www.nytimes.com/video/world/europe/100000011298424/poland-russia-crash.html
-
-**Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
-`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy said it would revise its policy.`\
-https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
-
-**Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
-`The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
-https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
 
