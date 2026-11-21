@@ -1,3 +1,7 @@
+**U.N. Fails to Regulate Lethal Autonomous Weapons, but Plans to Try Again**\
+`Major military powers like the United States and Russia expressed strong resistance to binding restrictions.`\
+https://www.nytimes.com/2026/11/21/world/europe/un-lethal-autonomous-weapons.html
+
 **Elon Musk on His Politics, a Potential Merger and Ukraine**\
 `The chief executive of Tesla and SpaceX spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/21/business/dealbook/elon-musk-dealbook-summit.html
