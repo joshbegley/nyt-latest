@@ -1,3 +1,19 @@
+**A Chinese Tech Hub Offers a Peek at the Electric Cars Headed for Canada**\
+`Prime Minister Mark Carney attended an economic summit in the city of Shenzhen, where electric vehicles rule the hectic, but largely silent, road.`\
+https://www.nytimes.com/2026/11/21/world/canada/carney-china-electric-vehicles-tariffs.html
+
+**NYT Connections Answers for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/connections-companion-1260.html
+
+**NYT Strands Hints for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/strands-sidekick-994.html
+
+**Today’s Wordle Hints for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/wordle-review-1982.html
+
 **Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
 `The salt is a flaky favorite of food influencers and famous chefs. A revelation this week raised questions about what makes artisanal “artisanal.”`\
 https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
