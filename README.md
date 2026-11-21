@@ -1,3 +1,7 @@
+**Trump Administration Says Army Can Blow Up Lead-Laced Explosives**\
+`The detonation, now set for Monday, could create a cloud of lead dust stretching for miles over homes and farms, the Army has said. Environmental groups are seeking an emergency stay.`\
+https://www.nytimes.com/2026/11/20/climate/iowa-lead-plume-ammunition-explosion.html
+
 **Map: Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://www.nytimes.com/interactive/2026/11/20/world/americas/earthquake-peru-map-tracker.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/arts/television/netflix-expiring-december.htm
 **Experimental Drugs for the Sickest Patients**\
 `Three doctors respond to “Could a Psychedelic Trip Help My Dying Patients?,” a guest essay by Dr. Daniela J. Lamas. Also: The Senate Democratic contest.`\
 https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.html
-
-**Alice Huang, Accused of Spying on Nvidia’s CEO, Is Linked to Firms With Ties to China’s Military**\
-`Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
-https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
 
