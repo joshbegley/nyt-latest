@@ -1,3 +1,7 @@
+**Judith Blegen, Well-Loved Met Opera Soprano, Dies at 85**\
+`After her company debut in 1970, she sang 20 roles and almost 300 performances over the next two decades, specializing in bright-voiced young women.`\
+https://www.nytimes.com/2026/11/21/arts/music/judith-blegen-dead.html
+
 **Pentagon Issued Memo Limiting ‘Social Activities’ With Canadian Military**\
 `The latest salvo in the fraught U.S. relationship with Canada has not affected their vast joint military operation, including the shared airspace command, NORAD.`\
 https://www.nytimes.com/2026/11/21/world/canada/defense-department-canada-military-trump.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
 **This Event Designer Can Help You Find Your Quirky, Highly Specific Wedding Style**\
 `Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
 https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
-
-**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
-`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
-https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
 
