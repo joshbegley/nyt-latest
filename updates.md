@@ -1,3 +1,7 @@
+**Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
+`The defendant, Jonathan Rinderknecht, was found guilty on two counts. It was the second time he was tried in federal court in connection with the blaze. His first trial ended in a mistrial.`\
+https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
+
 **‘Class Is Not an Identity’**\
 `The American working class is suffering. The author and leftist thinker Catherine Liu argues elite culture wars ignore the painful realities of economic disparity.`\
 https://www.nytimes.com/video/opinion/100000011274190/class-is-not-an-identity.html
