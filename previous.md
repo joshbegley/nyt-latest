@@ -1,3 +1,11 @@
+**Takeaways From Trump’s Post-Asia Trip News Conference**\
+`President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
+https://www.nytimes.com/2026/11/20/us/politics/takeaways-from-trumps-post-asia-trip-news-conference.html
+
+**Nvidia Said to Face S.E.C. Probe Into Its Accounting Practices**\
+`Questions around the company’s accounting had surfaced amid revelations about its questionable chip sales in Asia.`\
+https://www.nytimes.com/2026/11/20/business/nvidia-sec-accounting.html
+
 **F.B.I. Is Still Looking for Evidence That Georgia’s 2020 Election Was Rigged**\
 `On Friday, investigators interviewed the former head of elections in Fulton County. Their questions suggested that they are still pursuing debunked claims of widespread fraud.`\
 https://www.nytimes.com/2026/11/20/us/fbi-investigation-fulton-county-2020-election.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.ht
 **Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
 `Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
 https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
-
-**Baseball Player, 12, Dies 6 Months After Being Struck by Ball**\
-`Xavier Taylor was hit in the neck during warm-up for a Little League game in New Jersey and had been hospitalized ever since.`\
-https://www.nytimes.com/2026/11/20/nyregion/xavier-taylor-baseball-accident-nj.html
-
-**It’s a Suit. It’s a T-Shirt. It’s a T-Suit.**\
-`A fashion gimmick that works. Kinda.`\
-https://www.nytimes.com/2026/11/20/style/fruit-of-the-loom-japan-t-shirt-suit.html
 

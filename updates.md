@@ -1,3 +1,11 @@
+**Takeaways From Trump’s Post-Asia Trip News Conference**\
+`President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
+https://www.nytimes.com/2026/11/20/us/politics/takeaways-from-trumps-post-asia-trip-news-conference.html
+
+**Nvidia Said to Face S.E.C. Probe Into Its Accounting Practices**\
+`Questions around the company’s accounting had surfaced amid revelations about its questionable chip sales in Asia.`\
+https://www.nytimes.com/2026/11/20/business/nvidia-sec-accounting.html
+
 **F.B.I. Is Still Looking for Evidence That Georgia’s 2020 Election Was Rigged**\
 `On Friday, investigators interviewed the former head of elections in Fulton County. Their questions suggested that they are still pursuing debunked claims of widespread fraud.`\
 https://www.nytimes.com/2026/11/20/us/fbi-investigation-fulton-county-2020-election.html
