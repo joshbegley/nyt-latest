@@ -39,7 +39,7 @@ https://www.nytimes.com/2026/11/21/business/ai-emergency-plan.html
 https://www.nytimes.com/2026/11/21/business/dealbook/dealbook-summit-portraits.html
 
 **Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
-`The salt is a flaky favorite of food influencers and famous chefs. But a revelation this week raised questions about what makes artisanal “artisanal.”`\
+`The salt is a flaky favorite of food influencers and famous chefs. A revelation this week raised questions about what makes artisanal “artisanal.”`\
 https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
 
 **A New Era of A.I.-Driven Chaos? That Might Just Be Progress.**\
