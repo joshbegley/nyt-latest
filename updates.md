@@ -1,3 +1,7 @@
+**Judith Blegen, Well-Loved Met Opera Soprano, Dies at 85**\
+`After her company debut in 1970, she sang 20 roles and almost 300 performances over the next two decades, specializing in bright-voiced young women.`\
+https://www.nytimes.com/2026/11/21/arts/music/judith-blegen-dead.html
+
 **The Army Plans to Blow Up Tons of Toxic Explosives in Iowa. It Rejected a Safer Option.**\
 `The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
 https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
