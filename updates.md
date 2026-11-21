@@ -1,3 +1,7 @@
+**Pentagon Issued Memo Limiting ‘Social Activities’ With Canadian Military**\
+`The latest salvo in the fraught U.S. relationship with Canada has not affected their vast joint military operation, including the shared airspace command, NORAD.`\
+https://www.nytimes.com/2026/11/21/world/canada/defense-department-canada-military-trump.html
+
 **The $2.4 Billion Auction Week: Big Sales, Bigger Expectations**\
 `“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
 https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
