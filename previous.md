@@ -2,7 +2,7 @@
 `The Army intends to detonate a stockpile of lead azide on Monday at a facility in southeastern Iowa, sending a plume of toxic lead dust into the nearby community.`\
 https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explosion-in-iowa.html
 
-**What’s Big, Hairy and Bipedal? Bigfoot’s Paper Trail Is Now Public.**\
+**Bigfoot Left a Paper Trail That Everyone Can See Now**\
 `This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
 https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
 
@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/11/21/arts/music/judith-blegen-dead.html
 `The latest salvo in the fraught U.S. relationship with Canada has not affected their vast joint military operation, including the shared airspace command, NORAD.`\
 https://www.nytimes.com/2026/11/21/world/canada/defense-department-canada-military-trump.html
 
-**The Army Rejected a Safer Option to Destroy Lead-Laced Explosives in Iowa**\
+**The Army Rejected a Cleaner Option to Destroy Lead-Laced Explosives in Iowa**\
 `The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
 https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
 
