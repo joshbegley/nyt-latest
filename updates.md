@@ -1,3 +1,7 @@
+**Read the document**\
+`Bigfoot is largely believed to by mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
+https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
+
 **Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
 `His work with luminaries like Christy Moore and Andy Irvine expanded the sonic boundaries of traditional Irish music while preserving its roots.`\
 https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html

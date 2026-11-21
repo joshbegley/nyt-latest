@@ -1,3 +1,7 @@
+**Read the document**\
+`Bigfoot is largely believed to by mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
+https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
+
 **Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
 `His work with luminaries like Christy Moore and Andy Irvine expanded the sonic boundaries of traditional Irish music while preserving its roots.`\
 https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/us/jonathan-mckinsey-shooting-in-laws.html
 **Book Review: ‘Yosemite Falls,’ by Daniel Duane**\
 `In “Yosemite Falls,” Daniel Duane tells the story of the grand national park, John Muir and his own family.`\
 https://www.nytimes.com/2026/11/21/books/review/yosemite-falls-daniel-duane.html
-
-**From ‘Stranger Things’ to Broadway, Everyone Knows Joe Keery**\
-`“Stranger Things” vaulted him to stardom. With his Broadway debut in “Other Desert Cities,” he wants to get back to “why I started doing this in the first place.”`\
-https://www.nytimes.com/2026/11/21/theater/joe-keery-other-desert-cities-broadway.html
 
