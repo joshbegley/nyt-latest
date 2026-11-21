@@ -1,3 +1,7 @@
+**What’s Big, Hairy and Bipedal? Bigfoot’s Paper Trail Is Now Public.**\
+`This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
+https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
+
 **Read the document**\
 `Bigfoot is largely believed to by mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
 https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/books/100000011268506/read-these-books-before-they
 **The California Grandparents Accused of Killing Jonathan McKinsey, Their Son-in-Law**\
 `Jonathan McKinsey, 40, was gunned down in a suburban park after spending time with his three children. His wife’s parents have been charged with murder.`\
 https://www.nytimes.com/2026/11/21/us/jonathan-mckinsey-shooting-in-laws.html
-
-**Book Review: ‘Yosemite Falls,’ by Daniel Duane**\
-`In “Yosemite Falls,” Daniel Duane tells the story of the grand national park, John Muir and his own family.`\
-https://www.nytimes.com/2026/11/21/books/review/yosemite-falls-daniel-duane.html
 

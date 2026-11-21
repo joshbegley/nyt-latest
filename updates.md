@@ -1,3 +1,7 @@
+**What’s Big, Hairy and Bipedal? Bigfoot’s Paper Trail Is Now Public.**\
+`This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
+https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
+
 **Read the document**\
 `Bigfoot is largely believed to by mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
 https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
