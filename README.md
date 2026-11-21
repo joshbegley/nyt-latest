@@ -1,3 +1,7 @@
+**Pentagon Issued Memo Limiting ‘Social Activities’ With Canadian Military**\
+`The latest salvo in the fraught U.S. relationship with Canada has not affected their vast joint military operation, including the shared airspace command, NORAD.`\
+https://www.nytimes.com/2026/11/21/world/canada/defense-department-canada-military-trump.html
+
 **The Army Plans to Blow Up Tons of Toxic Explosives. It Rejected a Safer Option.**\
 `The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
 https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
@@ -189,10 +193,6 @@ https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
 **This Event Designer Can Help You Find Your Quirky, Highly Specific Wedding Style**\
 `Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
 https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
-
-**Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
-`Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
-https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
 
 **International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
 `A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
