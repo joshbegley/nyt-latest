@@ -1,3 +1,7 @@
+**Who Is the Mexican Drug Kingpin Known as El Chapo Isidro?**\
+`The kingpin, Fausto Isidro Meza Flores, was captured in a violent operation in Mexico. He was one of the F.B.I.’s 10 most wanted fugitives.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-drug-kingpin.html
+
 **Make Your Sunday Breakfast on Saturday Night**\
 `Smart make-ahead dishes, like this herby cottage cheese egg bake, take the stress out of the weekend-morning scramble.`\
 https://www.nytimes.com/2026/11/21/dining/make-your-sunday-breakfast-on-saturday-night.html
@@ -76,7 +80,7 @@ https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
 
 **Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
 `The A.I. giant broke records with its initial public offering this week before a rocky first full day of trading, as the markets plunged on worries about artificial intelligence spending.`\
-https://www.nytimes.com/2026/11/21/business/anthropics-debut-shows-the-disconnect-between-wall-street-and-silicon-valley.html
+https://www.nytimes.com/2026/11/21/business/anthropic-stock-wall-street-silicon-valley.html
 
 **Hakeem Jeffries on Whether Chuck Schumer Should Be Majority Leader**\
 `House Democrats voted on Wednesday to nominate Representative Hakeem Jeffries to be the next speaker of the House. He talked with Lulu Garcia-Navarro on “The Interview” about what’s next for Congress and whether his colleague Chuck Schumer is able to lead in the Senate.`\
@@ -178,13 +182,13 @@ https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
 `Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
 https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
 
-**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
-`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
-https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
-
 **Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
 `Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
 https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
+
+**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
+`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
+https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
 
 **Why Nostalgia for Tamagotchis, the Virtual Pets, Won’t Die**\
 `Millennials are answering the beeping call of the pocket-size game that caused a sensation 30 years ago. But analog-craving Gen Zers are, too.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/tamagotchis-comeback.html
 **With Tolstoy as Her Guide, a Hit Novelist Stages a ‘Resurrection’**\
 `Leïla Slimani, the best-selling author of “The Perfect Nanny,” long struggled with writing dialogue. Now, her first play is opening at the Comédie-Française in Paris.`\
 https://www.nytimes.com/2026/11/21/theater/leila-slimani-resurrection-comedie-francaise.html
-
-**A Short Workout to Strengthen Your Neck**\
-`Build muscle and fight the effects of bad posture with a few simple exercises.`\
-https://www.nytimes.com/2026/11/21/well/move/neck-strengthening-workout.html
 
