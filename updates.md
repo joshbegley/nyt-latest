@@ -1,3 +1,11 @@
+**Make Your Sunday Breakfast on Saturday Night**\
+`Smart make-ahead dishes, like this herby cottage cheese egg bake, take the stress out of the weekend-morning scramble.`\
+https://www.nytimes.com/2026/11/21/dining/make-your-sunday-breakfast-on-saturday-night.html
+
+**Hakeem Jeffries on Trump, Stephen Miller, AIPAC and the Road Ahead**\
+`The Democratic nominee for House speaker will have a challenging job. We asked him how he plans to lead.`\
+https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
+
 **How I’m Tackling Thanksgiving Desserts This Year**\
 `What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
 https://www.nytimes.com/2026/11/21/dining/how-im-tackling-thanksgiving-desserts-this-year.html
