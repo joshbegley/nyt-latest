@@ -1,3 +1,135 @@
+**Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
+`The A.I. giant broke records with its initial public offering this week before a rocky first full day of trading, as the markets plunged on worries about artificial intelligence spending.`\
+https://www.nytimes.com/2026/11/21/business/anthropics-debut-shows-the-disconnect-between-wall-street-and-silicon-valley.html
+
+**Hakeem Jeffries on Whether Chuck Schumer Should Be Majority Leader**\
+`House Democrats voted on Wednesday to nominate Representative Hakeem Jeffries to be the next speaker of the House. He talked with Lulu Garcia-Navarro on “The Interview” about what’s next for Congress and whether his colleague Chuck Schumer is able to lead in the Senate.`\
+https://www.nytimes.com/video/podcasts/100000011299787/hakeem-jeffries-on-whether-chuck-schumer-should-be-majority-leader.html
+
+**Obsessive Throwbacks on G.T.A. VI and 9 More Songs We’re Talking About**\
+`Lana Del Rey and Dua Lipa add tracks to the cinematic video game, Julien Baker chases love and more.`\
+https://www.nytimes.com/2026/11/21/arts/music/gta-vi-dua-lipa-lana-del-rey.html
+
+**The $2.4 Billion Auction Week: Big Sales, Big Questions**\
+`“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
+https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
+
+**A Look Inside the International Butler Academy**\
+`A butler academy in the Netherlands is offering an eight-week intensive program that costs nearly $14,000. Graduates of the program hope to find jobs with rich families, on yachts or on private jets.`\
+https://www.nytimes.com/video/world/europe/100000011298491/netherlands-international-butler-academy-jobs-training.html
+
+**Corrections: Nov. 21, 2026**\
+`Corrections that appeared in print on Saturday, Nov. 21, 2026.`\
+https://www.nytimes.com/2026/11/21/pageoneplus/corrections-nov-21-2026.html
+
+**Sarah McBride, Barred From Capitol Bathrooms, Wins Top Post**\
+`Republicans have targeted the Delaware Democrat, the first openly transgender member of Congress, since she came to Washington. Her party just elevated her to a key job.`\
+https://www.nytimes.com/2026/11/21/us/politics/sarah-mcbride-barred-from-capitol-bathrooms-wins-top-post.html
+
+**How to Plan for an A.I. Emergency, or Any Calamity**\
+`One person’s attempt to prepare for the unthinkable.`\
+https://www.nytimes.com/2026/11/21/business/ai-emergency-plan.html
+
+**The Faces of the 2026 DealBook Summit**\
+`Our photographer made portraits of the event’s interview subjects, including Hailey Bieber, Satya Nadella and Zohran Mamdani, after they left the stage.`\
+https://www.nytimes.com/2026/11/21/business/dealbook/dealbook-summit-portraits.html
+
+**Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
+`A flaky favorite of food influencers and famous chefs, the company’s sea salt is a mainstay of well-stocked pantries. But a revelation this week raised questions about what makes artisanal “artisanal.”`\
+https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
+
+**A New Era of A.I.-Driven Chaos? That Might Just Be Progress.**\
+`If artificial intelligence is giving rise to outages, cyberattacks and more, it’s consistent with history, in that it shows how new innovations often set off calamitous failure before they make life better.`\
+https://www.nytimes.com/2026/11/21/science/outages-tech-history.html
+
+**A New Trump Tactic to Restrict Transit Funding: Rewrite the Rules**\
+`The changes could make it harder for dozens of projects across the country to get funding they have pursued for years.`\
+https://www.nytimes.com/2026/11/21/upshot/trump-transit-grants.html
+
+**A Chicago Park Is Infested With Rats. Is a Wealthy Couple to Blame?**\
+`People keep spreading nuts in a Chicago park, attracting rodents and neighbors’ fury. Officials are not sure how to stop it.`\
+https://www.nytimes.com/2026/11/21/us/chicago-lincoln-park-rats.html
+
+**Hakeem Jeffries Thinks He’s the Man for This Moment**\
+`The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
+https://www.nytimes.com/video/podcasts/100000011294059/hakeem-jeffries-interview-house-speaker.html
+
+**The Used Car Industry Is Booming. This N.J. Campus Is Setting the Price.**\
+`As new car prices rise beyond the means of most buyers, the used market has become much more important for consumers and the auto industry.`\
+https://www.nytimes.com/2026/11/21/business/used-car-auctions-manheim-prices.html
+
+**Meghann Fahy Is a Self-Proclaimed Water Snob**\
+`“I really feel like I can taste water now in a way that I didn’t used to be able to,” says the actress, now starring in “The Good Daughter.”`\
+https://www.nytimes.com/2026/11/21/arts/television/meghann-fahy-good-daughter.html
+
+**My Condo’s Management Company Is Inept. Could A.I. Do a Better Job?**\
+`Just because a company advertises A.I.-driven efficiencies doesn’t mean those efficiencies will be passed along to you.`\
+https://www.nytimes.com/2026/11/21/realestate/my-condos-management-company-is-inept-could-ai-do-a-better-job.html
+
+**David Sanders Has Died. As a Pilot, He Fought Off a Hijacker’s Violent Attack.**\
+`When a disgruntled employee tried to kill him and his two crew members in 1994, a midair battle ensued. He has died at 82.`\
+https://www.nytimes.com/2026/11/21/obituaries/david-sanders-dead.html
+
+**Read These Books Before They Hit Screens in December**\
+`Jennifer Harlan, an editor at The New York Times Book Review, recommends three books to read before their on-screen adaptations premiere in December.`\
+https://www.nytimes.com/video/books/100000011268506/read-these-books-before-they-hit-screens-in-december.html
+
+**The California Grandparents Accused of Killing Jonathan McKinsey, Their Son-in-Law**\
+`Jonathan McKinsey, 40, was gunned down in a suburban park after spending time with his three children. His wife’s parents have been charged with murder.`\
+https://www.nytimes.com/2026/11/21/us/jonathan-mckinsey-shooting-in-laws.html
+
+**Book Review: ‘Yosemite Falls,’ by Daniel Duane**\
+`In “Yosemite Falls,” Daniel Duane tells the story of the grand national park, John Muir and his own family.`\
+https://www.nytimes.com/2026/11/21/books/review/yosemite-falls-daniel-duane.html
+
+**From ‘Stranger Things’ to Broadway, Everyone Knows Joe Keery**\
+`“Stranger Things” vaulted him to stardom. With his Broadway debut in “Other Desert Cities,” he wants to get back to “why I started doing this in the first place.”`\
+https://www.nytimes.com/2026/11/21/theater/joe-keery-other-desert-cities-broadway.html
+
+**A Butler School in the Netherlands Offers Entry Into a Gilded World**\
+`An academy in the Netherlands offers an eight-week, $14,000 program for entry into a gilded world of service. What’s the appeal?`\
+https://www.nytimes.com/2026/11/21/world/europe/butler-school-international-butler-academy-netherlands.html
+
+**6 Podcasts for Cozy Autumn Evenings**\
+`These shows full of wholesome recipes, nature walks and compelling audio fiction will help see you through to winter’s arrival.`\
+https://www.nytimes.com/2026/11/21/arts/6-podcasts-cozy-autumn-evenings.html
+
+**A Night of Sweets and Saris for the Diwali Holiday**\
+`Guests, many of them from New York City by way of India, were in a festive mood at this event celebrating Diwali. It’s no wonder: The holiday is all “about finding light in the darkness.”`\
+https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
+
+**This Event Designer Can Help You Find Your Quirky, Highly Specific Wedding Style**\
+`Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
+https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
+
+**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
+`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
+https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
+
+**Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
+`Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
+https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
+
+**Why Nostalgia for Tamagotchis, the Virtual Pets, Won’t Die**\
+`Millennials are answering the beeping call of the pocket-size game that caused a sensation 30 years ago. But analog-craving Gen Zers are, too.`\
+https://www.nytimes.com/2026/11/21/arts/tamagotchis-comeback.html
+
+**With Tolstoy as Her Guide, a Hit Novelist Stages a ‘Resurrection’**\
+`Leïla Slimani, the best-selling author of “The Perfect Nanny,” long struggled with writing dialogue. Now, her first play is opening at the Comédie-Française in Paris.`\
+https://www.nytimes.com/2026/11/21/theater/leila-slimani-resurrection-comedie-francaise.html
+
+**A Short Workout to Strengthen Your Neck**\
+`Build muscle and fight the effects of bad posture with a few simple exercises.`\
+https://www.nytimes.com/2026/11/21/well/move/neck-strengthening-workout.html
+
+**A Punk Rocker’s Painful Wait for Wheelchair Repairs**\
+`Two private equity-backed companies now dominate the U.S. wheelchair market. For users, extended repair times can be dangerous and frustrating.`\
+https://www.nytimes.com/2026/11/21/us/wheelchair-repair-delays-public-equity.html
+
+**What Really Happened When Daniel Day-Lewis Walked Offstage in 1989**\
+`The moment is recreated in a new drama, “Elsinore,” about Ian Charleson, the dying actor who succeeded him as Hamlet.`\
+https://www.nytimes.com/2026/11/21/movies/elsinore-daniel-day-lewis-hamlet.html
+
 **10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
 `A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
 https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
@@ -65,136 +197,4 @@ https://www.nytimes.com/2026/11/20/us/politics/trump-news-conference-asia-trip.h
 **Nvidia Said to Face S.E.C. Probe Into Its Accounting Practices**\
 `Questions around the company’s accounting had surfaced amid revelations about its questionable chip sales in Asia.`\
 https://www.nytimes.com/2026/11/20/business/nvidia-sec-accounting.html
-
-**F.B.I. Is Still Looking for Evidence That Georgia’s 2020 Election Was Rigged**\
-`On Friday, investigators interviewed the former head of elections in Fulton County. Their questions suggested that they are still pursuing debunked claims of widespread fraud.`\
-https://www.nytimes.com/2026/11/20/us/fbi-investigation-fulton-county-2020-election.html
-
-**It’s a Bill on Energy Permits, but Trump’s Pet Projects Are Part of the Debate**\
-`The pervasive presence of the president hovers over the bipartisan legislation to speed up construction of energy projects that are advancing through Congress.`\
-https://www.nytimes.com/2026/11/20/us/politics/baaja-permitting-bill-trump.html
-
-**Fiona the Hippo Died After Eating a Hat. Some Want Justice.**\
-`Social media commenters have called for investigations, the release of zoo video footage and punishment for the parents of a child whose hat Fiona ingested.`\
-https://www.nytimes.com/2026/11/20/us/fiona-hippo-internet-justice.html
-
-**Judge Denies Release of Immigrant Shot by ICE in New York**\
-`The Dominican man wounded by an Immigration and Customs Enforcement agent last month must remain in detention, a federal judge ruled on Friday.`\
-https://www.nytimes.com/2026/11/20/nyregion/nyc-ice-shooting-oscar-belgal-ruling.html
-
-**‘Class Is Not an Identity’**\
-`The American working class is suffering. The author and leftist thinker Catherine Liu argues elite culture wars ignore the painful realities of economic disparity.`\
-https://www.nytimes.com/video/opinion/100000011274190/class-is-not-an-identity.html
-
-**Bobby Ray Inman, Intelligence Official Under Carter and Reagan, Dies at 95**\
-`An admiral who was a well-regarded director of the National Security Agency and deputy director of central intelligence, he turned down a nomination from President Bill Clinton to be secretary of defense.`\
-https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
-
-**White Police Officers Are Convicted of Beating a Black Man in France**\
-`The three officers were filmed beating Michel Zecler, a music producer, inside his Paris studio in 2020, setting off a national backlash.`\
-https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html
-
-**Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
-`The defendant, Jonathan Rinderknecht, was found guilty on two counts. The verdict provides a measure of accountability for a painful chapter in recent L.A. history.`\
-https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
-
-**Leaked Draft Report Finds ‘Catastrophic’ Training Failures at ICE**\
-`The Trump administration graduated thousands of new ICE officers through a training regiment that one instructor called a “catastrophic failure,” according to a draft copy of a Department of Homeland Security inspector general’s report obtained by the Times. Our immigration reporter Hamed Aleaziz explains.`\
-https://www.nytimes.com/video/us/100000011291007/leaked-draft-report-finds-catastrophic-training-failures-at-ice.html
-
-**The Evening: Are Nvidia Chips Helping Power the Chinese Military?**\
-`Plus, Trump is bullish on data centers. Here’s the latest at the end of Friday.`\
-https://www.nytimes.com/2026/11/20/briefing/nvidia-anthropic-ice.html
-
-**HUD Takes Over Newark’s Troubled Housing Authority**\
-`Newark’s mayor, Ras J. Baraka, said he was concerned that residents and local stakeholders would lose influence in the city’s housing authority, which manages more than 6,000 apartments.`\
-https://www.nytimes.com/2026/11/20/nyregion/hud-newark-housing-authority.html
-
-**California Storm Forecast to Hit Thanksgiving Week Amid High King Tides**\
-`“We could have flooding in areas where we have never seen flooding before,” a forecaster with the National Weather Service said.`\
-https://www.nytimes.com/2026/11/20/weather/california-thanksgiving-storm-king-tides.html
-
-**Officials Find Cascade of Problems With ICE Training in Trump’s Immigration Crackdown**\
-`In a draft report, officials found widespread training gaps as the Department of Homeland Security sought to rapidly hire and deploy 10,000 new officers.`\
-https://www.nytimes.com/2026/11/20/us/politics/training-ice-immigration-inspector-general.html
-
-**Powerful Health Panel Has Tumultuous First Meeting With RFK Jr’s Appointees**\
-`Since March 2025, the work of the U.S. Preventive Services Task Force has been at a standstill.`\
-https://www.nytimes.com/2026/11/20/well/rfk-jr-uspstf-panel-meeting.html
-
-**The System Is ‘Stacked’ Against the Young**\
-`“The entire system is stacked against people who are my age,” says the “Breaking Points” co-host Saagar Enjeti. He argues that unchecked corporate power has left young Americans behind, and it’s time for Republicans to strike back at the private sector.`\
-https://www.nytimes.com/video/opinion/100000011291598/the-system-is-stacked-against-the-young.html
-
-**This Is JD Vance’s Biggest Problem**\
-`Can JD Vance win in 2028 without criticizing Trump? Saagar Enjeti is doubtful. He says Vance needs to learn from Kamala Harris’s biggest mistake on “Interesting Times.”`\
-https://www.nytimes.com/video/opinion/100000011291593/this-is-jd-vances-biggest-problem.html
-
-**Sam Altman on Jensen Huang’s Possible Return to Nvidia**\
-`At The New York Times DealBook Summit on Nov. 18, Sam Altman spoke about Jensen Huang’s possible return as C.E.O. of Nvidia. The tech reporters Erin Griffith and Mike Isaac joined the guest host Max Read on the “Hard Fork” podcast to talk about it.`\
-https://www.nytimes.com/video/technology/100000011299401/sam-altman-jensen-huang-nvidia.html
-
-**Top N.H. Election Official Reiterates Intent to Keep Nation’s First Primary**\
-`The New Hampshire secretary of state said he would again hold the Democratic primary first in the nation, defying the party’s intent to prioritize other states in 2028.`\
-https://www.nytimes.com/2026/11/20/us/elections/new-hampshire-presidential-primary.html
-
-**Bowen Yang Apologizes to Regina Spektor for Calling Her an Antisemitic Slur on His Podcast**\
-`The former “Saturday Night Live” star used the slur when talking about the musician Regina Spektor in a recent episode of his “Las Culturistas” podcast.`\
-https://www.nytimes.com/2026/11/20/arts/music/bowen-yang-apology-antisemitic-slur-regina-spektor.html
-
-**Mayor Mamdani Injured After Soccer Game**\
-`Mayor Zohran Mamdani of New York City limped into a news conference on Friday wearing an orthopedic walking boot. He said he had torn his Achilles during an organized soccer game between the mayor’s press office and reporters, which the mayor’s office reported it won 10 to 5.`\
-https://www.nytimes.com/video/nyregion/100000011299375/mamdani-limp-soccer-injury.html
-
-**Anthropic Mathematician Claims to Solve Riemann Hypothesis With Help From Claude**\
-`If confirmed, the proof of the Riemann hypothesis would cement the field’s sense that no unsolved problem is safe from artificial intelligence.`\
-https://www.nytimes.com/2026/11/20/science/anthropic-ai-math-riemann-hypothesis.html
-
-**Denmark Expels Russian Diplomat After Accusing Moscow of Planning a Hit**\
-`Danish officials say Russian intelligence services recruited members of a violent gang to try to assassinate a Ukrainian rapper at a concert outside Copenhagen.`\
-https://www.nytimes.com/2026/11/20/world/europe/denmark-russia-ukraine-rapper-assassination.html
-
-**H.I.V. Research Networks May Again Seek Federal Funding, With a Twist**\
-`The Trump administration restarted the process for funding four large research networks after postponing it earlier this year.`\
-https://www.nytimes.com/2026/11/20/science/hiv-research-funding-nih.html
-
-**Playing ‘Key of Life,’ Stevie Wonder Invites All to Match His Joy**\
-`Wonder’s optimism was refracted around Madison Square Garden as he performed his “Songs in the Key of Life” album on a 50th anniversary tour.`\
-https://www.nytimes.com/2026/11/20/arts/music/stevie-wonder-songs-in-the-key-of-life-tour.html
-
-**Grand Theft Auto VI Made $3.79 Billion in a Single Day**\
-`Anticipation was high after a 13-year gap in the game franchise. No movie has ever made more than $3 billion at the box office.`\
-https://www.nytimes.com/2026/11/20/arts/grand-theft-auto-vi-sales-revenue.html
-
-**Designers Accuse Ssense of Misrepresenting Clothes Online**\
-`After designers accused the luxury retailer Ssense of misrepresenting their clothes, the company said it relied on a “virtual try-on” program for some online imagery.`\
-https://www.nytimes.com/2026/11/20/style/ssense-ai-rcos-sage-nation.html
-
-**Trump Calls Putin a Friend, But Says He Can’t Say if Russia Is an Ally**\
-`President Trump held a news conference at the White House on Friday after a trip to Asia, where he met with the leaders of Russia and China.`\
-https://www.nytimes.com/video/us/politics/100000011299188/trump-putin-xi-asia-trip.html
-
-**The Local: How a news start-up broke the Uber assault**\
-`Plus, turkey time approaches.`\
-https://www.nytimes.com/2026/11/20/briefing/the-local-how-a-news-start-up-broke-the-uber-assault.html
-
-**Fact-Checking Trump’s News Conference After His Asia Trip**\
-`President Trump repeated and revised a number of falsehoods and exaggerations during a news conference.`\
-https://www.nytimes.com/2026/11/20/us/politics/trumps-asia-fact-check.html
-
-**Chinese-Born Neuroscientist Is Detained by ICE While Traveling From Conference**\
-`Eva Yi Xie was detained on her way back to New Jersey from a neuroscience conference in Washington this week, the latest in a string of researcher arrests.`\
-https://www.nytimes.com/2026/11/20/science/chinese-scientist-detained-ice-princeton-eva-yi-xie-.html
-
-**Poland Says Russian Objects Crashed in Its Territory**\
-`Poland said on Friday that three Russian objects, including at least one missile, crashed into Polish territory. This incident came as Poland was hosting a two-week military exercise by Ukraine’s allies.`\
-https://www.nytimes.com/video/world/europe/100000011298424/poland-russia-crash.html
-
-**Many Etsy Sellers Close Up Shop Over Site’s New A.I. Policy**\
-`Numerous longtime users of the online marketplace have left the platform because they do not want their work training artificial intelligence. Etsy said it would revise its policy.`\
-https://www.nytimes.com/2026/11/20/arts/etsy-ai-policy.html
-
-**Britain and Brussels Have Begun a Brexit Rollback. How Far Will It Go?**\
-`The United Kingdom is removing barriers with the European Union a decade after it voted to leave. Global turmoil, and the disruptive policies of President Trump, helped push them back together.`\
-https://www.nytimes.com/2026/11/20/world/europe/britain-and-brussels-have-begun-a-brexit-rollback-how-far-will-it-go.html
 
