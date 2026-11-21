@@ -1,3 +1,7 @@
+**Mishaps**\
+`Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
+https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
+
 **Judge Approves $7 Billion Settlement Over Claims That Roundup Caused Cancer**\
 `The ruling, in a nationwide class-action suit, is expected to end tens of thousands of lawsuits by people claiming that Roundup caused non-Hodgkin lymphoma.`\
 https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-over-claims-that-roundup-caused-cancer.html

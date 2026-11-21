@@ -1,3 +1,7 @@
+**Mishaps**\
+`Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
+https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
+
 **Judge Approves $7 Billion Settlement Over Claims That Roundup Caused Cancer**\
 `The ruling, in a nationwide class-action suit, is expected to end tens of thousands of lawsuits by people claiming that Roundup caused non-Hodgkin lymphoma.`\
 https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-over-claims-that-roundup-caused-cancer.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.ht
 **Why It Took 13 Years to Make G.T.A. VI**\
 `Why did Rockstar Games spend 13 years making Grand Theft Auto VI? Our reporter Joseph Bernstein explains the game’s extraordinary level of detail on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011299012/grand-theft-auto-six-hard-fork.html
-
-**Democrats Strengthen the Legal Line With Attorneys General Triumphs**\
-`Once considered vulnerable to local issues, Democratic candidates for attorneys general romped on Tuesday, with the final contests called against Republican attorneys general in Kansas and Ohio.`\
-https://www.nytimes.com/2026/11/20/us/elections/democrats-attorney-general.html
 
