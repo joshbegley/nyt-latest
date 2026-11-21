@@ -1,3 +1,7 @@
+**Who Owns Thanksgiving?**\
+`How to claim a stake in the holiday, even if you’re not hosting.`\
+https://www.nytimes.com/2026/11/21/briefing/who-owns-thanksgiving.html
+
 **Top Drug Kingpin Is Captured by Mexican Army as Gunfire Erupts**\
 `The arrest of Fausto Isidro Meza Flores, who is known as El Chapo Isidro and was one of the F.B.I.’s 10 most wanted, was a victory for the Mexican government.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-captured-drugs.html
