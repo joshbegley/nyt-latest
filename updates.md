@@ -1,3 +1,7 @@
+**2-Year-Old Girl Wearing Only a Diaper Is Rescued After Hours in the Desert**\
+`“It was a life-changing moment,” said a searcher who found the girl, Vella Campillo, early on Wednesday in a remote area of Arizona after she had been missing for more than seven hours.`\
+https://www.nytimes.com/2026/11/21/us/missing-2-year-old-arizona-desert.html
+
 **Judith Blegen, Well-Loved Met Opera Soprano, Dies at 85**\
 `After her company debut in 1970, she sang 20 roles and almost 300 performances over the next two decades, specializing in bright-voiced young women.`\
 https://www.nytimes.com/2026/11/21/arts/music/judith-blegen-dead.html
