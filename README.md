@@ -1,3 +1,7 @@
+**How I’m Tackling Thanksgiving Desserts This Year**\
+`What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
+https://www.nytimes.com/2026/11/21/dining/how-im-tackling-thanksgiving-desserts-this-year.html
+
 **Catherine, Princess of Wales, Documents Life With Cancer in BBC Film**\
 `“Cancer does change you,” Catherine, who is in remission, says in a trailer for the film. It will be released this month.`\
 https://www.nytimes.com/2026/11/21/world/europe/princess-kate-bbc-cancer-film.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/well/move/neck-strengthening-workout.html
 **A Punk Rocker’s Painful Wait for Wheelchair Repairs**\
 `Two private equity-backed companies now dominate the U.S. wheelchair market. For users, extended repair times can be dangerous and frustrating.`\
 https://www.nytimes.com/2026/11/21/us/wheelchair-repair-delays-public-equity.html
-
-**What Really Happened When Daniel Day-Lewis Walked Offstage in 1989**\
-`The moment is recreated in a new drama, “Elsinore,” about Ian Charleson, the dying actor who succeeded him as Hamlet.`\
-https://www.nytimes.com/2026/11/21/movies/elsinore-daniel-day-lewis-hamlet.html
 
