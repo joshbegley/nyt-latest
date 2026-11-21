@@ -1,3 +1,11 @@
+**The Army Plans to Blow Up Tons of Toxic Explosives. It Rejected a Safer Option.**\
+`The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
+https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
+
+**Tech Outages Are Only the Beginning. A.I. Will Bring More Disruptions.**\
+`Cybersecurity has been an afterthought since the early days of the internet. Now A.I. is uncovering dormant problems, making the bill come due for decades of vulnerable code.`\
+https://www.nytimes.com/2026/11/21/us/politics/tech-outages-ai-disruptions.html
+
 **Who Is the Mexican Drug Kingpin Known as El Chapo Isidro?**\
 `The kingpin, Fausto Isidro Meza Flores, was captured in a violent operation in Mexico. He was one of the F.B.I.’s 10 most wanted fugitives.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-drug-kingpin.html
