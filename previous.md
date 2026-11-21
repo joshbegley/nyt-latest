@@ -1,3 +1,15 @@
+**Quote of the Day: For Rohingya Who Escaped, the Misery Lingers**\
+`Quote of the Day for Saturday, November 20, 2026.`\
+https://www.nytimes.com/2026/11/21/pageoneplus/quote-of-the-day-for-rohingya-who-escaped-the-misery-lingers.html
+
+**On the Trail With Spain’s Prime Minister, as He Tries to Pull Out a Win**\
+`Pedro Sánchez, Europe’s most prominent left-wing leader, seems set to lose power in an election next week. Our reporter trailed his last-ditch effort to turn his campaign around.`\
+https://www.nytimes.com/2026/11/21/world/europe/spain-sanchez-interview-election-basketball.html
+
+**In France’s Angry Autumn, TV News Channels Are Accused of Stirring the Pot**\
+`Critics say that CNews and BFM TV, two major news channels, have used racist language in protest coverage. The channels deny it.`\
+https://www.nytimes.com/2026/11/21/world/europe/in-frances-angry-autumn-tv-news-channels-are-accused-of-stirring-the-pot.html
+
 **From the Front Page: On Nov. 21, 1995, Bosnia, Croatia and Serbia Agree to Peace**\
 `The leaders of the Balkan states reached the Dayton peace agreement, ending nearly four years of war in Bosnia that killed more than 100,000 people.`\
 https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-bosnia-croatia-and-serbia-agree-to-peace.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-
 **Mamdani Will Run New York With a Limp After Tearing Achilles’ Tendon Playing Soccer**\
 `The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
 https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
-
-**Can Robert Pattinson Play Both James Bond and Batman?**\
-`The demands of playing 007 have limited some of the actors cast as Ian Fleming’s dashing British spy over the decades.`\
-https://www.nytimes.com/2026/11/20/movies/robert-pattinson-james-bond-career.html
-
-**Trump Threatens to Bar U.S. Tech Firms From Building Data Centers Abroad**\
-`The president suggested he would tax the same companies, though it was not clear how he would carry out the plan unveiled at a news conference.`\
-https://www.nytimes.com/2026/11/20/us/politics/trump-data-centers-ban.html
-
-**People Are Anxious About Major Tech Failures. Preppers Are Cashing In.**\
-`Emergency preparedness aficionados are eager to give advice about how to survive when society breaks down. They’re also willing to make a buck.`\
-https://www.nytimes.com/2026/11/20/us/prepper-influencers-profit-tech-anxiety.html
 

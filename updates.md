@@ -1,3 +1,15 @@
+**Quote of the Day: For Rohingya Who Escaped, the Misery Lingers**\
+`Quote of the Day for Saturday, November 20, 2026.`\
+https://www.nytimes.com/2026/11/21/pageoneplus/quote-of-the-day-for-rohingya-who-escaped-the-misery-lingers.html
+
+**On the Trail With Spain’s Prime Minister, as He Tries to Pull Out a Win**\
+`Pedro Sánchez, Europe’s most prominent left-wing leader, seems set to lose power in an election next week. Our reporter trailed his last-ditch effort to turn his campaign around.`\
+https://www.nytimes.com/2026/11/21/world/europe/spain-sanchez-interview-election-basketball.html
+
+**In France’s Angry Autumn, TV News Channels Are Accused of Stirring the Pot**\
+`Critics say that CNews and BFM TV, two major news channels, have used racist language in protest coverage. The channels deny it.`\
+https://www.nytimes.com/2026/11/21/world/europe/in-frances-angry-autumn-tv-news-channels-are-accused-of-stirring-the-pot.html
+
 **From the Front Page: On Nov. 21, 1995, Bosnia, Croatia and Serbia Agree to Peace**\
 `The leaders of the Balkan states reached the Dayton peace agreement, ending nearly four years of war in Bosnia that killed more than 100,000 people.`\
 https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-bosnia-croatia-and-serbia-agree-to-peace.html
