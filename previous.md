@@ -4,7 +4,7 @@ https://www.nytimes.com/2026/11/21/dining/make-your-sunday-breakfast-on-saturday
 
 **How I’m Tackling Thanksgiving Desserts This Year**\
 `What I’m baking, plus a peek into my day-by-day checklist to spread out the prep.`\
-https://www.nytimes.com/2026/11/21/dining/how-im-tackling-thanksgiving-desserts-this-year.html
+https://www.nytimes.com/2026/11/21/dining/thanksgiving-desserts-planning-checklist.html
 
 **Catherine, Princess of Wales, Documents Life With Cancer in BBC Film**\
 `“Cancer does change you,” Catherine, who is in remission, says in a trailer for the film. It will be released this month.`\
