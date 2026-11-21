@@ -1,3 +1,7 @@
+**When Animals Go Viral, Zoos Get Much More Than Internet Fame**\
+`Animal videos have long been popular online, but as it did with Fiona the hippo, social media can foster deeper connections that are valuable to zoos.`\
+https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
+
 **Trump Moves to Restrict Congressional Oversight of Contractors**\
 `The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
 https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/theater/joe-keery-other-desert-cities-broadwa
 **A Butler School in the Netherlands Offers Entry Into a Gilded World**\
 `An academy in the Netherlands offers an eight-week, $14,000 program for entry into a gilded world of service. What’s the appeal?`\
 https://www.nytimes.com/2026/11/21/world/europe/butler-school-international-butler-academy-netherlands.html
-
-**6 Podcasts for Cozy Autumn Evenings**\
-`These shows full of wholesome recipes, nature walks and compelling audio fiction will help see you through to winter’s arrival.`\
-https://www.nytimes.com/2026/11/21/arts/6-podcasts-cozy-autumn-evenings.html
 
