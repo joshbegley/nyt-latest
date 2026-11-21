@@ -1,3 +1,11 @@
+**Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
+`His work with luminaries like Christy Moore and Andy Irvine expanded the sonic boundaries of traditional Irish music while preserving its roots.`\
+https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html
+
+**When Animals Go Viral, Zoos Get Much More Than Internet Fame**\
+`Animal videos have long been popular online, but as it did with Fiona the hippo, social media can foster deeper connections that are valuable to zoos.`\
+https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
+
 **The Army Rejected a Safer Option to Destroy Lead-Laced Explosives in Iowa**\
 `The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
 https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
