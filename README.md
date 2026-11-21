@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/20/us/bobby-ray-inman-dead.html
 `The three officers were filmed beating Michel Zecler, a music producer, inside his Paris studio in 2020, setting off a national backlash.`\
 https://www.nytimes.com/2026/11/20/world/europe/france-police-brutality-black-producer.html
 
-**Jury Finds Man Guilty of Arson in Devastating L.A. Fire**\
+**Jury in Palisades Fire Trial Finds Man Guilty of Arson in Devastating Blaze**\
 `The defendant, Jonathan Rinderknecht, was found guilty on two counts. It was the second time he was tried in federal court in connection with the blaze. His first trial ended in a mistrial.`\
 https://www.nytimes.com/2026/11/20/us/la-fire-trial-arson.html
 
