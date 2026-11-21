@@ -1,3 +1,7 @@
+**U.N. Fails to Regulate Lethal Autonomous Weapons, but Plans to Try Again**\
+`Major military powers like the United States and Russia expressed strong resistance to binding restrictions.`\
+https://www.nytimes.com/2026/11/21/world/europe/un-lethal-autonomous-weapons.html
+
 **Elon Musk on His Politics, a Potential Merger and Ukraine**\
 `The chief executive of Tesla and SpaceX spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/21/business/dealbook/elon-musk-dealbook-summit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/movies/elsinore-daniel-day-lewis-hamlet.html
 **10 Days After Fatal Building Collapse, a Brooklyn Block Is in Limbo**\
 `A deadly collapse damaged an adjoining building, which city officials now say must be torn down. Residents of that building and others nearby are frustrated and anxious.`\
 https://www.nytimes.com/2026/11/21/nyregion/brooklyn-building-collapse-flatbush-ave.html
-
-**Before a Fatal Building Collapse, Officials Signed Off on a Dubious Plan**\
-`Experts say that the New York City Buildings Department approved a risky method of shoring up a structure next to a Brooklyn construction site. Months later, it collapsed.`\
-https://www.nytimes.com/2026/11/21/nyregion/flatbush-building-collapse-oversight.html
 
