@@ -1,3 +1,11 @@
+**Advice to Democrats: Impeach Trump’s Cabinet**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
+
+**Tom Hanks Got A.I.-Cloned. Here’s How We Stop It From Happening to You.**\
+`Our copyright law needs tweaks for the A.I. age.`\
+https://www.nytimes.com/2026/11/21/opinion/ai-clones-copyright-law.html
+
 **Catherine, Princess of Wales, Documents Life With Cancer in BBC Film**\
 `“Cancer does change you,” Catherine, who is in remission, says in a trailer for the film. It will be released this month.`\
 https://www.nytimes.com/2026/11/21/world/europe/princess-kate-bbc-cancer-film.html
