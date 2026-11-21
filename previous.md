@@ -1,6 +1,10 @@
+**Map: Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://www.nytimes.com/interactive/2026/11/20/world/americas/20wea-quake-tracker-peru-nytcz7ry-v2.html
+
 **Takeaways From Trump’s Post-Trip News Conference**\
 `President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
-https://www.nytimes.com/2026/11/20/us/politics/takeaways-from-trumps-post-asia-trip-news-conference.html
+https://www.nytimes.com/2026/11/20/us/politics/trump-news-conference-asia-trip.html
 
 **Nvidia Said to Face S.E.C. Probe Into Its Accounting Practices**\
 `Questions around the company’s accounting had surfaced amid revelations about its questionable chip sales in Asia.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/opinion/experimental-drugs-dying-patients.htm
 **Alice Huang, Accused of Spying on Nvidia’s CEO, Is Linked to Firms With Ties to China’s Military**\
 `Companies linked to Alice Huang, the woman at the heart of the Nvidia scandal, are part of a network of Chinese tech firms and defense contractors that need advanced computing power.`\
 https://www.nytimes.com/2026/11/20/us/politics/nvidia-alice-huang-chips-china.html
-
-**Jennifer Lopez Has Evolved: ‘I’m Better at Everything’**\
-`Decades into her career, the musician and actress Jennifer Lopez is still pursuing excellence in the work of music, theater and dance. Ahead of her two-hour concert special airing Thanksgiving night on CBS and Parmount+, Lopez speaks with ‘Popcast’ about how she feels at a new peak.`\
-https://www.nytimes.com/video/podcasts/100000011291361/jennifer-lopez-has-evolved-im-better-at-everything.html
 
