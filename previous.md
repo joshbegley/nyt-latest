@@ -1,3 +1,7 @@
+**On the Fritz**\
+`Curran Eggertson’s debut New York Times puzzle will send solvers scrambling.`\
+https://www.nytimes.com/2026/11/21/crosswords/daily-puzzle-2026-11-22.html
+
 **What to Know About the Planned Explosion in Iowa**\
 `The Army intends to detonate a stockpile of lead azide on Monday at a facility in southeastern Iowa, sending a plume of toxic lead dust into the nearby community.`\
 https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explosion-in-iowa.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/realestate/my-condos-management-company-is-in
 **David Sanders Has Died. As a Pilot, He Fought Off a Hijacker’s Violent Attack.**\
 `When a disgruntled employee tried to kill him and his two crew members in 1994, a midair battle ensued. He has died at 82.`\
 https://www.nytimes.com/2026/11/21/obituaries/david-sanders-dead.html
-
-**Read These Books Before They Hit Screens in December**\
-`Jennifer Harlan, an editor at The New York Times Book Review, recommends three books to read before their on-screen adaptations premiere in December.`\
-https://www.nytimes.com/video/books/100000011268506/read-these-books-before-they-hit-screens-in-december.html
 

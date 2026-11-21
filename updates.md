@@ -1,3 +1,7 @@
+**On the Fritz**\
+`Curran Eggertson’s debut New York Times puzzle will send solvers scrambling.`\
+https://www.nytimes.com/2026/11/21/crosswords/daily-puzzle-2026-11-22.html
+
 **Bigfoot Left a Paper Trail That Everyone Can See Now**\
 `This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
 https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
