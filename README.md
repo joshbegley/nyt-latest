@@ -1,3 +1,11 @@
+**Fiona the Hippo Died After Eating a Hat. Some Want Justice.**\
+`Social media commenters have called for investigations, the release of zoo video footage and punishment for the parents of a child whose hat Fiona ingested.`\
+https://www.nytimes.com/2026/11/20/us/fiona-hippo-internet-justice.html
+
+**Judge Denies Release of Immigrant Shot by ICE in New York**\
+`The Dominican man wounded by an Immigration and Customs Enforcement agent last month must remain in detention, a federal judge ruled on Friday.`\
+https://www.nytimes.com/2026/11/20/nyregion/nyc-ice-shooting-oscar-belgal-ruling.html
+
 **‘Class Is Not an Identity’**\
 `The American working class is suffering. The author and leftist thinker Catherine Liu argues elite culture wars ignore the painful realities of economic disparity.`\
 https://www.nytimes.com/video/opinion/100000011274190/class-is-not-an-identity.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/20/us/los-angeles-macarthur-park-fence.html
 **Takeaways From ‘Melania: The Series,’ a Coda to the Film on the First Lady**\
 `A streaming sequel to the documentary that was released in January follows Melania Trump in the days after her husband’s second inauguration.`\
 https://www.nytimes.com/2026/11/20/arts/television/melania-the-series-takeaways.html
-
-**Flashback: Your Weekly History Quiz, Nov. 21, 2026**\
-`Can you sort 8 historical events?`\
-https://www.nytimes.com/interactive/2026/11/20/upshot/flashback.html
-
-**Inside the Fight Between Native American Tribes and Kalshi**\
-`For decades, many U.S. tribes have relied on casinos and other gambling revenue for survival. Prediction markets have threatened their sovereignty, they have argued in court.`\
-https://www.nytimes.com/2026/11/20/business/tribal-gaming-kalshi.html
 
