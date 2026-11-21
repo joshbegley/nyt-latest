@@ -1,3 +1,7 @@
+**Who Owns Thanksgiving?**\
+`How to claim a stake in the holiday, even if you’re not hosting.`\
+https://www.nytimes.com/2026/11/21/briefing/who-owns-thanksgiving.html
+
 **Top Drug Kingpin Is Captured by Mexican Army as Gunfire Erupts**\
 `The arrest of Fausto Isidro Meza Flores, who is known as El Chapo Isidro and was one of the F.B.I.’s 10 most wanted, was a victory for the Mexican government.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-el-chapo-isidro-captured-drugs.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-b
 **Mishaps**\
 `Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
 https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
-
-**Judge Approves $7 Billion Settlement Over Claims That Roundup Caused Cancer**\
-`The ruling, in a nationwide class-action suit, is expected to end tens of thousands of lawsuits by people claiming that Roundup caused non-Hodgkin lymphoma.`\
-https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-over-claims-that-roundup-caused-cancer.html
 
