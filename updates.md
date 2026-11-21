@@ -1,4 +1,8 @@
 **Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
+`The salt is a flaky favorite of food influencers and famous chefs. A revelation this week raised questions about what makes artisanal “artisanal.”`\
+https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
+
+**Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
 `The salt is a flaky favorite of food influencers and famous chefs. But a revelation this week raised questions about what makes artisanal “artisanal.”`\
 https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
 
