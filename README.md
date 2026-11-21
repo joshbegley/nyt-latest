@@ -1,3 +1,7 @@
+**Federal Court Halts Pregnant Workers’ Protection Law**\
+`The Fifth Circuit Court of Appeals said the law was unconstitutional because it was passed with proxy voting during the Covid pandemic. It is expected to be appealed to the Supreme Court.`\
+https://www.nytimes.com/2026/11/21/us/politics/federal-court-halts-pregnant-workers-protection-law.html
+
 **Quote of the Day: For Rohingya Who Escaped, the Misery Lingers**\
 `Quote of the Day for Saturday, November 20, 2026.`\
 https://www.nytimes.com/2026/11/21/pageoneplus/quote-of-the-day-for-rohingya-who-escaped-the-misery-lingers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/20/weather/tropical-storm-kyle-florida-rain-than
 **Playbill Removes Casting Call for George Floyd Musical Album**\
 `The theater publication has banned future listings by the record label behind the project, Busted Broadway.`\
 https://www.nytimes.com/2026/11/20/theater/george-floyd-musical-playbill-busted-broadway.html
-
-**Mamdani Will Run New York With a Limp After Tearing Achilles’ Tendon Playing Soccer**\
-`The mayor showed up on Friday with his right leg in a walking boot, an orthopedic stabilizer he may need to wear for as many as eight weeks.`\
-https://www.nytimes.com/2026/11/20/nyregion/mamdani-achilles-tear-soccer.html
 
