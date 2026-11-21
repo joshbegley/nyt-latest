@@ -1,3 +1,19 @@
+**A Chinese Tech Hub Offers a Peek at the Electric Cars Headed for Canada**\
+`Prime Minister Mark Carney attended an economic summit in the city of Shenzhen, where electric vehicles rule the hectic, but largely silent, road.`\
+https://www.nytimes.com/2026/11/21/world/canada/carney-china-electric-vehicles-tariffs.html
+
+**NYT Connections Answers for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/connections-companion-1260.html
+
+**NYT Strands Hints for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/strands-sidekick-994.html
+
+**Today’s Wordle Hints for November 22, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/21/crosswords/wordle-review-1982.html
+
 **Hakeem Jeffries Thinks He’s the Man for This Moment**\
 `The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
 https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-
 **A Prosecutor Got Drunk to Help the Police. Things Got Out of Hand.**\
 `The man drank too much while participating in a “wet lab” to help officers recognize inebriation — and wound up the subject of an internal investigation, officials said.`\
 https://www.nytimes.com/2026/11/20/us/drunk-officers-training-maricopa-county-arizona.html
-
-**Washington State Fines Company $9 Million Over Fatal Tank Implosion**\
-`Investigators said the company, Nippon Dynawave Packaging, knew conditions at its plant in Longview, Wash., were unsafe. The company said it would appeal.`\
-https://www.nytimes.com/2026/11/20/us/washington-state-fatal-tank-implosion-fine.html
-
-**Trump Administration Says Army Can Blow Up Lead-Laced Explosives**\
-`The detonation, now set for Monday, could create a cloud of lead dust stretching for miles over homes and farms, the Army has said. Environmental groups are seeking an emergency stay.`\
-https://www.nytimes.com/2026/11/20/climate/iowa-lead-plume-ammunition-explosion.html
-
-**Map: Earthquake Shakes Peru**\
-`View the location of the quake’s epicenter and shake area.`\
-https://www.nytimes.com/interactive/2026/11/20/world/americas/earthquake-peru-map-tracker.html
-
-**Takeaways From Trump’s Post-Trip News Conference**\
-`President Trump called the trilateral meeting with Xi Jinping and Vladimir Putin in China an “amazing event.” He also said he would work with Democrats in Congress on key issues.`\
-https://www.nytimes.com/2026/11/20/us/politics/trump-news-conference-asia-trip.html
 
