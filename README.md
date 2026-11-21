@@ -1,3 +1,7 @@
+**Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
+`His work with luminaries like Christy Moore and Andy Irvine expanded the sonic boundaries of traditional Irish music while preserving its roots.`\
+https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html
+
 **When Animals Go Viral, Zoos Get Much More Than Internet Fame**\
 `Animal videos have long been popular online, but as it did with Fiona the hippo, social media can foster deeper connections that are valuable to zoos.`\
 https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/books/review/yosemite-falls-daniel-duane.html
 **From ‘Stranger Things’ to Broadway, Everyone Knows Joe Keery**\
 `“Stranger Things” vaulted him to stardom. With his Broadway debut in “Other Desert Cities,” he wants to get back to “why I started doing this in the first place.”`\
 https://www.nytimes.com/2026/11/21/theater/joe-keery-other-desert-cities-broadway.html
-
-**A Butler School in the Netherlands Offers Entry Into a Gilded World**\
-`An academy in the Netherlands offers an eight-week, $14,000 program for entry into a gilded world of service. What’s the appeal?`\
-https://www.nytimes.com/2026/11/21/world/europe/butler-school-international-butler-academy-netherlands.html
 
