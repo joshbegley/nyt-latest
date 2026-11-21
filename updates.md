@@ -1,3 +1,7 @@
+**Like Fiona the Hippo, Internet Famous Animals Can Bring Value to Zoos**\
+`Animal videos have long been popular online, but as it did with Fiona, social media can foster deeper connections that are valuable to zoos.`\
+https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
+
 **What’s Big, Hairy and Bipedal? Bigfoot’s Paper Trail Is Now Public.**\
 `This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
 https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
