@@ -98,7 +98,7 @@ https://www.nytimes.com/video/podcasts/100000011299787/hakeem-jeffries-on-whethe
 `Lana Del Rey and Dua Lipa add tracks to the cinematic video game, Julien Baker chases love and more.`\
 https://www.nytimes.com/2026/11/21/arts/music/gta-vi-dua-lipa-lana-del-rey.html
 
-**The $2.4 Billion Auction Week: Big Sales, Big Questions**\
+**The $2.4 Billion Auction Week: Big Sales, Bigger Expectations**\
 `“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
 https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
 

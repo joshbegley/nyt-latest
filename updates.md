@@ -1,3 +1,7 @@
+**The $2.4 Billion Auction Week: Big Sales, Bigger Expectations**\
+`“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
+https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
+
 **The Army Plans to Blow Up Tons of Toxic Explosives. It Rejected a Safer Option.**\
 `The Army had hired a firm to turn the explosives into harmless waste, but then dropped it in favor of a controlled blast that could launch lead dust across Iowa.`\
 https://www.nytimes.com/2026/11/21/climate/army-lead-azide-blast.html
