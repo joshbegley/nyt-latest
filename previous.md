@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
 `Naomi Wynter helps couples design highly specific celebrations, with things like music videos, movies or restaurants serving as inspiration.`\
 https://www.nytimes.com/2026/11/21/style/wedding-style-personality.html
 
-**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
-`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
-https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
-
 **Find Serenity in Grand Theft Auto VI. (Or Just Embrace the Chaos.)**\
 `Critics who have been playing the open-world game Grand Theft Auto VI for weeks discovered that there are two very different ways to spend your time.`\
 https://www.nytimes.com/2026/11/21/arts/grand-theft-auto-vi-notebook-chaos-serenity.html
+
+**International Student Enrollment Plunged. Schools Are Bracing for More Losses.**\
+`A blitz of new Trump administration policies are set to upend the lives of international students again, making it harder for them to live and work in the United States.`\
+https://www.nytimes.com/2026/11/21/us/politics/international-student-enrollment-plunged.html
 
 **Why Nostalgia for Tamagotchis, the Virtual Pets, Won’t Die**\
 `Millennials are answering the beeping call of the pocket-size game that caused a sensation 30 years ago. But analog-craving Gen Zers are, too.`\
