@@ -1,3 +1,31 @@
+**Trump, Xi and Putin’s New World Order**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
+
+**The Sisterhood Rocks!**\
+`But should daughters bear the brunt of their folks’ care?`\
+https://www.nytimes.com/2026/11/21/opinion/sister-snl-family-care-parents.html
+
+**I’m a Hollywood Agent. We Can Fix the Problem of A.I. Deepfakes.**\
+`Our copyright law needs tweaks for the A.I. age.`\
+https://www.nytimes.com/2026/11/21/opinion/ai-clones-copyright-law.html
+
+**The Midterms Were Epic. What Comes Next?**\
+`Readers continue to offer suggestions about what the Democrats should do after their election sweep.`\
+https://www.nytimes.com/2026/11/21/opinion/democrats-midterms.html
+
+**Margaret Atwood: Born Into a Storm**\
+`Beginning life at the start of a world war gave me a realistic sense of how bad the news could get.`\
+https://www.nytimes.com/2026/11/21/opinion/margaret-atwood-nyt-175.html
+
+**Donate This Holiday Season: Saga Education, Luminos Fund and Edesia Nutrition Need Your Help**\
+`For $25, you could buy a scarf. Or you could help a child return to school.`\
+https://www.nytimes.com/2026/11/21/opinion/charity-holiday-gift-saga-luminos-edesia.html
+
+**Trump Got Together With the Boys**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/video/opinion/100000011295825/trump-got-together-with-the-boys.html
+
 **Who Owns Thanksgiving?**\
 `How to claim a stake in the holiday, even if you’re not hosting.`\
 https://www.nytimes.com/2026/11/21/briefing/who-owns-thanksgiving.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/21/nyregion/flatbush-building-collapse-oversight
 **NYT Spelling Bee Answers for November 21, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/21/crosswords/spelling-bee-forum.html
-
-**How a Liberal Fox News Host Braced for a Game-Changing Election Day**\
-`Jessica Tarlov, co-host of “The Five,” spent the day before the midterm elections a bit nervous but hopeful as she sparred with her conservative colleagues.`\
-https://www.nytimes.com/interactive/2026/11/21/nyregion/routine-jessica-tarlov.html
-
-**Federal Court Halts Pregnant Workers’ Protection Law**\
-`The Fifth Circuit Court of Appeals said the law was unconstitutional because it was passed with proxy voting during the Covid pandemic. It is expected to be appealed to the Supreme Court.`\
-https://www.nytimes.com/2026/11/21/us/politics/federal-court-halts-pregnant-workers-protection-law.html
-
-**Quote of the Day: For Rohingya Who Escaped, the Misery Lingers**\
-`Quote of the Day for Saturday, November 20, 2026.`\
-https://www.nytimes.com/2026/11/21/pageoneplus/quote-of-the-day-for-rohingya-who-escaped-the-misery-lingers.html
-
-**On the Trail With Spain’s Prime Minister, as He Tries to Pull Out a Win**\
-`Pedro Sánchez, Europe’s most prominent left-wing leader, seems set to lose power in an election next week. Our reporter trailed his last-ditch effort to turn his campaign around.`\
-https://www.nytimes.com/2026/11/21/world/europe/spain-sanchez-interview-election-basketball.html
-
-**In France’s Angry Autumn, TV News Channels Are Accused of Stirring the Pot**\
-`Critics say that CNews and BFM TV, two major news channels, have used racist language in protest coverage. The channels deny it.`\
-https://www.nytimes.com/2026/11/21/world/europe/in-frances-angry-autumn-tv-news-channels-are-accused-of-stirring-the-pot.html
-
-**From the Front Page: On Nov. 21, 1995, Bosnia, Croatia and Serbia Agree to Peace**\
-`The leaders of the Balkan states reached the Dayton peace agreement, ending nearly four years of war in Bosnia that killed more than 100,000 people.`\
-https://www.nytimes.com/2026/11/21/learning/from-the-front-page-on-nov-21-1995-bosnia-croatia-and-serbia-agree-to-peace.html
-
-**Mishaps**\
-`Zhou Zhang’s Saturday debut puzzle makes a great gift.`\
-https://www.nytimes.com/2026/11/20/crosswords/daily-puzzle-2026-11-21.html
 

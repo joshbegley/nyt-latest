@@ -1,3 +1,31 @@
+**Trump, Xi and Putin’s New World Order**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/2026/11/21/opinion/trump-xi-putin-summit-china-ai-democrats.html
+
+**The Sisterhood Rocks!**\
+`But should daughters bear the brunt of their folks’ care?`\
+https://www.nytimes.com/2026/11/21/opinion/sister-snl-family-care-parents.html
+
+**I’m a Hollywood Agent. We Can Fix the Problem of A.I. Deepfakes.**\
+`Our copyright law needs tweaks for the A.I. age.`\
+https://www.nytimes.com/2026/11/21/opinion/ai-clones-copyright-law.html
+
+**The Midterms Were Epic. What Comes Next?**\
+`Readers continue to offer suggestions about what the Democrats should do after their election sweep.`\
+https://www.nytimes.com/2026/11/21/opinion/democrats-midterms.html
+
+**Margaret Atwood: Born Into a Storm**\
+`Beginning life at the start of a world war gave me a realistic sense of how bad the news could get.`\
+https://www.nytimes.com/2026/11/21/opinion/margaret-atwood-nyt-175.html
+
+**Donate This Holiday Season: Saga Education, Luminos Fund and Edesia Nutrition Need Your Help**\
+`For $25, you could buy a scarf. Or you could help a child return to school.`\
+https://www.nytimes.com/2026/11/21/opinion/charity-holiday-gift-saga-luminos-edesia.html
+
+**Trump Got Together With the Boys**\
+`Autocrats, tech lords and a whole lot of hubris: a week in politics.`\
+https://www.nytimes.com/video/opinion/100000011295825/trump-got-together-with-the-boys.html
+
 **Who Owns Thanksgiving?**\
 `How to claim a stake in the holiday, even if you’re not hosting.`\
 https://www.nytimes.com/2026/11/21/briefing/who-owns-thanksgiving.html
