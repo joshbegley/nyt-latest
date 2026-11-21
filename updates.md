@@ -1,3 +1,7 @@
+**Judge Approves $7 Billion Settlement Over Claims That Roundup Caused Cancer**\
+`The ruling, in a nationwide class-action suit, is expected to end tens of thousands of lawsuits by people claiming that Roundup caused non-Hodgkin lymphoma.`\
+https://www.nytimes.com/2026/11/20/business/judge-approves-7-billion-settlement-over-claims-that-roundup-caused-cancer.html
+
 **A Prosecutor Got Drunk to Help the Police. Things Got Out of Hand.**\
 `The man drank too much while participating in a “wet lab” to help officers recognize inebriation — and wound up the subject of an internal investigation, officials said.`\
 https://www.nytimes.com/2026/11/20/us/drunk-officers-training-maricopa-county-arizona.html
