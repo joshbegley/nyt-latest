@@ -1,3 +1,7 @@
+**Trump Moves to Restrict Congressional Oversight of Contractors**\
+`The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
+https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
+
 **2-Year-Old Girl Wearing Only a Diaper Is Rescued After Hours in the Desert**\
 `“It was a life-changing moment,” said a searcher who found the girl, Vella Campillo, early on Wednesday in a remote area of Arizona after she had been missing for more than seven hours.`\
 https://www.nytimes.com/2026/11/21/us/missing-2-year-old-arizona-desert.html

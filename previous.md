@@ -1,3 +1,7 @@
+**Trump Moves to Restrict Congressional Oversight of Contractors**\
+`The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
+https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
+
 **2-Year-Old Girl Wearing Only a Diaper Is Rescued After Hours in the Desert**\
 `“It was a life-changing moment,” said a searcher who found the girl, Vella Campillo, early on Wednesday in a remote area of Arizona after she had been missing for more than seven hours.`\
 https://www.nytimes.com/2026/11/21/us/missing-2-year-old-arizona-desert.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/world/europe/butler-school-international-butl
 **6 Podcasts for Cozy Autumn Evenings**\
 `These shows full of wholesome recipes, nature walks and compelling audio fiction will help see you through to winter’s arrival.`\
 https://www.nytimes.com/2026/11/21/arts/6-podcasts-cozy-autumn-evenings.html
-
-**A Night of Sweets and Saris for the Diwali Holiday**\
-`Guests, many of them from New York City by way of India, were in a festive mood at this event celebrating Diwali. It’s no wonder: The holiday is all “about finding light in the darkness.”`\
-https://www.nytimes.com/2026/11/21/arts/a-night-of-sweets-and-saris.html
 
