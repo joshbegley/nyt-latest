@@ -1,3 +1,11 @@
+**Democrat Chuck Hubbard Defeats 11-Term Republican Virginia Foxx in North Carolina**\
+`Chuck Hubbard, a retired journalist, defeated Representative Virginia Foxx in a conservative district.`\
+https://www.nytimes.com/2026/11/22/us/virginia-foxx-chuck-hubbard-north-carolina-house.html
+
+**How Melania Trump Found a Diplomatic Opening in the War in Ukraine**\
+`The first lady, who has little experience in international affairs, developed back channels to key figures on both sides of the conflict through her longtime agent.`\
+https://www.nytimes.com/2026/11/22/us/politics/melania-trump-ukraine-diplomacy.html
+
 **Democrats Clinch 258 House Seats, an Election-Year Record This Century**\
 `After sweeping midterm wins, Democrats have secured the largest House majority in a national election for either party in three decades.`\
 https://www.nytimes.com/2026/11/22/us/politics/democrats-midterm-house-majority-record.html
