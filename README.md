@@ -1,3 +1,7 @@
+**Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
+`After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 75.`\
+https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
+
 **Democrat Chuck Hubbard Defeats 11-Term Republican Virginia Foxx in North Carolina**\
 `Chuck Hubbard, a retired journalist, defeated Representative Virginia Foxx in a conservative district.`\
 https://www.nytimes.com/2026/11/22/us/virginia-foxx-chuck-hubbard-north-carolina-house.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/world/canada/canada-boreal-forest-degradation
 **How Six Americans Under 40 Are Saving for Retirement**\
 `Whether they take a traditional path or go their own way, some younger workers are managing to build a nest egg while juggling other financial challenges.`\
 https://www.nytimes.com/2026/11/22/business/retirement-millennials-gen-z.html
-
-**NYT Spelling Bee Answers for November 22, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/22/crosswords/spelling-bee-forum.html
 
