@@ -1,3 +1,7 @@
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
+https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
+
 **Why Are We at the Mercy of the World’s Weirdest Men?**\
 `No kings isn’t just about Trump.`\
 https://www.nytimes.com/2026/11/22/opinion/jensen-huang-ai-ethics-cold-war.html

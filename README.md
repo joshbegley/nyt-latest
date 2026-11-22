@@ -2,7 +2,7 @@
 `Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
 https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
 
-**FAA Says All Delta Flights Delayed as Automated System Falters**\
+**FAA Says All Delta Flights Through Atlanta Delayed as Automated System Falters**\
 `The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
 https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
 
