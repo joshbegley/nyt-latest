@@ -1,3 +1,7 @@
+**What Machines Love**\
+`The ability of humans to apply aesthetic judgment separates us from the bots — at least for now.`\
+https://www.nytimes.com/2026/11/22/briefing/does-ai-have-taste.html
+
 **A Thanksgiving Dinner for $100? Yes, It’s Possible (and Delicious).**\
 `NYT Cooking’s Andy Baraghani shows us how.`\
 https://www.nytimes.com/2026/11/22/podcasts/the-daily/a-thanksgiving-dinner-for-100-yes-its-possible-and-delicious.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
 **Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
 `The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
 https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
-
-**Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
-`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader that a U.S. official called the most dangerous man in Mexico.`\
-https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
 
