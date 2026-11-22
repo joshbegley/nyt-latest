@@ -58,7 +58,7 @@ https://www.nytimes.com/2026/11/22/opinion/gop-midterms-wipeout-movies.html
 `I was afraid to let my kids fend for themselves. When my injury forced them to anyway, they surprised me, and themselves.`\
 https://www.nytimes.com/2026/11/22/opinion/better-kids-work-less-parents.html
 
-**What Does It Actually Mean to Write ‘Like a Human’?**\
+**These Words Aren’t Proof You’re Using A.I.**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
 
