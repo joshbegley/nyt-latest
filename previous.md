@@ -1,3 +1,7 @@
+**Zohran Mamdani on Trump, Wall Street and Wealth Taxes**\
+`The mayor of New York City spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-summit.html
+
 **Bitter Clash Over Fossil Fuels Derails U.N. Climate Talks**\
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/learning/from-the-front-page-kennedy-is-assas
 **China’s Spies Set Sights on A.I. Chips Years Before Nvidia Scandal**\
 `China’s espionage agency has been running a secret campaign to help the country’s companies acquire advanced A.I. chips and to gather intelligence on the sector, officials say.`\
 https://www.nytimes.com/2026/11/21/world/asia/china-nvidia-spy-chips-state-security.html
-
-**Deadly Protests Erupt in Bangladesh Over Exiled Former Leader. What to Know.**\
-`Supporters of the deposed prime minister, Sheikh Hasina, who was sentenced to death in absentia, have waged a small-scale insurgency to destabilize the current government.`\
-https://www.nytimes.com/2026/11/21/world/asia/bangladesh-protests-sheikh-hasina-what-to-know.html
 
