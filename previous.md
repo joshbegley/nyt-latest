@@ -1,3 +1,11 @@
+**A Landmark Genocide Ruling**\
+`A U.N. court’s decision against Myanmar sets a precedent in international law with important implications for a similar case over Israel’s actions in Gaza.`\
+https://www.nytimes.com/2026/11/22/world/genocide-myanmar-un-climate-talks.html
+
+**ICE Detains Two Travelers Boarding Flight at Seattle Airport**\
+`Federal immigration officers on Saturday arrested two passengers at Seattle-Tacoma International Airport as they were boarding a flight, prompting outrage from airport officials and Washington’s governor.`\
+https://www.nytimes.com/video/us/100000011301227/ice-detention-seatac-airport.html
+
 **2 New Jersey Women Indicted in Faked Anti-Trump Slashing Attack**\
 `Natalie Greene, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she had been attacked at a nature preserve in 2025, officials said.`\
 https://www.nytimes.com/2026/11/22/us/van-drew-employee-indicted-attack-hoax.html
@@ -34,7 +42,7 @@ https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
 `Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
 https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
 
-**Delta Delays Flights As Thanksgiving Travel Begins, After Automated System Falters**\
+**Delta Delays Flights as Thanksgiving Travel Begins, After Automated System Falters**\
 `The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
 https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
 
@@ -166,13 +174,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
-`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
-https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
-
 **Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
 `Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
 https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
+
+**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
+`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
+https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/22/style/letiquette-french-fashion-magazine.html
 **‘The Killer Isn’t Alice’ Has Changed Their Lives**\
 `Married escape-room fanatics invented a murder-mystery challenge that’s sold more than a hundred thousand copies.`\
 https://www.nytimes.com/2026/11/22/books/review/the-killer-isnt-alice-puzzle-book.html
-
-**Book Review: ‘Arthur Mitchell,’ by Lynn Garafola**\
-`Misty Copeland reviews an incisive new biography of Arthur Mitchell, a powerful force at both New York City Ballet and Dance Theater of Harlem.`\
-https://www.nytimes.com/2026/11/22/books/review/arthur-mitchell-lynn-garafola.html
-
-**Canada’s Boreal Forest Is Reshaped by Logging and Climate Change**\
-`Canada has framed the preservation of its boreal forest as a model for the world, but commercial logging combined with climate change is inflicting severe damage.`\
-https://www.nytimes.com/2026/11/22/world/canada/canada-boreal-forest-degradation-deforestation-logging.html
 

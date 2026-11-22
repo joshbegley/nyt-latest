@@ -1,3 +1,15 @@
+**A Landmark Genocide Ruling**\
+`A U.N. court’s decision against Myanmar sets a precedent in international law with important implications for a similar case over Israel’s actions in Gaza.`\
+https://www.nytimes.com/2026/11/22/world/genocide-myanmar-un-climate-talks.html
+
+**ICE Detains Two Travelers Boarding Flight at Seattle Airport**\
+`Federal immigration officers on Saturday arrested two passengers at Seattle-Tacoma International Airport as they were boarding a flight, prompting outrage from airport officials and Washington’s governor.`\
+https://www.nytimes.com/video/us/100000011301227/ice-detention-seatac-airport.html
+
+**Delta Delays Flights as Thanksgiving Travel Begins, After Automated System Falters**\
+`The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **Delta Delays Flights As Thanksgiving Travel Begins, After Automated System Falters**\
 `The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
 https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
