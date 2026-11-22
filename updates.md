@@ -1,3 +1,7 @@
+**St. Patrick’s Day Parade Canceled as Florida Figures Out D.E.I. Law**\
+`Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
+https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html
+
 **Red Curry Noodles, Roasted Sausages With Chickpeas and Sheet-Pan Pierogies**\
 `And more non-Thanksgiving dinners to be thankful for.`\
 https://www.nytimes.com/2026/11/22/dining/red-curry-noodles-roasted-sausages-with-chickpeas-and-sheet-pan-pierogies.html

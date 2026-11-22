@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-sum
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
 
-**What’s Legal Under Florida’s New Anti-D.E.I. Law? It’s Anyone’s Guess.**\
+**St. Patrick’s Day Parade Canceled as Florida Figures Out D.E.I. Law**\
 `Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
 https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html
 
