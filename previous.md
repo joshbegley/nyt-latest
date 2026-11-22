@@ -1,3 +1,7 @@
+**How Stringent Anti-A.I. Cheating Rules Brought Down an Education Minister**\
+`Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
+https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
+
 **Now Is Not the Time for Europe to Relax**\
 `It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
 https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/music/gta-vi-dua-lipa-lana-del-rey.html
 **The $2.4 Billion Auction Week: Big Sales, Bigger Expectations**\
 `“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
 https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
-
-**A Look Inside the International Butler Academy**\
-`A butler academy in the Netherlands is offering an eight-week intensive program that costs nearly $14,000. Graduates of the program hope to find jobs with rich families, on yachts or on private jets.`\
-https://www.nytimes.com/video/world/europe/100000011298491/netherlands-international-butler-academy-jobs-training.html
 

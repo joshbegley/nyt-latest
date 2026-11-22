@@ -1,3 +1,7 @@
+**How Stringent Anti-A.I. Cheating Rules Brought Down an Education Minister**\
+`Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
+https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
+
 **Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
 `“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a car crash the authorities say was meant to silence him.`\
 https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
