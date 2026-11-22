@@ -1,3 +1,7 @@
+**‘Hunger Games’ Rebounds With $120 Million Opening**\
+`“The Hunger Games: Sunrise on the Reaping” had nearly three times the domestic opening box office total of its predecessor, extending a Lionsgate hot streak.`\
+https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
+
 **FAA Says All Delta Flights Through Atlanta Delayed as Automated System Falters**\
 `The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
 https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html

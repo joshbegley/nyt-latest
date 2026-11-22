@@ -1,3 +1,7 @@
+**‘Hunger Games’ Rebounds With $120 Million Opening**\
+`“The Hunger Games: Sunrise on the Reaping” had nearly three times the domestic opening box office total of its predecessor, extending a Lionsgate hot streak.`\
+https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
+
 **The Ballet Star Herman Cornejo Will Take the Reins at Teatro Colón**\
 `Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
 https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/insider/typewriter-artificial-intelligence.ht
 **South Korea’s Education Minister Resigns Over Anti-A.I. Cheating Rules**\
 `Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
 https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
-
-**Europe Needs to Save Itself**\
-`It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
-https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
 

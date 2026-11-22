@@ -1,3 +1,11 @@
+**Court Filing Shows How Iowa Explosives Crisis Grew**\
+`The Army now plans to detonate a cache of dangerous explosives on or by Tuesday, potentially sending a plume of lead dust for miles over homes and farmland.`\
+https://www.nytimes.com/2026/11/22/climate/iowa-lead-crisis-court-filing-detonation-delay-army.html
+
+**Scott Bessent Calls on Nvidia to Provide Answers on Chip Sales to China**\
+`The treasury secretary said on CBS that it was too soon to say if Jensen Huang should return as the company’s chief executive.`\
+https://www.nytimes.com/2026/11/22/business/scott-bessent-jensen-huang-nvidia.html
+
 **‘Hunger Games’ Rebounds With $120 Million Opening**\
 `“The Hunger Games: Sunrise on the Reaping” had nearly three times the domestic opening box office total of its predecessor, extending a Lionsgate hot streak.`\
 https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/22/nyregion/cornell-jane-doe-case.html
 **Two Police Firings in New York Show Racism in the Ranks**\
 `One officer accused colleagues of racist bullying. Then investigators found offensive texts on his own phone.`\
 https://www.nytimes.com/2026/11/22/nyregion/nypd-racial-discrimination-firing.html
-
-**An A.I. Editor’s Essential Tool: The Typewriter**\
-`When it comes to translating thoughts into words, this machine is a technological marvel.`\
-https://www.nytimes.com/2026/11/22/insider/typewriter-artificial-intelligence.html
-
-**South Korea’s Education Minister Resigns Over Anti-A.I. Cheating Rules**\
-`Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
-https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
 
