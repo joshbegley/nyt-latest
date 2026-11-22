@@ -1,3 +1,7 @@
+**F.A.A. Says All Delta Flights Delayed as Automated System Falters**\
+`The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **Ginger Scallion Broccoli Salad, and More No-Oven Sides**\
 `(No description)`\
 https://www.nytimes.com/2026/11/22/dining/ginger-scallion-broccoli-salad-and-more-no-oven-sides.html
@@ -126,13 +130,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
-`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
-https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
-
 **Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
 `This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
 https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
+
+**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
+`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
+https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
 **ICE Officers Arrest 2 Passengers Boarding a Flight at Seattle Airport**\
 `The arrests were criticized by Washington’s governor and airport officials, who called the incident “distressing.”`\
 https://www.nytimes.com/2026/11/22/us/ice-arrest-passengers-seattle-airport.html
-
-**American vs. Chinese Mahjong: Why the Rivalry Is Stirring Controversy**\
-`American mahjong, with its own tiles and rules, has overshadowed the traditional Chinese game. The rivalry has fueled anger and cultural misunderstanding.`\
-https://www.nytimes.com/2026/11/22/world/asia/mahjong-american-chinese-controversy.html
 
