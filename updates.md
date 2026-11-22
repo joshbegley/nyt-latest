@@ -1,3 +1,7 @@
+**The Ballet Star Herman Cornejo Will Take the Reins at Teatro Colón**\
+`Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
+https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
+
 **These Words Aren’t Proof You’re Using A.I.**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
