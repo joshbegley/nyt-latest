@@ -1,3 +1,7 @@
+**2 New Jersey Women Indicted in Faked Anti-Trump Slashing Attack**\
+`Natalie Greene, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she had been attacked at a nature preserve in 2025, officials said.`\
+https://www.nytimes.com/2026/11/22/us/van-drew-employee-indicted-attack-hoax.html
+
 **Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
 `After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 76.`\
 https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/books/review/arthur-mitchell-lynn-garafola.ht
 **Canada’s Boreal Forest Is Reshaped by Logging and Climate Change**\
 `Canada has framed the preservation of its boreal forest as a model for the world, but commercial logging combined with climate change is inflicting severe damage.`\
 https://www.nytimes.com/2026/11/22/world/canada/canada-boreal-forest-degradation-deforestation-logging.html
-
-**How Six Americans Under 40 Are Saving for Retirement**\
-`Whether they take a traditional path or go their own way, some younger workers are managing to build a nest egg while juggling other financial challenges.`\
-https://www.nytimes.com/2026/11/22/business/retirement-millennials-gen-z.html
 
