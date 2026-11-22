@@ -1,3 +1,7 @@
+**25-Year-Old Man Charged in Chinatown Killing**\
+`A manhunt briefly shut down parts of Lower Manhattan on Friday night.`\
+https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
+
 **Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
 `The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
 https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/upshot/trump-transit-grants.html
 **A Chicago Park Is Infested With Rats. Is a Wealthy Couple to Blame?**\
 `People keep spreading nuts in a Chicago park, attracting rodents and neighbors’ fury. Officials are not sure how to stop it.`\
 https://www.nytimes.com/2026/11/21/us/chicago-lincoln-park-rats.html
-
-**Hakeem Jeffries Thinks He’s the Man for This Moment**\
-`The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
-https://www.nytimes.com/video/podcasts/100000011294059/hakeem-jeffries-interview-house-speaker.html
 
