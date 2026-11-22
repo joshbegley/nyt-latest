@@ -1,3 +1,7 @@
+**Ginger Scallion Broccoli Salad, and More No-Oven Sides**\
+`(No description)`\
+https://www.nytimes.com/2026/11/22/dining/ginger-scallion-broccoli-salad-and-more-no-oven-sides.html
+
 **Bearing Witness to a Genocide**\
 `After the International Court of Justice ruled that Myanmar committed genocide against Rohingya Muslims, we ask how to pay attention to suffering.`\
 https://www.nytimes.com/2026/11/22/briefing/bearing-witness-to-a-genocide.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/us/ice-arrest-passengers-seattle-airport.html
 **American vs. Chinese Mahjong: Why the Rivalry Is Stirring Controversy**\
 `American mahjong, with its own tiles and rules, has overshadowed the traditional Chinese game. The rivalry has fueled anger and cultural misunderstanding.`\
 https://www.nytimes.com/2026/11/22/world/asia/mahjong-american-chinese-controversy.html
-
-**Quote of the Day: Showing How to Succeed in Politics Without Really Trying**\
-`Quotation of the Day for Sunday, November 22, 2026.`\
-https://www.nytimes.com/2026/11/22/pageoneplus/quote-of-the-day-showing-how-to-succeed-in-politics-without-really-trying.html
 

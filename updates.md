@@ -1,3 +1,7 @@
+**Ginger Scallion Broccoli Salad, and More No-Oven Sides**\
+`(No description)`\
+https://www.nytimes.com/2026/11/22/dining/ginger-scallion-broccoli-salad-and-more-no-oven-sides.html
+
 **COP31 Talks Collapse in Turkey in a Clash Over Fossil Fuels**\
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
