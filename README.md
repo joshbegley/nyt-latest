@@ -1,3 +1,7 @@
+**Democrats Clinch 258 House Seats, an Election-Year Record This Century**\
+`After sweeping midterm wins, Democrats have secured the largest House majority in a national election for either party in three decades.`\
+https://www.nytimes.com/2026/11/22/us/politics/democrats-midterm-house-majority-record.html
+
 **Court Filing Shows How Iowa Explosives Crisis Grew**\
 `The Army now plans to detonate a cache of dangerous explosives on or by Tuesday, potentially sending a plume of lead dust for miles over homes and farmland.`\
 https://www.nytimes.com/2026/11/22/climate/iowa-lead-crisis-court-filing-detonation-delay-army.html
@@ -6,7 +10,7 @@ https://www.nytimes.com/2026/11/22/climate/iowa-lead-crisis-court-filing-detonat
 `The treasury secretary said on CBS that it was too soon to say if Jensen Huang should return as the company’s chief executive.`\
 https://www.nytimes.com/2026/11/22/business/scott-bessent-jensen-huang-nvidia.html
 
-**‘Hunger Games’ Rebounds With $120 Million Opening**\
+**‘Hunger Games’ Rebounds With $120 Million Opening for ‘Sunrise on the Reaping’ at Box Office**\
 `“The Hunger Games: Sunrise on the Reaping” had nearly three times the domestic opening box office total of its predecessor, extending a Lionsgate hot streak.`\
 https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/nyregion/metropolitan-diary.html
 **The District Attorney Who Declined to Charge the Men Accused of Sexually Assaulting Jane Doe**\
 `Matthew Van Houten, a district attorney in upstate New York, faced backlash over how he handled a woman’s rape allegation. He says he followed the law.`\
 https://www.nytimes.com/2026/11/22/nyregion/cornell-jane-doe-case.html
-
-**Two Police Firings in New York Show Racism in the Ranks**\
-`One officer accused colleagues of racist bullying. Then investigators found offensive texts on his own phone.`\
-https://www.nytimes.com/2026/11/22/nyregion/nypd-racial-discrimination-firing.html
 
