@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
 
 **Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
-`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader the F.B.I. had sought for years.`\
+`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader that a U.S. official called the most dangerous man in Mexico.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
 
 **Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\

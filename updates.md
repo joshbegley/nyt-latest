@@ -1,3 +1,7 @@
+**Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
+`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader that a U.S. official called the most dangerous man in Mexico.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
+
 **Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
 `The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
 https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
