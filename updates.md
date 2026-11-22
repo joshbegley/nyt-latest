@@ -1,3 +1,7 @@
+**Bearing Witness to a Genocide**\
+`After the International Court of Justice ruled that Myanmar committed genocide against Rohingya Muslims, we ask how to pay attention to suffering.`\
+https://www.nytimes.com/2026/11/22/briefing/bearing-witness-to-a-genocide.html
+
 **St. Patrick’s Day Parade Canceled as Florida Figures Out D.E.I. Law**\
 `Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
 https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html

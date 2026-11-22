@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/22/opinion/war-hbo-divorce-tech-huang.html
 `The mayor of New York City spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-summit.html
 
-**U.N. Climate Talks Collapse in a Bitter Clash Over Fossil Fuels**\
+**COP31 Talks Collapse in Turkey in a Clash Over Fossil Fuels**\
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
 
@@ -122,13 +122,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
-`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
-https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
-
 **Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
 `This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
 https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
+
+**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
+`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
+https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
