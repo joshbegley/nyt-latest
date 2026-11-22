@@ -1,3 +1,7 @@
+**Bearing Witness to a Genocide**\
+`After the International Court of Justice ruled that Myanmar committed genocide against Rohingya Muslims, we ask how to pay attention to suffering.`\
+https://www.nytimes.com/2026/11/22/briefing/bearing-witness-to-a-genocide.html
+
 **Red Curry Noodles, Roasted Sausages With Chickpeas and Sheet-Pan Pierogies**\
 `And more non-Thanksgiving dinners to be thankful for.`\
 https://www.nytimes.com/2026/11/22/dining/red-curry-noodles-roasted-sausages-with-chickpeas-and-sheet-pan-pierogies.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/world/asia/mahjong-american-chinese-controver
 **Quote of the Day: Showing How to Succeed in Politics Without Really Trying**\
 `Quotation of the Day for Sunday, November 22, 2026.`\
 https://www.nytimes.com/2026/11/22/pageoneplus/quote-of-the-day-showing-how-to-succeed-in-politics-without-really-trying.html
-
-**Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
-`“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a car crash the authorities say was meant to silence him.`\
-https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
 
