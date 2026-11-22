@@ -1,3 +1,7 @@
+**F.A.A. Says All Delta Flights Delayed as Automated System Falters**\
+`The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **Ginger Scallion Broccoli Salad, and More No-Oven Sides**\
 `(No description)`\
 https://www.nytimes.com/2026/11/22/dining/ginger-scallion-broccoli-salad-and-more-no-oven-sides.html
