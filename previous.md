@@ -1,3 +1,7 @@
+**No New Deal Agreed On at COP31 Climate Summit**\
+`The United Nations climate talks broke down on Sunday after long-building tensions over fossil fuels deadlocked negotiations.`\
+https://www.nytimes.com/video/world/100000011301307/united-nations-climate-cop31-fossil-fuels.html
+
 **A Landmark Genocide Ruling**\
 `A U.N. court’s decision against Myanmar sets a precedent in international law with important implications for a similar case over Israel’s actions in Gaza.`\
 https://www.nytimes.com/2026/11/22/world/genocide-myanmar-un-climate-talks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/books/review/aristocracy-american-style-nancy
 **L’Étiquette, the Unfussy French Fashion Magazine That’s Actually About Clothes**\
 `It’s refreshing.`\
 https://www.nytimes.com/2026/11/22/style/letiquette-french-fashion-magazine.html
-
-**‘The Killer Isn’t Alice’ Has Changed Their Lives**\
-`Married escape-room fanatics invented a murder-mystery challenge that’s sold more than a hundred thousand copies.`\
-https://www.nytimes.com/2026/11/22/books/review/the-killer-isnt-alice-puzzle-book.html
 

@@ -1,3 +1,7 @@
+**No New Deal Agreed On at COP31 Climate Summit**\
+`The United Nations climate talks broke down on Sunday after long-building tensions over fossil fuels deadlocked negotiations.`\
+https://www.nytimes.com/video/world/100000011301307/united-nations-climate-cop31-fossil-fuels.html
+
 **A Landmark Genocide Ruling**\
 `A U.N. court’s decision against Myanmar sets a precedent in international law with important implications for a similar case over Israel’s actions in Gaza.`\
 https://www.nytimes.com/2026/11/22/world/genocide-myanmar-un-climate-talks.html
