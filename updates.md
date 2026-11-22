@@ -1,3 +1,7 @@
+**Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
+`“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a car crash meant to silence him and says he has no hatred for his attacker.`\
+https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
+
 **ICE Officers Arrest 2 Passengers Boarding a Flight at Seattle Airport**\
 `The arrests were criticized by Washington’s governor and airport officials, who called the incident “distressing.”`\
 https://www.nytimes.com/2026/11/22/us/ice-arrest-passengers-seattle-airport.html
