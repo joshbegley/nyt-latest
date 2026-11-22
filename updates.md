@@ -1,3 +1,7 @@
+**China’s Spies Set Sights on A.I. Chips Years Before Nvidia Scandal**\
+`China’s espionage agency has been running a secret campaign to help the country’s companies acquire advanced A.I. chips and to gather intelligence on the sector, officials say.`\
+https://www.nytimes.com/2026/11/21/world/asia/china-nvidia-spy-chips-state-security.html
+
 **Deadly Protests Erupt in Bangladesh Over Exiled Former Leader. What to Know.**\
 `Supporters of the deposed prime minister, Sheikh Hasina, who was sentenced to death in absentia, have waged a small-scale insurgency to destabilize the current government.`\
 https://www.nytimes.com/2026/11/21/world/asia/bangladesh-protests-sheikh-hasina-what-to-know.html
