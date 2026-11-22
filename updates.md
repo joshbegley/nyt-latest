@@ -1,3 +1,35 @@
+**A Thanksgiving Dinner for $100? Yes, It’s Possible (and Delicious).**\
+`NYT Cooking’s Andy Baraghani shows us how.`\
+https://www.nytimes.com/2026/11/22/podcasts/the-daily/a-thanksgiving-dinner-for-100-yes-its-possible-and-delicious.html
+
+**Would You Buy a Used Civilization From This Man?**\
+`We are at the mercy of the world’s weirdest men.`\
+https://www.nytimes.com/2026/11/22/opinion/jensen-huang-ai-ethics-cold-war.html
+
+**Today’s Wordle Hints for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/wordle-review-1983.html
+
+**NYT Connections Answers for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/connections-companion-1261.html
+
+**In Movies and Politics, Money Gets You Only So Far**\
+`The G.O.P. had a huge spending advantage in many midterm races. But as the film business knows, when it comes to moving people to action, money gets you only so far.`\
+https://www.nytimes.com/2026/11/22/opinion/gop-midterms-wipeout-movies.html
+
+**Want Better Kids? Put Up Your Feet.**\
+`I was afraid to let my kids fend for themselves. When my injury forced them to anyway, they surprised me, and themselves.`\
+https://www.nytimes.com/2026/11/22/opinion/better-kids-work-less-parents.html
+
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
+https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
+
+**NYT Strands Hints for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/strands-sidekick-995.html
+
 **What Does It Actually Mean to Write ‘Like a Human’?**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/video/opinion/100000011243547/ai-writing-technology-human-colonialism.html
