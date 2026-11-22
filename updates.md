@@ -1,3 +1,7 @@
+**What Machines Love**\
+`The ability of humans to apply aesthetic judgment separates us from the bots — at least for now.`\
+https://www.nytimes.com/2026/11/22/briefing/does-ai-have-taste.html
+
 **A Thanksgiving Dinner for $100? Yes, It’s Possible (and Delicious).**\
 `NYT Cooking’s Andy Baraghani shows us how.`\
 https://www.nytimes.com/2026/11/22/podcasts/the-daily/a-thanksgiving-dinner-for-100-yes-its-possible-and-delicious.html
