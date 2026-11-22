@@ -1,3 +1,7 @@
+**COP31 Talks Collapse in Turkey in a Clash Over Fossil Fuels**\
+`European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
+https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
+
 **Bearing Witness to a Genocide**\
 `After the International Court of Justice ruled that Myanmar committed genocide against Rohingya Muslims, we ask how to pay attention to suffering.`\
 https://www.nytimes.com/2026/11/22/briefing/bearing-witness-to-a-genocide.html
