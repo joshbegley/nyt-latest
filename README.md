@@ -1,3 +1,7 @@
+**ICE Officers Arrest 2 Passengers Boarding a Flight at Seattle Airport**\
+`The arrests were criticized by Washington’s governor and airport officials, who called the incident “distressing.”`\
+https://www.nytimes.com/2026/11/22/us/ice-arrest-passengers-seattle-airport.html
+
 **American vs. Chinese Mahjong: Why the Rivalry Is Stirring Controversy**\
 `American mahjong, with its own tiles and rules, has overshadowed the traditional Chinese game. The rivalry has fueled anger and cultural misunderstanding.`\
 https://www.nytimes.com/2026/11/22/world/asia/mahjong-american-chinese-controversy.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/world/europe/100000011298491/netherlands-internati
 **Corrections: Nov. 21, 2026**\
 `Corrections that appeared in print on Saturday, Nov. 21, 2026.`\
 https://www.nytimes.com/2026/11/21/pageoneplus/corrections-nov-21-2026.html
-
-**Sarah McBride, Barred From Capitol Bathrooms, Wins Top Post**\
-`Republicans have targeted the Delaware Democrat, the first openly transgender member of Congress, since she came to Washington. Her party just elevated her to a key job.`\
-https://www.nytimes.com/2026/11/21/us/politics/sarah-mcbride-barred-from-capitol-bathrooms-wins-top-post.html
 
