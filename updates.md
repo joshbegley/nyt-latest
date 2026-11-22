@@ -1,3 +1,7 @@
+**Read the document**\
+`Bigfoot is largely believed to be mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
+https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
+
 **Europe Needs to Save Itself**\
 `It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
 https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
