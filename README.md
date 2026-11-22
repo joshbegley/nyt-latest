@@ -1,3 +1,11 @@
+**Democrat Chuck Hubbard Defeats 11-Term Republican Virginia Foxx in North Carolina**\
+`Chuck Hubbard, a retired journalist, defeated Representative Virginia Foxx in a conservative district.`\
+https://www.nytimes.com/2026/11/22/us/virginia-foxx-chuck-hubbard-north-carolina-house.html
+
+**How Melania Trump Found a Diplomatic Opening in the War in Ukraine**\
+`The first lady, who has little experience in international affairs, developed back channels to key figures on both sides of the conflict through her longtime agent.`\
+https://www.nytimes.com/2026/11/22/us/politics/melania-trump-ukraine-diplomacy.html
+
 **Democrats Clinch 258 House Seats, an Election-Year Record This Century**\
 `After sweeping midterm wins, Democrats have secured the largest House majority in a national election for either party in three decades.`\
 https://www.nytimes.com/2026/11/22/us/politics/democrats-midterm-house-majority-record.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/22/business/retirement-millennials-gen-z.html
 **NYT Spelling Bee Answers for November 22, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/22/crosswords/spelling-bee-forum.html
-
-**‘The Cameraman and I Looked at Each Other and Laughed’**\
-`Confusion about a soda fountain classic, pets on the No. 7 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://www.nytimes.com/2026/11/22/nyregion/metropolitan-diary.html
-
-**The District Attorney Who Declined to Charge the Men Accused of Sexually Assaulting Jane Doe**\
-`Matthew Van Houten, a district attorney in upstate New York, faced backlash over how he handled a woman’s rape allegation. He says he followed the law.`\
-https://www.nytimes.com/2026/11/22/nyregion/cornell-jane-doe-case.html
 
