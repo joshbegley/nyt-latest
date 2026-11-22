@@ -1,3 +1,23 @@
+**NYT Spelling Bee Answers for November 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/22/crosswords/spelling-bee-forum.html
+
+**‘The Cameraman and I Looked at Each Other and Laughed’**\
+`Confusion about a soda fountain classic, pets on the No. 7 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/22/nyregion/metropolitan-diary.html
+
+**The District Attorney Who Declined to Charge the Men Accused of Sexually Assaulting Jane Doe**\
+`Matthew Van Houten, a district attorney in upstate New York, faced backlash over how he handled a woman’s rape allegation. He says he followed the law.`\
+https://www.nytimes.com/2026/11/22/nyregion/cornell-jane-doe-case.html
+
+**Two Police Firings in New York Show Racism in the Ranks**\
+`One officer accused colleagues of racist bullying. Then investigators found offensive texts on his own phone.`\
+https://www.nytimes.com/2026/11/22/nyregion/nypd-racial-discrimination-firing.html
+
+**An A.I. Editor’s Essential Tool: The Typewriter**\
+`When it comes to translating thoughts into words, this machine is a technological marvel.`\
+https://www.nytimes.com/2026/11/22/insider/typewriter-artificial-intelligence.html
+
 **Read the document**\
 `Bigfoot is largely believed to be mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
 https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
