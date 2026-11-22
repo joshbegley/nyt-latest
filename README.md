@@ -1,3 +1,19 @@
+**American vs. Chinese Mahjong: Why the Rivalry Is Stirring Controversy**\
+`American mahjong, with its own tiles and rules, has overshadowed the traditional Chinese game. The rivalry has fueled anger and cultural misunderstanding.`\
+https://www.nytimes.com/2026/11/22/world/asia/mahjong-american-chinese-controversy.html
+
+**Quote of the Day: Showing How to Succeed in Politics Without Really Trying**\
+`Quotation of the Day for Sunday, November 22, 2026.`\
+https://www.nytimes.com/2026/11/22/pageoneplus/quote-of-the-day-showing-how-to-succeed-in-politics-without-really-trying.html
+
+**Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
+`“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a staged car crash meant to silence him and says he has no hatred for his attacker.`\
+https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
+
+**From the Front Page: Kennedy Is Assassinated on Nov. 22, 1963**\
+`President John F. Kennedy was killed while riding in a motorcade in Dallas. Gov. John B. Connally of Texas was seriously wounded, Lee Harvey Oswald was arrested and Vice President Lyndon B. Johnson became president.`\
+https://www.nytimes.com/2026/11/22/learning/from-the-front-page-kennedy-is-assassinated-on-nov-22-1963.html
+
 **China’s Spies Set Sights on A.I. Chips Years Before Nvidia Scandal**\
 `China’s espionage agency has been running a secret campaign to help the country’s companies acquire advanced A.I. chips and to gather intelligence on the sector, officials say.`\
 https://www.nytimes.com/2026/11/21/world/asia/china-nvidia-spy-chips-state-security.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/21/pageoneplus/corrections-nov-21-2026.html
 **Sarah McBride, Barred From Capitol Bathrooms, Wins Top Post**\
 `Republicans have targeted the Delaware Democrat, the first openly transgender member of Congress, since she came to Washington. Her party just elevated her to a key job.`\
 https://www.nytimes.com/2026/11/21/us/politics/sarah-mcbride-barred-from-capitol-bathrooms-wins-top-post.html
-
-**How to Plan for an A.I. Emergency, or Any Calamity**\
-`One person’s attempt to prepare for the unthinkable.`\
-https://www.nytimes.com/2026/11/21/business/ai-emergency-plan.html
-
-**The Faces of the 2026 DealBook Summit**\
-`Our photographer made portraits of the event’s interview subjects, including Hailey Bieber, Satya Nadella and Zohran Mamdani, after they left the stage.`\
-https://www.nytimes.com/2026/11/21/business/dealbook/dealbook-summit-portraits.html
-
-**Maldon Salt’s Authenticity Is Questioned, Leaving Foodies Shaken**\
-`The salt is a flaky favorite of food influencers and famous chefs. A revelation this week raised questions about what makes artisanal “artisanal.”`\
-https://www.nytimes.com/2026/11/21/world/europe/maldon-sea-salt-artisanal-scandal.html
-
-**A New Era of A.I.-Driven Chaos? That Might Just Be Progress.**\
-`If artificial intelligence is giving rise to outages, cyberattacks and more, it’s consistent with history, in that it shows how new innovations often set off calamitous failure before they make life better.`\
-https://www.nytimes.com/2026/11/21/science/outages-tech-history.html
 
