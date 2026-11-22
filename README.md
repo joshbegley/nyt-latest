@@ -122,13 +122,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
-`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
-https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
-
 **Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
 `Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
 https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
+
+**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
+`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
+https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
