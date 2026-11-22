@@ -1,3 +1,7 @@
+**Deadly Protests Erupt in Bangladesh Over Exiled Former Leader. What to Know.**\
+`Supporters of the deposed prime minister, Sheikh Hasina, who was sentenced to death in absentia, have waged a small-scale insurgency to destabilize the current government.`\
+https://www.nytimes.com/2026/11/21/world/asia/bangladesh-protests-sheikh-hasina-what-to-know.html
+
 **25-Year-Old Man Charged in Chinatown Killing**\
 `A manhunt briefly shut down parts of Lower Manhattan on Friday night.`\
 https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
