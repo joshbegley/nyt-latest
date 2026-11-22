@@ -1,3 +1,7 @@
+**Delta Delays Flights As Thanksgiving Travel Begins, After Automated System Falters**\
+`The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **2 New Jersey Women Indicted in Faked Anti-Trump Slashing Attack**\
 `Natalie Greene, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she had been attacked at a nature preserve in 2025, officials said.`\
 https://www.nytimes.com/2026/11/22/us/van-drew-employee-indicted-attack-hoax.html
