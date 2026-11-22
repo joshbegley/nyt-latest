@@ -2,7 +2,7 @@
 `The mayor of New York City spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-summit.html
 
-**Bitter Clash Over Fossil Fuels Derails U.N. Climate Talks**\
+**U.N. Climate Talks Collapse in a Bitter Clash Over Fossil Fuels**\
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
 
