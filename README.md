@@ -1,3 +1,7 @@
+**Now Is Not the Time for Europe to Relax**\
+`It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
+https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
+
 **ICE Officers Arrest 2 Passengers Boarding a Flight at Seattle Airport**\
 `The arrests were criticized by Washington’s governor and airport officials, who called the incident “distressing.”`\
 https://www.nytimes.com/2026/11/22/us/ice-arrest-passengers-seattle-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi
 **A Look Inside the International Butler Academy**\
 `A butler academy in the Netherlands is offering an eight-week intensive program that costs nearly $14,000. Graduates of the program hope to find jobs with rich families, on yachts or on private jets.`\
 https://www.nytimes.com/video/world/europe/100000011298491/netherlands-international-butler-academy-jobs-training.html
-
-**Corrections: Nov. 21, 2026**\
-`Corrections that appeared in print on Saturday, Nov. 21, 2026.`\
-https://www.nytimes.com/2026/11/21/pageoneplus/corrections-nov-21-2026.html
 
