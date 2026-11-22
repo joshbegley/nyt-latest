@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explos
 https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
 
 **Read the document**\
-`Bigfoot is largely believed to by mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
+`Bigfoot is largely believed to be mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
 https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
 
 **Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
