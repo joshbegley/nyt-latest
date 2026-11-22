@@ -1,3 +1,7 @@
+**Top Drug Kingpin Is Captured by Mexican Army Amid Gunfire**\
+`Fausto Isidro Meza Flores, a kingpin known as El Chapo Isidro, has been arrested, the Mexican government said. He was captured during a violent operation in a major victory for the government.`\
+https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico-cartel-arrest.html
+
 **A Riverboat Captain Recalls a Crash on the Mississippi**\
 `Capt. Len Stewart had mere seconds to react before a 525-foot tanker crashed into the American Heritage, a riverboat in New Orleans with nearly 200 passengers on board.`\
 https://www.nytimes.com/2026/11/22/us/new-orleans-riverboat-crash-captain.html

@@ -1,3 +1,7 @@
+**Top Drug Kingpin Is Captured by Mexican Army Amid Gunfire**\
+`Fausto Isidro Meza Flores, a kingpin known as El Chapo Isidro, has been arrested, the Mexican government said. He was captured during a violent operation in a major victory for the government.`\
+https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico-cartel-arrest.html
+
 **A Riverboat Captain Recalls a Crash on the Mississippi**\
 `Capt. Len Stewart had mere seconds to react before a 525-foot tanker crashed into the American Heritage, a riverboat in New Orleans with nearly 200 passengers on board.`\
 https://www.nytimes.com/2026/11/22/us/new-orleans-riverboat-crash-captain.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
 **Trump Moves to Restrict Congressional Oversight of Contractors**\
 `The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
 https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
-
-**2-Year-Old Girl Wearing Only a Diaper Is Rescued After Hours in the Desert**\
-`“It was a life-changing moment,” said a searcher who found the girl, Vella Campillo, early on Wednesday in a remote area of Arizona after she had been missing for more than seven hours.`\
-https://www.nytimes.com/2026/11/21/us/missing-2-year-old-arizona-desert.html
 
