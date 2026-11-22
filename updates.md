@@ -1,4 +1,8 @@
 **Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
+`After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 76.`\
+https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
+
+**Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
 `After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 75.`\
 https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
 
