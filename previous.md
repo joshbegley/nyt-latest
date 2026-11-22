@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 23, 2026**\
+`Give Dena Verkuil’s crossword a shot.`\
+https://www.nytimes.com/2026/11/22/crosswords/daily-puzzle-2026-11-23.html
+
 **No New Deal Agreed On at COP31 Climate Summit**\
 `The United Nations climate talks broke down on Sunday after long-building tensions over fossil fuels deadlocked negotiations.`\
 https://www.nytimes.com/video/world/100000011301307/united-nations-climate-cop31-fossil-fuels.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/style/custom-children-wedding-attire.html
 **Book Review: ‘Aristocracy, American Style,’ by Nancy Isenberg**\
 `In “Aristocracy, American Style,” Nancy Isenberg dissects how the idea of equality is peddled to those who inevitably get the short end of the stick.`\
 https://www.nytimes.com/2026/11/22/books/review/aristocracy-american-style-nancy-isenberg.html
-
-**L’Étiquette, the Unfussy French Fashion Magazine That’s Actually About Clothes**\
-`It’s refreshing.`\
-https://www.nytimes.com/2026/11/22/style/letiquette-french-fashion-magazine.html
 
