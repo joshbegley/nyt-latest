@@ -1,3 +1,7 @@
+**Democrats Secure Largest House Majority This Century**\
+`Democrats secured 258 seats in the House on Sunday after Chuck Hubbard was declared the winner in North Carolina over Representative Virginia Foxx, an 11-term Republican. Democrats now have the largest House majority in three decades.`\
+https://www.nytimes.com/video/us/politics/100000011272185/democrats-258-house-majority-midterms-election.html
+
 **NYT Crossword Answers for Nov. 23, 2026**\
 `Give Dena Verkuil’s crossword a shot.`\
 https://www.nytimes.com/2026/11/22/crosswords/daily-puzzle-2026-11-23.html
