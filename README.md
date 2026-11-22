@@ -2,7 +2,7 @@
 `Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
 https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
 
-**Now Is Not the Time for Europe to Relax**\
+**Europe Needs to Save Itself**\
 `It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
 https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
 
