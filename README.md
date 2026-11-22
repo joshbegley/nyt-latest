@@ -1,3 +1,23 @@
+**NYT Spelling Bee Answers for November 22, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/22/crosswords/spelling-bee-forum.html
+
+**‘The Cameraman and I Looked at Each Other and Laughed’**\
+`Confusion about a soda fountain classic, pets on the No. 7 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://www.nytimes.com/2026/11/22/nyregion/metropolitan-diary.html
+
+**The District Attorney Who Declined to Charge the Men Accused of Sexually Assaulting Jane Doe**\
+`Matthew Van Houten, a district attorney in upstate New York, faced backlash over how he handled a woman’s rape allegation. He says he followed the law.`\
+https://www.nytimes.com/2026/11/22/nyregion/cornell-jane-doe-case.html
+
+**Two Police Firings in New York Show Racism in the Ranks**\
+`One officer accused colleagues of racist bullying. Then investigators found offensive texts on his own phone.`\
+https://www.nytimes.com/2026/11/22/nyregion/nypd-racial-discrimination-firing.html
+
+**An A.I. Editor’s Essential Tool: The Typewriter**\
+`When it comes to translating thoughts into words, this machine is a technological marvel.`\
+https://www.nytimes.com/2026/11/22/insider/typewriter-artificial-intelligence.html
+
 **How Stringent Anti-A.I. Cheating Rules Brought Down an Education Minister**\
 `Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
 https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/2026/11/21/crosswords/strands-sidekick-994.html
 **Today’s Wordle Hints for November 22, 2026**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 22, 2026.`\
 https://www.nytimes.com/2026/11/21/crosswords/wordle-review-1982.html
-
-**Hakeem Jeffries on Trump, Stephen Miller, AIPAC and the Road Ahead**\
-`The Democratic nominee for House speaker will have a challenging job. We asked him how he plans to lead.`\
-https://www.nytimes.com/2026/11/21/magazine/hakeem-jeffries-interview.html
-
-**Anthropic’s Debut Shows the Disconnect Between Wall Street and Silicon Valley**\
-`The A.I. giant broke records with its initial public offering this week before a rocky first full day of trading, as the markets plunged on worries about artificial intelligence spending.`\
-https://www.nytimes.com/2026/11/21/business/anthropic-stock-wall-street-silicon-valley.html
-
-**Hakeem Jeffries on Whether Chuck Schumer Should Be Majority Leader**\
-`House Democrats voted on Wednesday to nominate Representative Hakeem Jeffries to be the next speaker of the House. He talked with Lulu Garcia-Navarro on “The Interview” about what’s next for Congress and whether his colleague Chuck Schumer is able to lead in the Senate.`\
-https://www.nytimes.com/video/podcasts/100000011299787/hakeem-jeffries-on-whether-chuck-schumer-should-be-majority-leader.html
-
-**Obsessive Throwbacks on G.T.A. VI and 9 More Songs We’re Talking About**\
-`Lana Del Rey and Dua Lipa add tracks to the cinematic video game, Julien Baker chases love and more.`\
-https://www.nytimes.com/2026/11/21/arts/music/gta-vi-dua-lipa-lana-del-rey.html
-
-**The $2.4 Billion Auction Week: Big Sales, Bigger Expectations**\
-`“Blossoming Chestnut Trees” became a symbol of the risk and gamesmanship that define the art market’s peak. Here are five takeaways from the marathon.`\
-https://www.nytimes.com/2026/11/21/arts/design/art-auction-collectors-heirs-nazi-sothebys-christies-new-york.html
 
