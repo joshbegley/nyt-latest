@@ -1,3 +1,11 @@
+**Bitter Clash Over Fossil Fuels Derails U.N. Climate Talks**\
+`European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
+https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
+
+**What’s Legal Under Florida’s New Anti-D.E.I. Law? It’s Anyone’s Guess.**\
+`Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
+https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html
+
 **What Machines Love**\
 `The ability of humans to apply aesthetic judgment separates us from the bots — at least for now.`\
 https://www.nytimes.com/2026/11/22/briefing/does-ai-have-taste.html

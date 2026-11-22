@@ -1,3 +1,11 @@
+**Bitter Clash Over Fossil Fuels Derails U.N. Climate Talks**\
+`European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
+https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
+
+**What’s Legal Under Florida’s New Anti-D.E.I. Law? It’s Anyone’s Guess.**\
+`Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
+https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html
+
 **What Machines Love**\
 `The ability of humans to apply aesthetic judgment separates us from the bots — at least for now.`\
 https://www.nytimes.com/2026/11/22/briefing/does-ai-have-taste.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/21/world/asia/china-nvidia-spy-chips-state-secur
 **Deadly Protests Erupt in Bangladesh Over Exiled Former Leader. What to Know.**\
 `Supporters of the deposed prime minister, Sheikh Hasina, who was sentenced to death in absentia, have waged a small-scale insurgency to destabilize the current government.`\
 https://www.nytimes.com/2026/11/21/world/asia/bangladesh-protests-sheikh-hasina-what-to-know.html
-
-**25-Year-Old Man Charged in Chinatown Killing**\
-`A manhunt briefly shut down parts of Lower Manhattan on Friday night.`\
-https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
-
-**Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
-`The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
-https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
 
