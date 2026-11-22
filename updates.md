@@ -1,3 +1,7 @@
+**South Korea’s Education Minister Resigns Over Anti-A.I. Cheating Rules**\
+`Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
+https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
+
 **NYT Spelling Bee Answers for November 22, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/22/crosswords/spelling-bee-forum.html
