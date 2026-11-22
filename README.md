@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/22/nyregion/nypd-racial-discrimination-firing.ht
 `When it comes to translating thoughts into words, this machine is a technological marvel.`\
 https://www.nytimes.com/2026/11/22/insider/typewriter-artificial-intelligence.html
 
-**How Stringent Anti-A.I. Cheating Rules Brought Down an Education Minister**\
+**South Korea’s Education Minister Resigns Over Anti-A.I. Cheating Rules**\
 `Two days before South Korea’s college entrance exam, new measures were announced, including loud phone alerts and eyeglass inspections. Public backlash came fast.`\
 https://www.nytimes.com/2026/11/22/world/asia/korea-csat-exam-ai-cheating.html
 
