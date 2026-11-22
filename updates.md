@@ -1,3 +1,11 @@
+**Red Curry Noodles, Roasted Sausages With Chickpeas and Sheet-Pan Pierogies**\
+`And more non-Thanksgiving dinners to be thankful for.`\
+https://www.nytimes.com/2026/11/22/dining/red-curry-noodles-roasted-sausages-with-chickpeas-and-sheet-pan-pierogies.html
+
+**Why I Loved the Slick and Dirty HBO Divorce Drama ‘War’**\
+`Why I loved the slick and dirty HBO divorce drama ‘War.’`\
+https://www.nytimes.com/2026/11/22/opinion/war-hbo-divorce-tech-huang.html
+
 **U.N. Climate Talks Collapse in a Bitter Clash Over Fossil Fuels**\
 `European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
 https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html

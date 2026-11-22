@@ -1,3 +1,11 @@
+**Red Curry Noodles, Roasted Sausages With Chickpeas and Sheet-Pan Pierogies**\
+`And more non-Thanksgiving dinners to be thankful for.`\
+https://www.nytimes.com/2026/11/22/dining/red-curry-noodles-roasted-sausages-with-chickpeas-and-sheet-pan-pierogies.html
+
+**Why I Loved the Slick and Dirty HBO Divorce Drama ‘War’**\
+`Why I loved the slick and dirty HBO divorce drama ‘War.’`\
+https://www.nytimes.com/2026/11/22/opinion/war-hbo-divorce-tech-huang.html
+
 **Zohran Mamdani on Trump, Wall Street and Wealth Taxes**\
 `The mayor of New York City spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-summit.html
@@ -110,13 +118,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
-`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
-https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
-
 **Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
 `Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
 https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
+
+**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
+`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
+https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/22/pageoneplus/quote-of-the-day-showing-how-to-s
 **Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
 `“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a car crash the authorities say was meant to silence him.`\
 https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
-
-**From the Front Page: Kennedy Is Assassinated on Nov. 22, 1963**\
-`President John F. Kennedy was killed while riding in a motorcade in Dallas. Gov. John B. Connally of Texas was seriously wounded, Lee Harvey Oswald was arrested and Vice President Lyndon B. Johnson became president.`\
-https://www.nytimes.com/2026/11/22/learning/from-the-front-page-kennedy-is-assassinated-on-nov-22-1963.html
-
-**China’s Spies Set Sights on A.I. Chips Years Before Nvidia Scandal**\
-`China’s espionage agency has been running a secret campaign to help the country’s companies acquire advanced A.I. chips and to gather intelligence on the sector, officials say.`\
-https://www.nytimes.com/2026/11/21/world/asia/china-nvidia-spy-chips-state-security.html
 
