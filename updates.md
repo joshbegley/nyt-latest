@@ -1,3 +1,7 @@
+**Taiwanese Comedian Targeted for Mocking Xi Jinping Is Drawing Sellout Crowds**\
+`“Xi Jinping is my comedy muse,” said Huang Yi-hao, who survived a car crash the authorities say was meant to silence him.`\
+https://www.nytimes.com/2026/11/22/world/asia/china-taiwan-comedian-xi-jinping.html
+
 **Now Is Not the Time for Europe to Relax**\
 `It’s easy to hope that our good old post-1945 Uncle Sam, holding his security umbrella over European and Asian allies, is back again. He isn’t.`\
 https://www.nytimes.com/2026/11/22/opinion/europe-us-congress-allies.html
