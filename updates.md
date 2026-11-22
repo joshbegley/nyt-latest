@@ -1,3 +1,7 @@
+**FAA Says All Delta Flights Through Atlanta Delayed as Automated System Falters**\
+`The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **What Does It Actually Mean to Write ‘Like a Human’?**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
