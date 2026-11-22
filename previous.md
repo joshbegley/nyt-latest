@@ -31,7 +31,7 @@ https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
 https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
 
 **FAA Says All Delta Flights Through Atlanta Delayed as Automated System Falters**\
-`The system facing problems is used to calculate the weight and balance of departing flights. The disruptions come after a nationwide ground stop that canceled thousands of flights last weekend.`\
+`The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
 https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
 
 **Ginger Scallion Broccoli Salad, and More No-Oven Sides**\

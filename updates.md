@@ -1,3 +1,7 @@
+**FAA Says All Delta Flights Through Atlanta Delayed as Automated System Falters**\
+`The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
+https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
+
 **Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
 `After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 76.`\
 https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
