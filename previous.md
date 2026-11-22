@@ -1,3 +1,11 @@
+**Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
+`The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
+https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
+
+**Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
+`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader the F.B.I. had sought for years.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
+
 **Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\
 `The first storm is expected to arrive on Sunday night, with a second storm potentially coming on Wednesday.`\
 https://www.nytimes.com/2026/11/21/weather/northeast-storm-thanksgiving.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/21/us/chicago-lincoln-park-rats.html
 **Hakeem Jeffries Thinks He’s the Man for This Moment**\
 `The Democratic nominee for House speaker on investigating Trump, whether Chuck Schumer should be majority leader and if he’ll ever sit down with Stephen Miller.`\
 https://www.nytimes.com/video/podcasts/100000011294059/hakeem-jeffries-interview-house-speaker.html
-
-**The Used Car Industry Is Booming. This N.J. Campus Is Setting the Price.**\
-`As new car prices rise beyond the means of most buyers, the used market has become much more important for consumers and the auto industry.`\
-https://www.nytimes.com/2026/11/21/business/used-car-auctions-manheim-prices.html
-
-**Meghann Fahy Is a Self-Proclaimed Water Snob**\
-`“I really feel like I can taste water now in a way that I didn’t used to be able to,” says the actress, now starring in “The Good Daughter.”`\
-https://www.nytimes.com/2026/11/21/arts/television/meghann-fahy-good-daughter.html
 

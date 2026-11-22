@@ -1,3 +1,11 @@
+**Judge Blocks Trump Administration’s Effort to Transform Homelessness Policy**\
+`The decision by a federal judge in Rhode Island was a blow to an effort to shift aid away from housing subsidies in favor of treatment for mental illness and addiction.`\
+https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addiction-treatment.html
+
+**Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
+`U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader the F.B.I. had sought for years.`\
+https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
+
 **Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\
 `The first storm is expected to arrive on Sunday night, with a second storm potentially coming on Wednesday.`\
 https://www.nytimes.com/2026/11/21/weather/northeast-storm-thanksgiving.html
