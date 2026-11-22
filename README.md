@@ -1,3 +1,35 @@
+**A Thanksgiving Dinner for $100? Yes, It’s Possible (and Delicious).**\
+`NYT Cooking’s Andy Baraghani shows us how.`\
+https://www.nytimes.com/2026/11/22/podcasts/the-daily/a-thanksgiving-dinner-for-100-yes-its-possible-and-delicious.html
+
+**Would You Buy a Used Civilization From This Man?**\
+`We are at the mercy of the world’s weirdest men.`\
+https://www.nytimes.com/2026/11/22/opinion/jensen-huang-ai-ethics-cold-war.html
+
+**Today’s Wordle Hints for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/wordle-review-1983.html
+
+**NYT Connections Answers for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/connections-companion-1261.html
+
+**In Movies and Politics, Money Gets You Only So Far**\
+`The G.O.P. had a huge spending advantage in many midterm races. But as the film business knows, when it comes to moving people to action, money gets you only so far.`\
+https://www.nytimes.com/2026/11/22/opinion/gop-midterms-wipeout-movies.html
+
+**Want Better Kids? Put Up Your Feet.**\
+`I was afraid to let my kids fend for themselves. When my injury forced them to anyway, they surprised me, and themselves.`\
+https://www.nytimes.com/2026/11/22/opinion/better-kids-work-less-parents.html
+
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
+https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
+
+**NYT Strands Hints for November 23, 2026**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
+https://www.nytimes.com/2026/11/22/crosswords/strands-sidekick-995.html
+
 **What Does It Actually Mean to Write ‘Like a Human’?**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/video/opinion/100000011243547/ai-writing-technology-human-colonialism.html
@@ -165,36 +197,4 @@ https://www.nytimes.com/2026/11/21/us/politics/judge-trump-homeless-aid-addictio
 **Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
 `U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader that a U.S. official called the most dangerous man in Mexico.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
-
-**Back-to-Back Storms Poised to Hit the Northeast Before Thanksgiving**\
-`The first storm is expected to arrive on Sunday night, with a second storm potentially coming on Wednesday.`\
-https://www.nytimes.com/2026/11/21/weather/northeast-storm-thanksgiving.html
-
-**The Penny Is Dead. Now It’s Official.**\
-`President Trump signed a law on Friday formally putting the penny out of mint, a year after it stopped being struck.`\
-https://www.nytimes.com/2026/11/21/us/politics/penny-mint-trump-common-cent-act.html
-
-**On the Fritz**\
-`Curran Eggertson’s debut New York Times puzzle will send solvers scrambling.`\
-https://www.nytimes.com/2026/11/21/crosswords/daily-puzzle-2026-11-22.html
-
-**What to Know About the Planned Explosion in Iowa**\
-`The Army intends to detonate a stockpile of lead azide on Monday at a facility in southeastern Iowa, sending a plume of toxic lead dust into the nearby community.`\
-https://www.nytimes.com/2026/11/21/climate/what-to-know-about-the-planned-explosion-in-iowa.html
-
-**Bigfoot Left a Paper Trail That Everyone Can See Now**\
-`This fall, the U.S. Forest Service quietly released records about the creature of lore.`\
-https://www.nytimes.com/2026/11/21/us/bigfoot-government-documents-released.html
-
-**Read the document**\
-`Bigfoot is largely believed to be mythical, but enough people have claimed to see the bipedal creature that the government has kept records.`\
-https://www.nytimes.com/interactive/2026/11/21/us/bigfoot-agriculture-files-released.html
-
-**Donal Lunny, Pillar of the Irish Trad Revival, Dies at 79**\
-`His work with luminaries like Christy Moore and Andy Irvine expanded the sonic boundaries of traditional Irish music while preserving its roots.`\
-https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html
-
-**Like Fiona the Hippo, Internet Famous Animals Can Bring Value to Zoos**\
-`Animal videos have long been popular online, but as it did with Fiona, social media can foster deeper connections that are valuable to zoos.`\
-https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
 

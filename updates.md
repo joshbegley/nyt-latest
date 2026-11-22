@@ -1,3 +1,7 @@
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
+https://www.nytimes.com/video/opinion/100000011243547/ai-writing-technology-human-colonialism.html
+
 **Top Drug Kingpin Is Captured by Mexican Army Amid Gunfire**\
 `Fausto Isidro Meza Flores, a kingpin known as El Chapo Isidro, has been arrested, the Mexican government said. He was captured during a violent operation in a major victory for the government.`\
 https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico-cartel-arrest.html
