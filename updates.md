@@ -1,3 +1,7 @@
+**Why Are We at the Mercy of the World’s Weirdest Men?**\
+`No kings isn’t just about Trump.`\
+https://www.nytimes.com/2026/11/22/opinion/jensen-huang-ai-ethics-cold-war.html
+
 **The Ballet Star Herman Cornejo Will Take the Reins at Teatro Colón**\
 `Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
 https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html

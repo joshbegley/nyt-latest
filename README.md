@@ -62,7 +62,7 @@ https://www.nytimes.com/2026/11/22/opinion/gop-midterms-wipeout-movies.html
 `I was afraid to let my kids fend for themselves. When my injury forced them to anyway, they surprised me, and themselves.`\
 https://www.nytimes.com/2026/11/22/opinion/better-kids-work-less-parents.html
 
-**These Words Aren’t Proof You’re Using A.I.**\
+**What Does It Actually Mean to Write ‘Like a Human’?**\
 `The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
 https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
 
@@ -134,13 +134,13 @@ https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to
 `Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
 https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
-**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
-`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
-https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
-
 **Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
 `This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
 https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
+
+**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
+`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
+https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
 
 **Bespoke Children’s Wedding Fashion**\
 `As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
