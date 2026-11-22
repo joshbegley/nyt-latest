@@ -1,3 +1,7 @@
+**25-Year-Old Man Charged in Chinatown Killing**\
+`A manhunt briefly shut down parts of Lower Manhattan on Friday night.`\
+https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
+
 **Drones, Texts and Diversions: How Mexico Captured a Most Wanted Man**\
 `U.S. and Mexican authorities shared intelligence for weeks to track Fausto Isidro Meza Flores, a drug cartel leader that a U.S. official called the most dangerous man in Mexico.`\
 https://www.nytimes.com/2026/11/21/world/americas/mexico-captures-drug-kingpin.html
