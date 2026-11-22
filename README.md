@@ -1,3 +1,7 @@
+**Deadly Protests Erupt in Bangladesh Over Exiled Former Leader. What to Know.**\
+`Supporters of the deposed prime minister, Sheikh Hasina, who was sentenced to death in absentia, have waged a small-scale insurgency to destabilize the current government.`\
+https://www.nytimes.com/2026/11/21/world/asia/bangladesh-protests-sheikh-hasina-what-to-know.html
+
 **25-Year-Old Man Charged in Chinatown Killing**\
 `A manhunt briefly shut down parts of Lower Manhattan on Friday night.`\
 https://www.nytimes.com/2026/11/21/nyregion/man-charged-chinatown-murder.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/science/outages-tech-history.html
 **A New Trump Tactic to Restrict Transit Funding: Rewrite the Rules**\
 `The changes could make it harder for dozens of projects across the country to get funding they have pursued for years.`\
 https://www.nytimes.com/2026/11/21/upshot/trump-transit-grants.html
-
-**A Chicago Park Is Infested With Rats. Is a Wealthy Couple to Blame?**\
-`People keep spreading nuts in a Chicago park, attracting rodents and neighbors’ fury. Officials are not sure how to stop it.`\
-https://www.nytimes.com/2026/11/21/us/chicago-lincoln-park-rats.html
 
