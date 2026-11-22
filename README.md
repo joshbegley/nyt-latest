@@ -1,3 +1,7 @@
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
+https://www.nytimes.com/video/opinion/100000011243547/ai-writing-technology-human-colonialism.html
+
 **Top Drug Kingpin Is Captured by Mexican Army Amid Gunfire**\
 `Fausto Isidro Meza Flores, a kingpin known as El Chapo Isidro, has been arrested, the Mexican government said. He was captured during a violent operation in a major victory for the government.`\
 https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico-cartel-arrest.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/21/arts/music/donal-lunny-dead.html
 **Like Fiona the Hippo, Internet Famous Animals Can Bring Value to Zoos**\
 `Animal videos have long been popular online, but as it did with Fiona, social media can foster deeper connections that are valuable to zoos.`\
 https://www.nytimes.com/2026/11/21/us/fiona-zoo-viral-animals.html
-
-**Trump Moves to Restrict Congressional Oversight of Contractors**\
-`The president’s executive order is the latest effort to blunt Democratic plans to investigate the administration’s actions.`\
-https://www.nytimes.com/2026/11/21/us/politics/trump-congressional-oversight-contractors.html
 
