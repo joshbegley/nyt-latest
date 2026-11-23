@@ -1,3 +1,7 @@
+**Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
+`A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
+https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.html
+
 **Your Nvidia Questions**\
 `Reporters answered your queries about the scandal.`\
 https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
