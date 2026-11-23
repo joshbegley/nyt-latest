@@ -1,6 +1,6 @@
-**Jensen Huang’s Return Brings a Sense of Déjà Vu**\
+**Jensen Huang’s Return as Nvidia CEO Feels Like Déjà Vu in Silicon Valley**\
 `The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
-https://www.nytimes.com/2026/11/23/technology/jensen-huangs-return-brings-a-sense-of-deja-vu.html
+https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
 
 **Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
 `It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\

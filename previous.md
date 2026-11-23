@@ -1,3 +1,7 @@
+**Jensen Huang’s Return Brings a Sense of Déjà Vu**\
+`The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
+https://www.nytimes.com/2026/11/23/technology/jensen-huangs-return-brings-a-sense-of-deja-vu.html
+
 **Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
 `It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
 https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html
 **Brice Marden Had Homes All Over the World. This One Feels Like ‘The Shining.’**\
 `For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
 https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
-
-**This Is How the Democrats Win MAHA Voters**\
-`It’s time Democrats to do what Robert F. Kennedy Jr. has so far failed to: make America healthier.`\
-https://www.nytimes.com/2026/11/23/opinion/republicans-maha-democrats-health.html
 

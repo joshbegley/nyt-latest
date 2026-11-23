@@ -1,3 +1,7 @@
+**Jensen Huang’s Return Brings a Sense of Déjà Vu**\
+`The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
+https://www.nytimes.com/2026/11/23/technology/jensen-huangs-return-brings-a-sense-of-deja-vu.html
+
 **Dozens Killed in Fire at Indonesia Candy Factory**\
 `Dozens of people were killed in a fire that tore through a candy factory in Banten Province, Indonesia, the police said.`\
 https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
