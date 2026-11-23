@@ -1,3 +1,7 @@
+**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
+`Mr. Huang resigned after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. President Trump said his return was vital for the company and the American economy.`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **Don Toliver Concert in Britain Evacuated After ‘Unknown Substance’ Affects Crowd**\
 `A concert in Manchester, England, by the rapper Don Toliver was canceled mid-performance after the crowd began feeling the effects of what the local police called “an unknown substance.”`\
 https://www.nytimes.com/video/world/europe/100000011302391/don-toliver-concert-evacuation-manchester.html
