@@ -1,3 +1,11 @@
+**A.I.-Powered Fake Personas Target Taiwan’s Elections**\
+`A new tool developed by researchers at Vanderbilt is detecting A.I.-generated posts linked to social media accounts aligned with China.`\
+https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
+
+**Sebastián Lelio, Director of Nuanced Film Portraits of Women, Dies at 52**\
+`Taking aim at “respectable” society, he featured a transgender character in “A Fantastic Woman,” which won an Academy Award.`\
+https://www.nytimes.com/2026/11/23/movies/sebastian-lelio-dead.html
+
 **Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
 `Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
