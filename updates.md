@@ -1,3 +1,7 @@
+**Protection for Section 8 Renters Is Upheld by New York’s Highest Court**\
+`The New York State Court of Appeals dismissed a landlord’s challenge to a law prohibiting discrimination against renters who rely on federal housing vouchers.`\
+https://www.nytimes.com/2026/11/23/nyregion/section-8-renters-housing-vouchers-discrimination.html
+
 **Israeli Leaders Denounce Settler Attacks in West Bank**\
 `Extremist Israeli settlers carried out violent overnight raids on Palestinian villages in the West Bank on Sunday, which several Israeli political figures called “Jewish terrorism.”`\
 https://www.nytimes.com/video/world/middleeast/100000011302243/israel-settlers-attacks-west-bank.html

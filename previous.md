@@ -1,3 +1,7 @@
+**Protection for Section 8 Renters Is Upheld by New York’s Highest Court**\
+`The New York State Court of Appeals dismissed a landlord’s challenge to a law prohibiting discrimination against renters who rely on federal housing vouchers.`\
+https://www.nytimes.com/2026/11/23/nyregion/section-8-renters-housing-vouchers-discrimination.html
+
 **Israeli Leaders Denounce Settler Attacks in West Bank**\
 `Extremist Israeli settlers carried out violent overnight raids on Palestinian villages in the West Bank on Sunday, which several Israeli political figures called “Jewish terrorism.”`\
 https://www.nytimes.com/video/world/middleeast/100000011302243/israel-settlers-attacks-west-bank.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/style/thanksgiving-dinner-arguments-survey.ht
 **Live Auction App Let Users Bid on Live Seafood Alongside Trading Cards and Rare Coins**\
 `On the live-streamed auction app Whatnot, a cross between eBay and Twitch, people stock up on Wagyu hot dogs and staples like ground beef. But that’s not all.`\
 https://www.nytimes.com/2026/11/23/dining/whatnot-food-auction-e-commerce.html
-
-**Squeezed for Space in Court Filings, Lawyers Get Typographically Creative**\
-`Manipulating page formatting and fonts can help exceed word limits in legal filings, but can also incur a judge’s ire.`\
-https://www.nytimes.com/2026/11/23/us/federal-court-typography-rules.html
 
