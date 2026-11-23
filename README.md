@@ -124,7 +124,7 @@ https://www.nytimes.com/2026/11/23/us/federal-court-typography-rules.html
 
 **In Harlem, a New Museum Maps the Civil Rights Fight in the North**\
 `The Urban Civil Rights Museum, the first in New York dedicated to the history of the movement, aims to tell stories often overlooked in similar narratives.`\
-https://www.nytimes.com/2026/11/23/arts/urban-civil-rights-museum-harlem.html
+https://www.nytimes.com/2026/11/23/arts/design/urban-civil-rights-museum-harlem.html
 
 **Isabel Allende’s 24,000 Letters to and From Her Mother**\
 `The New York Public Library has acquired the papers of the author Isabel Allende, who is a cousin of the Chilean leader Salvador Allende. They include correspondence with her mother.`\

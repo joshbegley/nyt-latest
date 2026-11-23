@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
 
 **Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
-`Mr. Huang resigned on Nov. 12 after revelations of multiple extramarital relationships. The company’s board of directors said early on Monday that it was satisfied with Mr. Huang’s “candor and ability to lead Nvidia.”`\
+`Mr. Huang resigned on Nov. 12 after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. The company’s board said that it was satisfied with Mr. Huang’s “candor and ability to lead Nvidia.”`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
 
 **Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
