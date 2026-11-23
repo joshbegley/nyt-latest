@@ -1,3 +1,7 @@
+**Jensen Huang Returns to Nvidia, Showing What Trump Will Do for AI**\
+`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
+https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
+
 **Trump Administration Imposes Sanctions on Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
 `The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
 https://www.nytimes.com/2026/11/23/business/trump-administration-megaspeed-trade-blacklist-nvidia.html

@@ -78,7 +78,7 @@ https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html
 `Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
 https://www.nytimes.com/video/opinion/100000011297614/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
 
-**Jensen Huang’s Return Shows the Lengths Trump Will Go to Keep A.I. Booming**\
+**Jensen Huang Returns to Nvidia, Showing What Trump Will Do for AI**\
 `President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
 https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
 
