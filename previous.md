@@ -1,3 +1,7 @@
+**Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
+`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight powers to scrutinize his administration’s approach.`\
+https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
+
 **What Hakeem Jeffries Thinks of Stephen Miller**\
 `On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
 https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
@@ -78,7 +82,7 @@ https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-
 `President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
-**‘Sister’: A Late-Night Sketch Reflects a Home Care Crisis**\
+**‘Sister’: A Late-Night Sketch Spotlights a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
 https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/crosswords/strands-sidekick-996.html
 **NYT Connections Answers for November 24, 2026**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
 https://www.nytimes.com/2026/11/23/crosswords/connections-companion-1262.html
-
-**Deadly Fire Rips Through Candy Factory in Indonesia**\
-`Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
-https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
 

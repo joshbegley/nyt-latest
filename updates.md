@@ -1,3 +1,11 @@
+**Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
+`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight powers to scrutinize his administration’s approach.`\
+https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
+
+**‘Sister’: A Late-Night Sketch Spotlights a Home Care Crisis**\
+`Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
+https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
+
 **What Hakeem Jeffries Thinks of Stephen Miller**\
 `On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
 https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
