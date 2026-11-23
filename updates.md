@@ -1,3 +1,19 @@
+**Turning the Lens Around: Bob Woodward Takes On Bob Woodward**\
+`In a new memoir, the most celebrated journalist of his era finally tells his own story. It was “liberating,” he said in an interview. “Nothing is hidden here.”`\
+https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html
+
+**Gen Z-ers Are Rising Up. This Mayor Is Joining Them.**\
+`Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
+https://www.nytimes.com/video/opinion/100000011297614/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
+
+**Jensen Huang’s Return Shows the Lengths Trump Will Go to Keep A.I. Booming**\
+`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market.`\
+https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
+
+**In Iowa, Confusion Over Ammunition Explosion as Trump Calls for Delay**\
+`President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided. His comments added to a confusing situation.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
 **Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
 `It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight powers to scrutinize his administration’s approach.`\
 https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
