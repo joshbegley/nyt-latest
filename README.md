@@ -1,5 +1,9 @@
+**Mamdani to Have Surgery for Torn Achilles’ Tendon**\
+`Mayor Zohran Mamdani was injured playing soccer last week. He said two deputy mayors would fill in temporarily during and immediately after the operation.`\
+https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
+
 **In Iowa, Chaos and Confusion Over Planned Ammunition Explosion**\
-`The president on Monday said the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
+`President Trump said on Monday  that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
 
 **The Jensen Huang Story Is Not Over**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/weather/thanksgiving-storm-updates-maps.html
 **They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.**\
 `When the military refused to let them sign up, a band of aging men found their own way to wage war against Russia.`\
 https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html
-
-**Why Do We Act Like Apples Are the Best Fruit?**\
-`Autumn’s favorite fruit is an insufferable diva.`\
-https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
 
