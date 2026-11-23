@@ -1,3 +1,7 @@
+**Trump Administration Imposes Sanctions on Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
+`The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
+https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
+
 **The Local: Where is Uptown?**\
 `Also, how Sahan Journal is telling a deportation story.`\
 https://www.nytimes.com/2026/11/23/briefing/uptown-minneapolis.html
