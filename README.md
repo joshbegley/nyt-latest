@@ -1,3 +1,7 @@
+**Thanksgiving Weather: Storm Maps and Forecast**\
+`Storms on the East and West Coast could make travel difficult this week.`\
+https://www.nytimes.com/2026/11/23/weather/thanksgiving-storm-updates-maps.html
+
 **They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.**\
 `When the military refused to let them sign up, a band of aging men found their own way to wage war against Russia.`\
 https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/crosswords/spelling-bee-forum.html
 **For Immigrant Construction Workers in New York, Danger Is Part of the Job**\
 `Immigrants are key to the building industry, but the deadly collapse of a Brooklyn building was a reminder of the peril they face.`\
 https://www.nytimes.com/2026/11/23/nyregion/immigrant-construction-workers-injury-death.html
-
-**What to Know About Macy’s 100th Thanksgiving Day Parade**\
-`The lineup includes the return of a wayward hippo, Goku and Popeye. With rain and heavy winds threatened, organizers are crossing their fingers.`\
-https://www.nytimes.com/2026/11/23/nyregion/macys-thanksgiving-day-parade-what-to-know.html
 

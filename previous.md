@@ -1,3 +1,7 @@
+**They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.**\
+`When the military refused to let them sign up, a band of aging men found their own way to wage war against Russia.`\
+https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html
+
 **Why Do We Act Like Apples Are the Best Fruit?**\
 `Autumn’s favorite fruit is an insufferable diva.`\
 https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/nyregion/immigrant-construction-workers-injur
 **What to Know About Macy’s 100th Thanksgiving Day Parade**\
 `The lineup includes the return of a wayward hippo, Goku and Popeye. With rain and heavy winds threatened, organizers are crossing their fingers.`\
 https://www.nytimes.com/2026/11/23/nyregion/macys-thanksgiving-day-parade-what-to-know.html
-
-**Jessica Ramos Couldn’t Afford Her Campaign Manager. She Gave Him a Senate Job.**\
-`Senator Jessica Ramos has been accused of violating New York election laws by hiring a political operative last year to simultaneously run her mayoral campaign and Senate office.`\
-https://www.nytimes.com/2026/11/23/nyregion/jessica-ramos-campaign.html
 

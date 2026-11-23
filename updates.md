@@ -1,3 +1,7 @@
+**They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.**\
+`When the military refused to let them sign up, a band of aging men found their own way to wage war against Russia.`\
+https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html
+
 **Why Do We Act Like Apples Are the Best Fruit?**\
 `Autumn’s favorite fruit is an insufferable diva.`\
 https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
