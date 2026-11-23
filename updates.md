@@ -1,3 +1,7 @@
+**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
+`Mr. Huang resigned on Nov. 12 after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. The company’s board said it was satisfied with Mr. Huang’s “candor.”`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **In Harlem, a New Museum Maps the Civil Rights Fight in the North**\
 `The Urban Civil Rights Museum, the first in New York dedicated to the history of the movement, aims to tell stories often overlooked in similar narratives.`\
 https://www.nytimes.com/2026/11/23/arts/design/urban-civil-rights-museum-harlem.html
