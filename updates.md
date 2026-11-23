@@ -1,3 +1,7 @@
+**Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
+`This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
+https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
+
 **Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
 `Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
 https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
