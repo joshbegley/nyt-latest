@@ -1,3 +1,11 @@
+**Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
+`As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
+https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
+
+**SpaceX Sued By Oregon and Virginia Over A.I.-Generated Sexualized Images**\
+`The states accused Elon Musk’s company of violating consumer protection laws with its Grok Imagine artificial intelligence tool, which created the images.`\
+https://www.nytimes.com/2026/11/23/technology/spacex-lawsuit-ai-sexualized-images.html
+
 **Can Jensen Huang Return to Nvidia?**\
 `The odds of the Nvidia co-founder returning as chief executive appeared to get a boost following new comments by President Trump and Treasury Secretary Scott Bessent.`\
 https://www.nytimes.com/2026/11/23/business/dealbook/jensen-huang-nvidia.html
