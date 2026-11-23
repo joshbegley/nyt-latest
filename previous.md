@@ -1,3 +1,11 @@
+**Marcia Ann Gillespie, Editor in Chief of Essence and Ms., Has Died**\
+`She became editor in chief of Essence at age 26, and later ran the feminist magazine Ms. She was 82.`\
+https://www.nytimes.com/2026/11/23/business/media/marcia-ann-gillespie-dead.html
+
+**Corrections: Nov. 22, 2026**\
+`Corrections that appeared in print on Sunday, Nov. 22, 2026.`\
+https://www.nytimes.com/2026/11/23/pageoneplus/corrections-nov-22-2026.html
+
 **COP31 Climate Talks Broke Down. Now What?**\
 `With big diplomatic efforts faltering, smaller pacts, local leaders and booming clean energy take center stage.`\
 https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/jewelry-national-museum-oslo.html
 **Jewelry Fans Say Solange Azagury-Partridge Has Led the Way**\
 `Experts and fans of Solange Azagury-Partridge say her colorful designs have blazed an imaginative trail.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-solange-azagury-partridge-london.html
-
-**In His Hands, Books Become Jewelry**\
-`Inspired by stories, Jeremy May cuts pages into shapes that he then assembles and compresses to make rings and other pieces.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-books-jeremy-may-london.html
-
-**Talisman Jewelry Is Finding New Forms**\
-`From artistic evil eye pendants to personalized gold medallions, talismans are finding new forms.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-talismans-sydney-evan.html
 
