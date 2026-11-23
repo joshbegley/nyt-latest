@@ -1,3 +1,27 @@
+**A First for a ‘Curious Incident’ Production: A Cast of Neurodivergent Actors**\
+`A company for neurodivergent actors steps up to a bigger stage with its full-spectrum model of inclusion.`\
+https://www.nytimes.com/2026/11/23/theater/curious-incident-epic-players-neurodiverse.html
+
+**Quote of the Day: Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
+`Quotation of the Day for Sunday, November 22, 2026.`\
+https://www.nytimes.com/2026/11/23/pageoneplus/quote-of-the-day-caught-between-killers-ebola-on-one-side-islamic-state-on-the-other.html
+
+**In Vietnam, an Electric Vehicle Revolution Without Cars**\
+`An oil shock is speeding a transformation of Vietnam’s streets, challenging global motorcycle giants and lifting a new generation of domestic manufacturers.`\
+https://www.nytimes.com/2026/11/23/business/electric-motorcyles-vietnam.html
+
+**Built to Whisper, E.V.s Look to Mimic the Growl of Gas Engines**\
+`With electric supercars from Lexus and Ferrari on the way, designers are hoping to help their cars stand out with a roar, while quieter city-bound cars try to be good neighbors.`\
+https://www.nytimes.com/2026/11/23/business/evs-electric-engine-sounds.html
+
+**China Fears A.I. Could Give the U.S. an Edge in Nuclear Rivalry**\
+`Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
+https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
+
+**From the Front Page: Georgia’s President Resigns on Nov. 23, 2003**\
+`Largely peaceful protests known as the Rose Revolution ousted Eduard Shevardnadze, paving the way for a more pro-Western government in the former Soviet republic.`\
+https://www.nytimes.com/2026/11/23/learning/from-the-front-page-georgias-president-resigns-on-nov-23-2003.html
+
 **How Homeowners Are Powering Vietnam’s E-Bike Surge**\
 `The war in Iran has brought on a rapid switch from motorbikes to electric two-wheelers in Vietnam, creating an informal charging economy led by entrepreneurial homeowners.`\
 https://www.nytimes.com/video/world/asia/100000011212632/vietnam-electric-bike-ebikes-charging-stations.html
