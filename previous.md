@@ -1,3 +1,107 @@
+**Brice Marden Had Homes All Over the World. This One Reminded Feels Like ‘The Shining.’**\
+`For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
+https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
+
+**This Is How the Democrats Win MAHA Voters**\
+`It’s time Democrats to do what Robert F. Kennedy Jr. has so far failed to: make America healthier.`\
+https://www.nytimes.com/2026/11/23/opinion/republicans-maha-democrats-health.html
+
+**How to Wear a Belt If I Don’t Have a Waist**\
+`A reader has noticed belts are trending but isn’t sure if they are for her.`\
+https://www.nytimes.com/2026/11/23/style/belts-trends-how-to-wear.html
+
+**The National Popular Vote and the End of the Electoral College as We Know It**\
+`A presidential election in which the winner is decided by who gets the most votes is almost a reality.`\
+https://www.nytimes.com/2026/11/23/opinion/national-popular-vote.html
+
+**Translating the Language of Trees**\
+`A book puts words to the sights and sounds that emanate from the giants in your backyard.`\
+https://www.nytimes.com/2026/11/23/realestate/translating-the-language-of-trees.html
+
+**China’s A.I. Freakout Is Coming. Just Wait.**\
+`There’s not much that bothers the Chinese state more than instability.`\
+https://www.nytimes.com/2026/11/23/opinion/china-ai-race-control.html
+
+**The Jewelry Brand Vever Comes Home After More Than 200 Years**\
+`Vever, founded in 1821 in Metz, France, is the subject of a new exhibition at a museum in its native city.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-vever-paris.html
+
+**Word of the Day: splotch**\
+`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://www.nytimes.com/2026/11/23/learning/word-of-the-day-splotch.html
+
+**In Jewelry, Cameos Are Making a Comeback**\
+`The storytelling qualities of these traditional pieces have attracted new fans in recent years.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-cameos-boucheron.html
+
+**Jewelry That Might Remind You of a Summer Camp Project**\
+`Phoebe Cutler decided to make some pendants that almost looked like a child might have made.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-childlike-designs-phoebe-cutler-australia.html
+
+**Norwegian Jewelry Has a Home at the National Museum of Oslo**\
+`The National Museum in Oslo holds a range of Norwegian designs.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-national-museum-oslo.html
+
+**Jewelry Fans Say Solange Azagury-Partridge Has Led the Way**\
+`Experts and fans of Solange Azagury-Partridge say her colorful designs have blazed an imaginative trail.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-solange-azagury-partridge-london.html
+
+**In His Hands, Books Become Jewelry**\
+`Inspired by stories, Jeremy May cuts pages into shapes that he then assembles and compresses to make rings and other pieces.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-books-jeremy-may-london.html
+
+**Talisman Jewelry Is Finding New Forms**\
+`From artistic evil eye pendants to personalized gold medallions, talismans are finding new forms.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-talismans-sydney-evan.html
+
+**A More Neurodiverse Stage**\
+`Jesse Green, our culture correspondent, visits with a theater company for neurodiverse actors in New York City. They are staging “The Curious Incident of the Dog in the Night-Time,” whose main character appears to be on the autism spectrum.`\
+https://www.nytimes.com/video/theater/100000011219226/neurodiverse-theater-neurodivergent-curious-incident-dog-nighttime-epic.html
+
+**5 New Mountain Hotels for Your Next Winter Escape**\
+`From Montana to Switzerland, here are getaways with cozy, elegant rooms, fireplaces, good food and plenty of snowy views.`\
+https://www.nytimes.com/2026/11/23/travel/5-mountain-hotels-winter.html
+
+**Goldsmith Skills Move From One Generation to the Next**\
+`Tom Scott, who has worked in the precious metal since the 1960s, welcomed two young artisans into his studio in recent years.`\
+https://www.nytimes.com/2026/11/23/fashion/goldsmith-tlondon.html
+
+**Eating for Pleasure Doesn’t Need to Stop at the Holidays**\
+`Savoring delicious food is not only enjoyable in the moment, it may even enhance long-term well-being.`\
+https://www.nytimes.com/2026/11/23/well/eat/food-pleasure-joy-benefits-holidays.html
+
+**Book Review: ‘Long Wave,’ by Daisy Johnson**\
+`Daisy Johnson’s “Long Wave” is an atmospheric, intergenerational saga on the border between the Gothic and the mundane.`\
+https://www.nytimes.com/2026/11/23/books/review/long-wave-daisy-johnson.html
+
+**A French Star’s Latest Reinvention? Acting in Japanese.**\
+`Virginie Efira went from hosting reality TV to starring in art house movies. For her latest, “All of a Sudden,” she mastered a new language — and won best actress at Cannes.`\
+https://www.nytimes.com/2026/11/23/movies/virginie-efira-all-of-a-sudden.html
+
+**Amy Nelson Was a Corporate Feminist Darling. Then a Corporation Upended Her Life.**\
+`Amy Nelson was an optimistic avatar of corporate feminism. Then a corporation upended her life.`\
+https://www.nytimes.com/2026/11/23/style/amy-nelson-riveter-amazon-fbi-investigation.html
+
+**When It Comes to Nature vs. Nurture, How Much Do Our Genes Matter?**\
+`After centuries, the nature versus nurture debate still rages. Now the fight is over “missing heritability” — whether science can find a way to pinpoint inheritance in the human genome.`\
+https://www.nytimes.com/2026/11/23/science/missing-heritability.html
+
+**What’s Actually in Those Gas Station Drugs?**\
+`Inside gas station convenience stores and smoke shops across the country, a new generation of drugs is for sale. It can be difficult to know what’s actually inside these items, which come wrapped in candy-colored packaging and are often readily accessible to the everyday consumer. To better understand this phenomenon, The New York Times purchased and lab-tested 28 products. Matt Richtel, a reporter for Well, walks us through the findings.`\
+https://www.nytimes.com/video/well/100000011088461/gas-station-drugs-vape-weed-kratom-hallucinogens.html
+
+**The Jeweler Chow Tai Fook Wants You to Know Its Name**\
+`The brand Chow Tai Fook is adding to its more than 5,000 global points of sale as it prepares for its centennial in 2029.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-chow-tai-fook-hong-kong.html
+
+**Between Covers: More than 200 Jewelry Sketches**\
+`A new book offers a range of drawings from the collection of the Petit Palais in Paris.`\
+https://www.nytimes.com/2026/11/23/fashion/jewelry-sketches-petit-palais-paris.html
+
+**Ukraine Claims Strikes on Russian Ships Near Libya**\
+`President Volodymyr Zelensky said that Ukrainian naval drones sank a corvette and hit a dry cargo vessel, demonstrating Kyiv’s reach in the seas.`\
+https://www.nytimes.com/2026/11/23/world/europe/ukraine-libya-russian-ships.html
+
 **E-Bike Rides Will Be Cheaper Next Year for Citi Bike Members**\
 `A 45-minute ride will cost $3.65 for members in New York City starting in January, down from a high of more than $12 right now, Mayor Zohran Mamdani is set to announce.`\
 https://www.nytimes.com/2026/11/23/nyregion/citi-bike-price-drops-nyc.html
@@ -93,108 +197,4 @@ https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvid
 **Democrats Secure Largest House Majority This Century**\
 `Democrats secured 258 seats in the House on Sunday after Chuck Hubbard was declared the winner in North Carolina over Representative Virginia Foxx, an 11-term Republican. Democrats now have the largest House majority in three decades.`\
 https://www.nytimes.com/video/us/politics/100000011272185/democrats-258-house-majority-midterms-election.html
-
-**NYT Crossword Answers for Nov. 23, 2026**\
-`Give Dena Verkuil’s crossword a shot.`\
-https://www.nytimes.com/2026/11/22/crosswords/daily-puzzle-2026-11-23.html
-
-**No New Deal Agreed On at COP31 Climate Summit**\
-`The United Nations climate talks broke down on Sunday after long-building tensions over fossil fuels deadlocked negotiations.`\
-https://www.nytimes.com/video/world/100000011301307/united-nations-climate-cop31-fossil-fuels.html
-
-**A Landmark Genocide Ruling**\
-`A U.N. court’s decision against Myanmar sets a precedent in international law with important implications for a similar case over Israel’s actions in Gaza.`\
-https://www.nytimes.com/2026/11/22/world/genocide-myanmar-un-climate-talks.html
-
-**ICE Detains Two Travelers Boarding Flight at Seattle Airport**\
-`Federal immigration officers on Saturday arrested two passengers at Seattle-Tacoma International Airport as they were boarding a flight, prompting outrage from airport officials and Washington’s governor.`\
-https://www.nytimes.com/video/us/100000011301227/ice-detention-seatac-airport.html
-
-**2 New Jersey Women Indicted in Faked Anti-Trump Slashing Attack**\
-`Natalie Greene, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she had been attacked at a nature preserve in 2025, officials said.`\
-https://www.nytimes.com/2026/11/22/us/van-drew-employee-indicted-attack-hoax.html
-
-**Donald Hooton Sr., Who Crusaded Against Steroids in Sports, Has Died**\
-`After the suicide of his son, a high school pitcher who used steroids, Donald Hooton Sr. delivered blistering testimony before Congress. He was 76.`\
-https://www.nytimes.com/2026/11/22/us/donald-hooton-sr-dead.html
-
-**Democrat Chuck Hubbard Defeats 11-Term Republican Virginia Foxx in North Carolina**\
-`Chuck Hubbard, a retired journalist, defeated Representative Virginia Foxx in a conservative district.`\
-https://www.nytimes.com/2026/11/22/us/virginia-foxx-chuck-hubbard-north-carolina-house.html
-
-**How Melania Trump Found a Diplomatic Opening in the War in Ukraine**\
-`The first lady, who has little experience in international affairs, developed back channels to key figures on both sides of the conflict through her longtime agent.`\
-https://www.nytimes.com/2026/11/22/us/politics/melania-trump-ukraine-diplomacy.html
-
-**Democrats Clinch 258 House Seats, an Election-Year Record This Century**\
-`After sweeping midterm wins, Democrats have secured the largest House majority in a national election for either party in three decades.`\
-https://www.nytimes.com/2026/11/22/us/politics/democrats-midterm-house-majority-record.html
-
-**Court Filing Shows How Iowa Explosives Crisis Grew**\
-`The Army now plans to detonate a cache of dangerous explosives on or by Tuesday, potentially sending a plume of lead dust for miles over homes and farmland.`\
-https://www.nytimes.com/2026/11/22/climate/iowa-lead-crisis-court-filing-detonation-delay-army.html
-
-**Scott Bessent Calls on Nvidia to Provide Answers on Chip Sales to China**\
-`The treasury secretary said on CBS that it was too soon to say if Jensen Huang should return as the company’s chief executive.`\
-https://www.nytimes.com/2026/11/22/business/scott-bessent-jensen-huang-nvidia.html
-
-**‘Hunger Games’ Rebounds With $120 Million Opening for ‘Sunrise on the Reaping’ at Box Office**\
-`“The Hunger Games: Sunrise on the Reaping” had nearly three times the domestic opening box office total of its predecessor, extending a Lionsgate hot streak.`\
-https://www.nytimes.com/2026/11/22/business/media/hunger-games-box-office.html
-
-**The Ballet Star Herman Cornejo Will Take the Reins at Teatro Colón**\
-`Cornejo will succeed Julio Bocca, his former colleague at American Ballet Theater, as the leader of the Ballet Estable del Teatro Colón in Buenos Aires.`\
-https://www.nytimes.com/2026/11/22/arts/dance/herman-cornejo-teatro-colon-abt-argentina.html
-
-**Delta Delays Flights as Thanksgiving Travel Begins, After Automated System Falters**\
-`The system that faltered is used to calculate the weight and balance of departing flights. The disruptions came after a nationwide ground stop that canceled thousands of flights last weekend.`\
-https://www.nytimes.com/2026/11/22/us/delta-flight-delays-system-outage.html
-
-**Ginger Scallion Broccoli Salad, and More No-Oven Sides**\
-`(No description)`\
-https://www.nytimes.com/2026/11/22/dining/ginger-scallion-broccoli-salad-and-more-no-oven-sides.html
-
-**Bearing Witness to a Genocide**\
-`After the International Court of Justice ruled that Myanmar committed genocide against Rohingya Muslims, we ask how to pay attention to suffering.`\
-https://www.nytimes.com/2026/11/22/briefing/bearing-witness-to-a-genocide.html
-
-**Red Curry Noodles, Roasted Sausages With Chickpeas and Sheet-Pan Pierogies**\
-`And more non-Thanksgiving dinners to be thankful for.`\
-https://www.nytimes.com/2026/11/22/dining/red-curry-noodles-roasted-sausages-with-chickpeas-and-sheet-pan-pierogies.html
-
-**Why I Loved the Slick and Dirty HBO Divorce Drama ‘War’**\
-`Why I loved the slick and dirty HBO divorce drama ‘War.’`\
-https://www.nytimes.com/2026/11/22/opinion/war-hbo-divorce-tech-huang.html
-
-**Zohran Mamdani on Trump, Wall Street and Wealth Taxes**\
-`The mayor of New York City spoke with Andrew Ross Sorkin at the DealBook Summit.`\
-https://www.nytimes.com/2026/11/22/business/dealbook/zohran-mamdani-dealbook-summit.html
-
-**COP31 Talks Collapse in Turkey in a Clash Over Fossil Fuels**\
-`European and vulnerable nations rejected a proposed agreement after Saudi Arabia and other oil producers blocked any mention of phasing out coal, oil and gas.`\
-https://www.nytimes.com/2026/11/22/climate/cop31-climate-summit-ends-climate.html
-
-**St. Patrick’s Day Parade Canceled as Florida Figures Out D.E.I. Law**\
-`Cities and counties are pulling funding from groups and events they’ve long supported before a new law bars them from promoting diversity, equity and inclusion activities.`\
-https://www.nytimes.com/2026/11/22/us/florida-anti-dei-law-consequences.html
-
-**What Machines Love**\
-`The ability of humans to apply aesthetic judgment separates us from the bots — at least for now.`\
-https://www.nytimes.com/2026/11/22/briefing/does-ai-have-taste.html
-
-**A Thanksgiving Dinner for $100? Yes, It’s Possible (and Delicious).**\
-`NYT Cooking’s Andy Baraghani shows us how.`\
-https://www.nytimes.com/2026/11/22/podcasts/the-daily/a-thanksgiving-dinner-for-100-yes-its-possible-and-delicious.html
-
-**Why Are We at the Mercy of the World’s Weirdest Men?**\
-`No kings isn’t just about Trump.`\
-https://www.nytimes.com/2026/11/22/opinion/jensen-huang-ai-ethics-cold-war.html
-
-**Today’s Wordle Hints for November 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
-https://www.nytimes.com/2026/11/22/crosswords/wordle-review-1983.html
-
-**NYT Connections Answers for November 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
-https://www.nytimes.com/2026/11/22/crosswords/connections-companion-1261.html
 

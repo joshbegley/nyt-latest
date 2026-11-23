@@ -1,3 +1,75 @@
+**Why Do We Act Like Apples Are the Best Fruit?**\
+`Autumn’s favorite fruit is an insufferable diva.`\
+https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
+
+**Virginia School District Shaken by Sex Abuse Claims Closes for a Week**\
+`The district failed to conduct required background checks on more than 500 employees. The problem came to light after two staff members were arrested in separate child sex abuse and pornography charges.`\
+https://www.nytimes.com/2026/11/23/us/albemarle-virginia-school-district-sex-abuse-closure.html
+
+**How We See Ourselves in a Word of the Year**\
+`The Word of the Year selections are tarot pulls for the future. What’s different about the picks for 2026?`\
+https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
+
+**D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
+`The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
+https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
+
+**The World’s Tech Capital Can’t Keep Sewage Off the Streets in a Deluge**\
+`A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
+https://www.nytimes.com/2026/11/23/us/san-francisco-poop-water-sewer-rain.html
+
+**When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
+`A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
+https://www.nytimes.com/2026/11/23/realestate/ranch-house-renovation-lakeville-ct.html
+
+**What Are Your Most Memorable Holiday Travel Stories?**\
+`What are your plans this holiday season? Are you looking forward to them?`\
+https://www.nytimes.com/2026/11/23/learning/what-are-your-most-memorable-holiday-travel-stories.html
+
+**Grocers Take Losses on Thanksgiving Meal Bundles to Draw Shoppers**\
+`While retailers like Walmart may profit from the deals because of their size, smaller grocer chains are feeling the squeeze.`\
+https://www.nytimes.com/2026/11/23/business/thanksgiving-grocery-prices.html
+
+**CVS Health’s Planned Breakup Hasn’t Quieted Antitrust Critics**\
+`Lawmakers are warning that spinning off the health care conglomerate’s drugstores will not end scrutiny over its power.`\
+https://www.nytimes.com/2026/11/23/business/cvs-pharmacy-health-federal-investigations-antitrust.html
+
+**They Loved Their Proximity to Trump. They Won’t Like What Comes Next.**\
+`Will an asset becomes a liability?`\
+https://www.nytimes.com/2026/11/23/opinion/trump-princelings-democrats-congress.html
+
+**What Came Up During Thanksgiving Dinner? We Want to Hear.**\
+`Be our eyes and ears at the grown-ups table as we try to pin down the biggest topics of conversation this Thanksgiving.`\
+https://www.nytimes.com/2026/11/23/style/thanksgiving-dinner-arguments-survey.html
+
+**Live Auction App Let Users Bid on Live Seafood Alongside Trading Cards and Rare Coins**\
+`On the live-streamed auction app Whatnot, a cross between eBay and Twitch, people stock up on Wagyu hot dogs and staples like ground beef. But that’s not all.`\
+https://www.nytimes.com/2026/11/23/dining/whatnot-food-auction-e-commerce.html
+
+**Squeezed for Space in Court Filings, Lawyers Get Typographically Creative**\
+`Manipulating page formatting and fonts can help exceed word limits in legal filings, but can also incur a judge’s ire.`\
+https://www.nytimes.com/2026/11/23/us/federal-court-typography-rules.html
+
+**In Harlem, a New Museum Maps the Civil Rights Fight in the North**\
+`The Urban Civil Rights Museum, the first in New York dedicated to the history of the movement, aims to tell stories often overlooked in similar narratives.`\
+https://www.nytimes.com/2026/11/23/arts/urban-civil-rights-museum-harlem.html
+
+**Isabel Allende’s 24,000 Letters to and From Her Mother**\
+`The New York Public Library has acquired the papers of the author Isabel Allende, who is a cousin of the Chilean leader Salvador Allende. They include correspondence with her mother.`\
+https://www.nytimes.com/2026/11/23/nyregion/isabel-allende-papers-new-york-public-library.html
+
+**How to Prepare for Population Decline and an Emptier World**\
+`We can adapt to an emptier world, but it will mean making hard choices.`\
+https://www.nytimes.com/2026/11/23/opinion/population-decline-how-to-prepare.html
+
+**Fashion That’s Far From Standard Issue**\
+`This season, men’s wear updates traditional uniforms with unexpected flourishes.`\
+https://www.nytimes.com/2026/11/23/t-magazine/uniform-mens-fashion-style.html
+
+**Colombia Marks 10 Years Since FARC Peace Deal: In Photos**\
+`The conflict between Colombia’s government and a leftist rebel group ended in a historic 2016 accord. But Colombia is still waiting for true peace.`\
+https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html
+
 **Brice Marden Had Homes All Over the World. This One Reminded Feels Like ‘The Shining.’**\
 `For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
 https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
@@ -125,76 +197,4 @@ https://www.nytimes.com/2026/11/23/nyregion/macys-thanksgiving-day-parade-what-t
 **Jessica Ramos Couldn’t Afford Her Campaign Manager. She Gave Him a Senate Job.**\
 `Senator Jessica Ramos has been accused of violating New York election laws by hiring a political operative last year to simultaneously run her mayoral campaign and Senate office.`\
 https://www.nytimes.com/2026/11/23/nyregion/jessica-ramos-campaign.html
-
-**How Two Opera Singers (With Day Jobs) Live on $170,000 in Harlem**\
-`To sustain a life in opera, which has significant upfront costs before a performer even lands a gig, two singers depend largely on jobs outside the industry.`\
-https://www.nytimes.com/2026/11/23/nyregion/how-two-opera-singers-with-day-jobs-live-on-170000-in-harlem.html
-
-**‘Dig’ and 11 More Shows to Watch on TV This Week**\
-`A new series from Amy Poehler and Michael Schur debuts. Networks air football, a dog show and the parade for Thanksgiving Day.`\
-https://www.nytimes.com/2026/11/23/movies/dig-what-to-watch-on-tv.html
-
-**Democrats Must Defund Trump’s War in Iran**\
-`More war simply means more death and pain for everyone, Americans included.`\
-https://www.nytimes.com/2026/11/23/opinion/defund-iran-war-democrats.html
-
-**We Tested Kratom Products, Cannabinoids and Other Gas Station Drugs to See What’s Really Inside**\
-`Inside gas station convenience stores and smoke shops, drugs are for sale — wrapped in candy-colored packaging. Some are not as advertised.`\
-https://www.nytimes.com/interactive/2026/11/23/well/gas-station-drugs-vape-weed-kratom-hallucinogens.html
-
-**A First for a ‘Curious Incident’ Production: A Cast of Neurodivergent Actors**\
-`A company for neurodivergent actors steps up to a bigger stage with its full-spectrum model of inclusion.`\
-https://www.nytimes.com/2026/11/23/theater/curious-incident-epic-players-neurodiverse.html
-
-**Quote of the Day: Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
-`Quotation of the Day for Sunday, November 22, 2026.`\
-https://www.nytimes.com/2026/11/23/pageoneplus/quote-of-the-day-caught-between-killers-ebola-on-one-side-islamic-state-on-the-other.html
-
-**In Vietnam, an Electric Vehicle Revolution Without Cars**\
-`An oil shock is speeding a transformation of Vietnam’s streets, challenging global motorcycle giants and lifting a new generation of domestic manufacturers.`\
-https://www.nytimes.com/2026/11/23/business/electric-motorcyles-vietnam.html
-
-**Built to Whisper, E.V.s Look to Mimic the Growl of Gas Engines**\
-`With electric supercars from Lexus and Ferrari on the way, designers are hoping to help their cars stand out with a roar, while quieter city-bound cars try to be good neighbors.`\
-https://www.nytimes.com/2026/11/23/business/evs-electric-engine-sounds.html
-
-**Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate**\
-`Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
-https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
-
-**From the Front Page: Georgia’s President Resigns on Nov. 23, 2003**\
-`Largely peaceful protests known as the Rose Revolution ousted Eduard Shevardnadze, paving the way for a more pro-Western government in the former Soviet republic.`\
-https://www.nytimes.com/2026/11/23/learning/from-the-front-page-georgias-president-resigns-on-nov-23-2003.html
-
-**How Homeowners Are Powering Vietnam’s E-Bike Surge**\
-`The war in Iran has brought on a rapid switch from motorbikes to electric two-wheelers in Vietnam, creating an informal charging economy led by entrepreneurial homeowners.`\
-https://www.nytimes.com/video/world/asia/100000011212632/vietnam-electric-bike-ebikes-charging-stations.html
-
-**A Readable Feast:The Literature of Thanksgiving**\
-`How American writers have used the holiday to gauge the state of the nation, and the family.`\
-https://www.nytimes.com/interactive/2026/11/22/dining/thanksgiving-literature.html
-
-**S&P 500 Futures Rise After Tough Week**\
-`Early investor bets pointed to some stability when regular trading resumes on Monday, though analysts warned that more volatility could still be ahead.`\
-https://www.nytimes.com/2026/11/22/business/ai-stocks-sp500.html
-
-**Israeli Political Leaders Denounce ‘Jewish Terrorism’ After West Bank Attacks**\
-`Extremist settlers carried out a spate of violent raids in Palestinian villages over the weekend, spurring opponents of the Netanyahu government to demand a forceful response.`\
-https://www.nytimes.com/2026/11/22/world/middleeast/israeli-political-leaders-decry-jewish-terrorism-after-west-bank-attacks.html
-
-**Is Mexico Stepping Up in the War on Drugs?**\
-`With several powerful drug kingpins recently taken down by Mexican forces, some experts see what may be a new chapter beginning in Mexico.`\
-https://www.nytimes.com/2026/11/22/world/americas/mexico-us-cartel-arrests.html
-
-**Why Democrat Abdul El-Sayed is Talking Up ‘TrumpCare’**\
-`Senator-elect Abdul El-Sayed’s pitch for working together to enact universal health care illustrates how some newly elected Democrats are approaching the president.`\
-https://www.nytimes.com/2026/11/22/us/politics/el-sayed-trump-health-care.html
-
-**U.S. Tracked Alice Huang’s Contacts With China Spy Agency During Nvidia Affair**\
-`U.S. intelligence is said to show that the woman at the heart of the A.I. chip scandal was in touch with China’s Ministry of State Security during the period when she was in a relationship with Jensen Huang.`\
-https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvidia.html
-
-**Democrats Secure Largest House Majority This Century**\
-`Democrats secured 258 seats in the House on Sunday after Chuck Hubbard was declared the winner in North Carolina over Representative Virginia Foxx, an 11-term Republican. Democrats now have the largest House majority in three decades.`\
-https://www.nytimes.com/video/us/politics/100000011272185/democrats-258-house-majority-midterms-election.html
 
