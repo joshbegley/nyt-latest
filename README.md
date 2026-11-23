@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-n
 `Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
 
-**Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
+**Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
 `President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
