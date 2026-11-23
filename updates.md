@@ -1,3 +1,15 @@
+**Mamdani to Have Surgery for Torn Achilles’ Tendon**\
+`Mayor Zohran Mamdani was injured playing soccer last week. He said two deputy mayors would fill in temporarily during and immediately after the operation.`\
+https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
+
+**In Iowa, Chaos and Confusion Over Planned Ammunition Explosion**\
+`President Trump said on Monday  that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
+**Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
+`The Israeli prime minister, Benjamin Netanyahu, calls renewing strikes a matter of national security. Military analysts and opposition leaders say he’s prioritizing his own interests.`\
+https://www.nytimes.com/2026/11/23/world/middleeast/netanyahu-israel-iran.html
+
 **The Jensen Huang Story Is Not Over**\
 `In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011303262/the-jensen-huang-story-is-not-over.html
