@@ -1,3 +1,7 @@
+**Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
+`The Israeli prime minister, Benjamin Netanyahu calls renewing strikes a matter of national security. Military analysts and opposition leaders say he’s prioritizing his own interests.`\
+https://www.nytimes.com/2026/11/23/world/middleeast/netanyahu-israel-iran.html
+
 **Why U.N. Climate Talks Collapsed, and How China’s Spies Set Sights on A.I. Chips**\
 `Plus, remembering the Pope of Peppers.`\
 https://www.nytimes.com/2026/11/23/podcasts/the-headlines/un-climate-talks-china-spies-ai-chips.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/science/missing-heritability.html
 **What’s Actually in Those Gas Station Drugs?**\
 `Inside gas station convenience stores and smoke shops across the country, a new generation of drugs is for sale. It can be difficult to know what’s actually inside these items, which come wrapped in candy-colored packaging and are often readily accessible to the everyday consumer. To better understand this phenomenon, The New York Times purchased and lab-tested 28 products. Matt Richtel, a reporter for Well, walks us through the findings.`\
 https://www.nytimes.com/video/well/100000011088461/gas-station-drugs-vape-weed-kratom-hallucinogens.html
-
-**The Jeweler Chow Tai Fook Wants You to Know Its Name**\
-`The brand Chow Tai Fook is adding to its more than 5,000 global points of sale as it prepares for its centennial in 2029.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-chow-tai-fook-hong-kong.html
 
