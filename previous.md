@@ -1,6 +1,18 @@
-**Jensen Huang’s Return Brings a Sense of Déjà Vu**\
+**Exiled From Kennedy Center, but Sticking to Its National Identity**\
+`Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
+https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
+
+**Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
+`President Trump decided he wanted to do whatever he could to help Mr. Huang get his old job back, two people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/23/technology/trump-nvidia-huang.html
+
+**‘Sister’: A Late-Night Skit Magnifies a Home Care Crisis**\
+`Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
+https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
+
+**Jensen Huang’s Return as Nvidia CEO Feels Like Déjà Vu in Silicon Valley**\
 `The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
-https://www.nytimes.com/2026/11/23/technology/jensen-huangs-return-brings-a-sense-of-deja-vu.html
+https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
 
 **Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
 `It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/23/nyregion/isabel-allende-papers-new-york-publi
 **How to Prepare for Population Decline and an Emptier World**\
 `We can adapt to an emptier world, but it will mean making hard choices.`\
 https://www.nytimes.com/2026/11/23/opinion/population-decline-how-to-prepare.html
-
-**Fashion That’s Far From Standard Issue**\
-`This season, men’s wear updates traditional uniforms with unexpected flourishes.`\
-https://www.nytimes.com/2026/11/23/t-magazine/uniform-mens-fashion-style.html
-
-**Colombia Marks 10 Years Since FARC Peace Deal: In Photos**\
-`The conflict between Colombia’s government and a leftist rebel group ended in a historic 2016 accord. But Colombia is still waiting for true peace.`\
-https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html
-
-**Brice Marden Had Homes All Over the World. This One Feels Like ‘The Shining.’**\
-`For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
-https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
 

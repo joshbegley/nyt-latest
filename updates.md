@@ -1,3 +1,19 @@
+**Exiled From Kennedy Center, but Sticking to Its National Identity**\
+`Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
+https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
+
+**Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
+`President Trump decided he wanted to do whatever he could to help Mr. Huang get his old job back, two people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/23/technology/trump-nvidia-huang.html
+
+**‘Sister’: A Late-Night Skit Magnifies a Home Care Crisis**\
+`Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
+https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
+
+**Jensen Huang’s Return as Nvidia CEO Feels Like Déjà Vu in Silicon Valley**\
+`The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
+https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
+
 **Jensen Huang’s Return Brings a Sense of Déjà Vu**\
 `The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
 https://www.nytimes.com/2026/11/23/technology/jensen-huangs-return-brings-a-sense-of-deja-vu.html
