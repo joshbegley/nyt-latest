@@ -183,7 +183,7 @@ https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-n
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
 
 **Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
-`President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
+`The president set in motion a weekend of maneuvering, led by Vice President JD Vance, to help Jensen Huang get his old job back.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
 **‘Sister’: A Late-Night Sketch Spotlights a Home Care Crisis**\

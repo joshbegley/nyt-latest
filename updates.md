@@ -1,3 +1,7 @@
+**Trump Toasted a Troubled Boxer as a V.I.P. at Crypto Gala**\
+`At his third dinner for buyers of his memecoin digital tokens, the president’s honored guests included Floyd Mayweather, who owes the I.R.S.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-floyd-mayweather-gala.html
+
 **Three Gen Z Men on Why They Converted to Catholicism**\
 `A wave of young men is discovering the church in a distinctly modern fashion: via the internet.`\
 https://www.nytimes.com/interactive/2026/11/23/magazine/catholic-converts-gen-z.html
