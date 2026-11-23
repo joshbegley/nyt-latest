@@ -1,3 +1,15 @@
+**In Iowa, Confusion Over Ammunition Explosion as Trump Calls for Delay**\
+`President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
+**‘It’s a Wonderful Life’ and Other Broadway Shows for the Holidays**\
+`Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
+https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html
+
+**Live Updates: Huang’s Return to Nvidia Sparks Stock Rally and Lawmaker Skepticism**\
+`Mr. Huang resigned from the powerhouse chipmaker less than two weeks ago after revelations of his extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **In Iowa, Chaos and Confusion Over Planned Ammunition Explosion**\
 `President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
