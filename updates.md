@@ -1,3 +1,7 @@
+**Live Updates: Trump Pressed Nvidia to Reinstate Jensen Huang as C.E.O.**\
+`Mr. Huang resigned less than two weeks ago after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **Broadway Holiday Fare: ‘It’s a Wonderful Life,’ Blue Man Group and ‘Now You See Me’**\
 `Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
 https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html

@@ -70,8 +70,8 @@ https://www.nytimes.com/2026/11/23/pageoneplus/corrections-nov-22-2026.html
 `With big diplomatic efforts faltering, smaller pacts, local leaders and booming clean energy take center stage.`\
 https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
 
-**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
-`Mr. Huang resigned after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. President Trump said his return was vital for the company and the American economy.`\
+**Live Updates: Trump Pressed Nvidia to Reinstate Jensen Huang as C.E.O.**\
+`Mr. Huang resigned less than two weeks ago after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
 
 **Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
