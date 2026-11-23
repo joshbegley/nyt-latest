@@ -1,3 +1,7 @@
+**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
+`Mr. Huang resigned two weeks ago after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. Nvidia’s board said it was satisfied with his “candor.”`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **Marcia Ann Gillespie, Editor in Chief of Essence and Ms., Has Died**\
 `She became editor in chief of Essence at age 26, and later ran the feminist magazine Ms. She was 82.`\
 https://www.nytimes.com/2026/11/23/business/media/marcia-ann-gillespie-dead.html
