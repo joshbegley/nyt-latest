@@ -1,3 +1,11 @@
+**COP31 Climate Talks Broke Down. Now What?**\
+`With big diplomatic efforts faltering, smaller pacts, local leaders and booming clean energy take center stage.`\
+https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
+
+**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
+`Mr. Huang resigned on Nov. 12 after revelations of multiple extramarital relationships. The company’s board of directors said early on Monday that it was satisfied with Mr. Huang’s “candor and ability to lead Nvidia.”`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
+
 **Deadly Fire Rips Through Candy Factory in Indonesia**\
 `Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
 https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
