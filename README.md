@@ -91,7 +91,7 @@ https://www.nytimes.com/video/opinion/100000011297614/gen-z-ers-are-rising-up-th
 https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
 
 **Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
-`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight powers to scrutinize his administration’s approach.`\
+`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight and legislative power to challenge his administration’s approach.`\
 https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
 
 **What Hakeem Jeffries Thinks of Stephen Miller**\
