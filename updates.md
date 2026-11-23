@@ -1,3 +1,7 @@
+**Why Democrat Abdul El-Sayed is Talking Up ‘TrumpCare’**\
+`Senator-elect Abdul El-Sayed’s pitch for working together to enact universal health care illustrates how some newly elected Democrats are approaching the president.`\
+https://www.nytimes.com/2026/11/22/us/politics/el-sayed-trump-health-care.html
+
 **U.S. Tracked Alice Huang’s Contacts With China Spy Agency During Nvidia Affair**\
 `U.S. intelligence is said to show that the woman at the heart of the A.I. chip scandal was in touch with China’s Ministry of State Security during the period when she was in a relationship with Jensen Huang.`\
 https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvidia.html

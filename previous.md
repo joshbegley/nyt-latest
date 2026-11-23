@@ -1,3 +1,7 @@
+**Why Democrat Abdul El-Sayed is Talking Up ‘TrumpCare’**\
+`Senator-elect Abdul El-Sayed’s pitch for working together to enact universal health care illustrates how some newly elected Democrats are approaching the president.`\
+https://www.nytimes.com/2026/11/22/us/politics/el-sayed-trump-health-care.html
+
 **U.S. Tracked Alice Huang’s Contacts With China Spy Agency During Nvidia Affair**\
 `U.S. intelligence is said to show that the woman at the heart of the A.I. chip scandal was in touch with China’s Ministry of State Security during the period when she was in a relationship with Jensen Huang.`\
 https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvidia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 **Recipe: Butternut Squash Pkhali, a Georgian Dish Perfect for Any Holiday Table**\
 `This vibrant, herby appetizer has been made for centuries in the Caucasus country.`\
 https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-recipe.html
-
-**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
-`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
-https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
 
