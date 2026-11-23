@@ -1,3 +1,23 @@
+**Why U.N. Climate Talks Collapsed, and How China’s Spies Set Sights on A.I. Chips**\
+`Plus, remembering the Pope of Peppers.`\
+https://www.nytimes.com/2026/11/23/podcasts/the-headlines/un-climate-talks-china-spies-ai-chips.html
+
+**Measles Is Officially Back. What Now?**\
+`The United States was once seen as a global leader for reining in the highly contagious virus. Large outbreaks could now become routine.`\
+https://www.nytimes.com/2026/11/23/podcasts/the-daily/measles-elimination-vaccines.html
+
+**Today’s Wordle Hints for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/wordle-review-1984.html
+
+**NYT Strands Hints for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/strands-sidekick-996.html
+
+**NYT Connections Answers for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/connections-companion-1262.html
+
 **Dozens Unaccounted for After Fire Rips Through Candy Factory in Indonesia**\
 `Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
 https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html

@@ -1,3 +1,23 @@
+**Why U.N. Climate Talks Collapsed, and How China’s Spies Set Sights on A.I. Chips**\
+`Plus, remembering the Pope of Peppers.`\
+https://www.nytimes.com/2026/11/23/podcasts/the-headlines/un-climate-talks-china-spies-ai-chips.html
+
+**Measles Is Officially Back. What Now?**\
+`The United States was once seen as a global leader for reining in the highly contagious virus. Large outbreaks could now become routine.`\
+https://www.nytimes.com/2026/11/23/podcasts/the-daily/measles-elimination-vaccines.html
+
+**Today’s Wordle Hints for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/wordle-review-1984.html
+
+**NYT Strands Hints for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/strands-sidekick-996.html
+
+**NYT Connections Answers for November 24, 2026**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
+https://www.nytimes.com/2026/11/23/crosswords/connections-companion-1262.html
+
 **Dozens Unaccounted for After Fire Rips Through Candy Factory in Indonesia**\
 `Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
 https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/well/100000011088461/gas-station-drugs-vape-weed-k
 **The Jeweler Chow Tai Fook Wants You to Know Its Name**\
 `The brand Chow Tai Fook is adding to its more than 5,000 global points of sale as it prepares for its centennial in 2029.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-chow-tai-fook-hong-kong.html
-
-**Between Covers: More than 200 Jewelry Sketches**\
-`A new book offers a range of drawings from the collection of the Petit Palais in Paris.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-sketches-petit-palais-paris.html
-
-**Ukraine Claims Strikes on Russian Ships Near Libya**\
-`President Volodymyr Zelensky said that Ukrainian naval drones sank a corvette and hit a dry cargo vessel, demonstrating Kyiv’s reach in the seas.`\
-https://www.nytimes.com/2026/11/23/world/europe/ukraine-libya-russian-ships.html
-
-**E-Bike Rides Will Be Cheaper Next Year for Citi Bike Members**\
-`A 45-minute ride will cost $3.65 for members in New York City starting in January, down from a high of more than $12 right now, Mayor Zohran Mamdani is set to announce.`\
-https://www.nytimes.com/2026/11/23/nyregion/citi-bike-price-drops-nyc.html
-
-**How Two Opera Singers (With Day Jobs) Live on $170,000 in Harlem**\
-`To sustain a life in opera, which has significant upfront costs before a performer even lands a gig, two singers depend largely on jobs outside the industry.`\
-https://www.nytimes.com/interactive/2026/11/23/nyregion/nyc-budgeting-affordability-allais.html
-
-**NYT Spelling Bee Answers for November 23, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/23/crosswords/spelling-bee-forum.html
 
