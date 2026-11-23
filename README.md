@@ -78,8 +78,8 @@ https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-e
 `Reporters answered your queries about the scandal.`\
 https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
 
-**Dozens Missing After Fire at Indonesia Candy Factory**\
-`Dozens were still missing on Monday after a fire tore through a candy factory in Banten Province, Indonesia, over the weekend.`\
+**Dozens Killed in Fire at Indonesia Candy Factory**\
+`Dozens of people were killed in a fire that tore through a candy factory in Banten Province, Indonesia, the police said.`\
 https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
 
 **Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
