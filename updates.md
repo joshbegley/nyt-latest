@@ -1,3 +1,7 @@
+**Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
+`Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
+
 **As Tides Near Record Levels in California, a Storm Threatens to Make Things Worse**\
 `High tides reaching two or more feet above normal may cause flooding this week, forecasters warned.`\
 https://www.nytimes.com/2026/11/23/weather/california-king-tides-storm.html

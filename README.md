@@ -1,3 +1,11 @@
+**A.I.-Powered Fake Personas Target Taiwan’s Elections**\
+`A new tool developed by researchers at Vanderbilt is detecting A.I.-generated posts linked to social media accounts aligned with China.`\
+https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
+
+**Sebastián Lelio, Director of Nuanced Film Portraits of Women, Dies at 52**\
+`Taking aim at “respectable” society, he featured a transgender character in “A Fantastic Woman,” which won an Academy Award.`\
+https://www.nytimes.com/2026/11/23/movies/sebastian-lelio-dead.html
+
 **Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
 `Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/23/us/albemarle-virginia-school-district-sex-abu
 **How We See Ourselves in a Word of the Year**\
 `The Word of the Year selections are tarot pulls for the future. What’s different about the picks for 2026?`\
 https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
-
-**Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
-`A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
-https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.html
-
-**D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
-`The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
-https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
 
