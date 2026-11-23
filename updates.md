@@ -1,3 +1,7 @@
+**We Tested Kratom Products, Cannabinoids and Other Gas Station Drugs to See What’s Really Inside**\
+`Inside gas station convenience stores and smoke shops, drugs are for sale — wrapped in candy-colored packaging. Some are not as advertised.`\
+https://www.nytimes.com/interactive/2026/11/23/well/gas-station-drugs-vape-weed-kratom-hallucinogens.html
+
 **A First for a ‘Curious Incident’ Production: A Cast of Neurodivergent Actors**\
 `A company for neurodivergent actors steps up to a bigger stage with its full-spectrum model of inclusion.`\
 https://www.nytimes.com/2026/11/23/theater/curious-incident-epic-players-neurodiverse.html
