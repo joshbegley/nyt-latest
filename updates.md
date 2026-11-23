@@ -1,3 +1,7 @@
+**Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
+`Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
+https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
+
 **Why Democrat Abdul El-Sayed is Talking Up ‘TrumpCare’**\
 `Senator-elect Abdul El-Sayed’s pitch for working together to enact universal health care illustrates how some newly elected Democrats are approaching the president.`\
 https://www.nytimes.com/2026/11/22/us/politics/el-sayed-trump-health-care.html
