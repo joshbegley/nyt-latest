@@ -1,6 +1,10 @@
-**Nvidia Reinstates Jensen Huang as Chief Executive**\
-`Mr. Huang resigned from Nvidia on Nov. 12 after revelations of multiple extramarital relationships.`\
-https://www.nytimes.com/2026/11/23/business/nvidia-jensen-huang.html
+**COP31 Climate Talks Broke Down. Now What?**\
+`With big diplomatic efforts faltering, smaller pacts, local leaders and booming clean energy take center stage.`\
+https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
+
+**Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
+`Mr. Huang resigned on Nov. 12 after revelations of multiple extramarital relationships. The company’s board of directors said early on Monday that it was satisfied with Mr. Huang’s “candor and ability to lead Nvidia.”`\
+https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
 
 **Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
 `As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/jewelry-books-jeremy-may-london.html
 **Talisman Jewelry Is Finding New Forms**\
 `From artistic evil eye pendants to personalized gold medallions, talismans are finding new forms.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-talismans-sydney-evan.html
-
-**A More Neurodiverse Stage**\
-`Jesse Green, our culture correspondent, visits with a theater company for neurodiverse actors in New York City. They are staging “The Curious Incident of the Dog in the Night-Time,” whose main character appears to be on the autism spectrum.`\
-https://www.nytimes.com/video/theater/100000011219226/neurodiverse-theater-neurodivergent-curious-incident-dog-nighttime-epic.html
 
