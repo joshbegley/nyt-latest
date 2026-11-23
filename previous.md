@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
 
 **Miley Cyrus Marries Maxx Morando in Palm Springs**\
-`The pop star married her partner, Maxx Morando, in a modest Palm Springs event.`\
+`The pop star married her partner, Maxx Morando, in an event at Frank Sinatra’s Palm Springs estate.`\
 https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
 
 **Elon Musk Faces an A.I. Dilemma at SpaceX**\

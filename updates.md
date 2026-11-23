@@ -1,3 +1,7 @@
+**Miley Cyrus Marries Maxx Morando in Palm Springs**\
+`The pop star married her partner, Maxx Morando, in an event at Frank Sinatra’s Palm Springs estate.`\
+https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
+
 **Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
 `It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
 https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
