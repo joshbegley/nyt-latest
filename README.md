@@ -1,3 +1,11 @@
+**Three Gen Z Men on Why They Converted to Catholicism**\
+`A wave of young men is discovering the church in a distinctly modern fashion: via the internet.`\
+https://www.nytimes.com/interactive/2026/11/23/magazine/catholic-converts-gen-z.html
+
+**More American Women Are Turning to Natural Family Planning, Study Shows**\
+`Researchers found that more than 2.2 million women were using a fertility-awareness method, which requires them to chart their cycles closely.`\
+https://www.nytimes.com/2026/11/23/us/natural-family-planning-study.html
+
 **With Jensen Huang, Trump Strikes Another Blow for Billionaire Impunity**\
 `Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
 https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 **Jensen Huang’s Return as Nvidia CEO Feels Like Déjà Vu in Silicon Valley**\
 `The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
 https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
-
-**Trump’s Own Stock Portfolio Likely Benefits From Nvidia’s Rise**\
-`It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
-https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
-
-**Miley Cyrus Marries Maxx Morando in Palm Springs**\
-`The pop star married her partner, Maxx Morando, in an event at Frank Sinatra’s Palm Springs estate.`\
-https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
 

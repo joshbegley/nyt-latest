@@ -1,3 +1,7 @@
+**Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
+`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight and legislative power to challenge his administration’s approach.`\
+https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
+
 **With Jensen Huang, Trump Strikes Another Blow for Billionaire Impunity**\
 `Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
 https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
