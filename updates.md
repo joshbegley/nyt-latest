@@ -1,3 +1,75 @@
+**Why Do We Act Like Apples Are the Best Fruit?**\
+`Autumn’s favorite fruit is an insufferable diva.`\
+https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
+
+**Virginia School District Shaken by Sex Abuse Claims Closes for a Week**\
+`The district failed to conduct required background checks on more than 500 employees. The problem came to light after two staff members were arrested in separate child sex abuse and pornography charges.`\
+https://www.nytimes.com/2026/11/23/us/albemarle-virginia-school-district-sex-abuse-closure.html
+
+**How We See Ourselves in a Word of the Year**\
+`The Word of the Year selections are tarot pulls for the future. What’s different about the picks for 2026?`\
+https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
+
+**D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
+`The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
+https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
+
+**The World’s Tech Capital Can’t Keep Sewage Off the Streets in a Deluge**\
+`A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
+https://www.nytimes.com/2026/11/23/us/san-francisco-poop-water-sewer-rain.html
+
+**When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
+`A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
+https://www.nytimes.com/2026/11/23/realestate/ranch-house-renovation-lakeville-ct.html
+
+**What Are Your Most Memorable Holiday Travel Stories?**\
+`What are your plans this holiday season? Are you looking forward to them?`\
+https://www.nytimes.com/2026/11/23/learning/what-are-your-most-memorable-holiday-travel-stories.html
+
+**Grocers Take Losses on Thanksgiving Meal Bundles to Draw Shoppers**\
+`While retailers like Walmart may profit from the deals because of their size, smaller grocer chains are feeling the squeeze.`\
+https://www.nytimes.com/2026/11/23/business/thanksgiving-grocery-prices.html
+
+**CVS Health’s Planned Breakup Hasn’t Quieted Antitrust Critics**\
+`Lawmakers are warning that spinning off the health care conglomerate’s drugstores will not end scrutiny over its power.`\
+https://www.nytimes.com/2026/11/23/business/cvs-pharmacy-health-federal-investigations-antitrust.html
+
+**They Loved Their Proximity to Trump. They Won’t Like What Comes Next.**\
+`Will an asset becomes a liability?`\
+https://www.nytimes.com/2026/11/23/opinion/trump-princelings-democrats-congress.html
+
+**What Came Up During Thanksgiving Dinner? We Want to Hear.**\
+`Be our eyes and ears at the grown-ups table as we try to pin down the biggest topics of conversation this Thanksgiving.`\
+https://www.nytimes.com/2026/11/23/style/thanksgiving-dinner-arguments-survey.html
+
+**Live Auction App Let Users Bid on Live Seafood Alongside Trading Cards and Rare Coins**\
+`On the live-streamed auction app Whatnot, a cross between eBay and Twitch, people stock up on Wagyu hot dogs and staples like ground beef. But that’s not all.`\
+https://www.nytimes.com/2026/11/23/dining/whatnot-food-auction-e-commerce.html
+
+**Squeezed for Space in Court Filings, Lawyers Get Typographically Creative**\
+`Manipulating page formatting and fonts can help exceed word limits in legal filings, but can also incur a judge’s ire.`\
+https://www.nytimes.com/2026/11/23/us/federal-court-typography-rules.html
+
+**In Harlem, a New Museum Maps the Civil Rights Fight in the North**\
+`The Urban Civil Rights Museum, the first in New York dedicated to the history of the movement, aims to tell stories often overlooked in similar narratives.`\
+https://www.nytimes.com/2026/11/23/arts/urban-civil-rights-museum-harlem.html
+
+**Isabel Allende’s 24,000 Letters to and From Her Mother**\
+`The New York Public Library has acquired the papers of the author Isabel Allende, who is a cousin of the Chilean leader Salvador Allende. They include correspondence with her mother.`\
+https://www.nytimes.com/2026/11/23/nyregion/isabel-allende-papers-new-york-public-library.html
+
+**How to Prepare for Population Decline and an Emptier World**\
+`We can adapt to an emptier world, but it will mean making hard choices.`\
+https://www.nytimes.com/2026/11/23/opinion/population-decline-how-to-prepare.html
+
+**Fashion That’s Far From Standard Issue**\
+`This season, men’s wear updates traditional uniforms with unexpected flourishes.`\
+https://www.nytimes.com/2026/11/23/t-magazine/uniform-mens-fashion-style.html
+
+**Colombia Marks 10 Years Since FARC Peace Deal: In Photos**\
+`The conflict between Colombia’s government and a leftist rebel group ended in a historic 2016 accord. But Colombia is still waiting for true peace.`\
+https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html
+
 **Brice Marden Had Homes All Over the World. This One Reminded Feels Like ‘The Shining.’**\
 `For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
 https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
