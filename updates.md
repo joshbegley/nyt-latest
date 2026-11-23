@@ -1,3 +1,11 @@
+**Three Gen Z Men on Why They Converted to Catholicism**\
+`A wave of young men is discovering the church in a distinctly modern fashion: via the internet.`\
+https://www.nytimes.com/interactive/2026/11/23/magazine/catholic-converts-gen-z.html
+
+**More American Women Are Turning to Natural Family Planning, Study Shows**\
+`Researchers found that more than 2.2 million women were using a fertility-awareness method, which requires them to chart their cycles closely.`\
+https://www.nytimes.com/2026/11/23/us/natural-family-planning-study.html
+
 **Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
 `It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight and legislative power to challenge his administration’s approach.`\
 https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html

@@ -1,3 +1,7 @@
+**Trump Toasted a Troubled Boxer as a V.I.P. at Crypto Gala**\
+`At his third dinner for buyers of his memecoin digital tokens, the president’s honored guests included Floyd Mayweather, who owes the I.R.S.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-floyd-mayweather-gala.html
+
 **Three Gen Z Men on Why They Converted to Catholicism**\
 `A wave of young men is discovering the church in a distinctly modern fashion: via the internet.`\
 https://www.nytimes.com/interactive/2026/11/23/magazine/catholic-converts-gen-z.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 **‘Sister’: A Late-Night Sketch Spotlights a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
 https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
-
-**Jensen Huang’s Return as Nvidia CEO Feels Like Déjà Vu in Silicon Valley**\
-`The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
-https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
 
