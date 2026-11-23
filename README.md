@@ -1,3 +1,7 @@
+**Can Jensen Huang Return to Nvidia?**\
+`The odds of the Nvidia co-founder returning as chief executive appeared to get a boost following new comments by President Trump and Treasury Secretary Scott Bessent.`\
+https://www.nytimes.com/2026/11/23/business/dealbook/jensen-huang-nvidia.html
+
 **Two Major Cybersecurity Firms to Combine in $44 Billion Deal**\
 `CrowdStrike agreed to acquire Zscaler, bulking up as worries about hacks fueled by advances in artificial intelligence bedevil companies and governments.`\
 https://www.nytimes.com/2026/11/23/business/crowdstrike-zscaler-cybersecurity.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/goldsmith-tlondon.html
 **Eating for Pleasure Doesn’t Need to Stop at the Holidays**\
 `Savoring delicious food is not only enjoyable in the moment, it may even enhance long-term well-being.`\
 https://www.nytimes.com/2026/11/23/well/eat/food-pleasure-joy-benefits-holidays.html
-
-**Book Review: ‘Long Wave,’ by Daisy Johnson**\
-`Daisy Johnson’s “Long Wave” is an atmospheric, intergenerational saga on the border between the Gothic and the mundane.`\
-https://www.nytimes.com/2026/11/23/books/review/long-wave-daisy-johnson.html
 
