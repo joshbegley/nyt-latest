@@ -1,3 +1,7 @@
+**Trump Pressed Nvidia to Bring Back Jensen Huang**\
+`Also, measles is a growing risk for some American adults. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/23/briefing/trump-nvidia-jensen-huang.html
+
 **Two City Bus Drivers Killed in Head-On Collision in Columbus**\
 `A head-on collision between two city buses in Columbus, Ohio, killed both drivers and left nine people injured, according to officials. The police said it was unclear what caused one bus to veer across a double-yellow lane.`\
 https://www.nytimes.com/video/us/100000011303808/ohio-bus-collision-drivers-deaths.html
@@ -162,7 +166,7 @@ https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-n
 `Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
 
-**Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
+**Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
 `President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
 **Elon Musk Faces an A.I. Dilemma at SpaceX**\
 `Mr. Musk’s SpaceX is renting out computing power from its data centers to competitors, including Anthropic. That’s making it harder for his own A.I. effort.`\
 https://www.nytimes.com/2026/11/23/business/elon-musk-ai-anthropic-google.html
-
-**Do You Remember These Literary Lines?**\
-`Certain poets, playwrights and authors have shared observations about families, home and Thanksgiving in their works. Try this quiz to see if you can identify five of them. Hints are included.`\
-https://www.nytimes.com/quiz/2026/11/23/bookreview/family-thanksgiving-quiz.html
 

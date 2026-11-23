@@ -1,3 +1,11 @@
+**Trump Pressed Nvidia to Bring Back Jensen Huang**\
+`Also, measles is a growing risk for some American adults. Here’s the latest at the end of Monday.`\
+https://www.nytimes.com/2026/11/23/briefing/trump-nvidia-jensen-huang.html
+
+**Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
+`President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
+
 **Jensen Huang Returns to Nvidia, Showing What Trump Will Do for AI**\
 `President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
 https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
