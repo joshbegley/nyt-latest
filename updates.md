@@ -1,3 +1,7 @@
+**Deadly Fire Rips Through Candy Factory in Indonesia**\
+`Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
+https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
+
 **Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
 `As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
 https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
