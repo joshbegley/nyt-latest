@@ -1,3 +1,7 @@
+**Two Major Cybersecurity Firms to Combine in $44 Billion Deal**\
+`CrowdStrike agreed to acquire Zscaler, bulking up as worries about hacks fueled by advances in artificial intelligence bedevil companies and governments.`\
+https://www.nytimes.com/2026/11/23/business/crowdstrike-zscaler-cybersecurity.html
+
 **Brice Marden Had Homes All Over the World. This One Feels Like ‘The Shining.’**\
 `For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
 https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
