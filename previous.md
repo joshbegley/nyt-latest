@@ -1,3 +1,23 @@
+**Audra Fordin Fixes Cars, and Eases Women’s Fears**\
+`Audra Fordin recognized an undeniable need to make automobile education more accessible, and did something about it.`\
+https://www.nytimes.com/2026/11/23/business/small-business/women-cars.html
+
+**Why I’m Not Surprised Jensen Huang Is Back**\
+`The Opinion contributing writer Natasha Sarin explains why the Nvidia chief is so important to the A.I. industry as a whole.`\
+https://www.nytimes.com/2026/11/23/opinion/jensen-huang-nvidia-economy-ai.html
+
+**Why I’m Not Surprised Jensen Huang Is Back**\
+`The Opinion contributing writer Natasha Sarin explains why the Nvidia chief is so important to the A.I. industry as a whole.`\
+https://www.nytimes.com/video/opinion/100000011303366/why-im-not-surprised-jensen-huang-is-back.html
+
+**With Jensen Huang’s Return as C.E.O., Trump Effectively Overrode Nvidia’s Board**\
+`Nvidia’s board said Mr. Huang would not be back. But President Trump, who pushed for Mr. Huang’s reinstatement, effectively overrode the board, governance experts said.`\
+https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-board-trump.html
+
+**The Woman Who Took Canada to Court Over Genocide**\
+`Na’kuset is a longtime champion for Indigenous communities across Canada using her experiences to fuel her advocacy.`\
+https://www.nytimes.com/2026/11/23/world/canada/nakuset-montreal.html
+
 **Meet NASA’s first and only female launch director**\
 `Charlie Blackwell-Thompson is the first and only woman to serve as NASA’s launch director.`\
 https://www.nytimes.com/2026/11/23/science/space/women-charlie-blackwell-thompson-nasa.html
@@ -62,8 +82,8 @@ https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
 `In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011303262/the-jensen-huang-story-is-not-over.html
 
-**A.I.-Powered Fake Personas Target Taiwan’s Elections**\
-`A new tool developed by researchers at Vanderbilt is detecting A.I.-generated posts linked to social media accounts aligned with China.`\
+**Fake Personas Aligned With China Are Targeting Taiwan’s Election, Researchers Say**\
+`A tool developed by researchers at Vanderbilt University is detecting A.I.-generated social media posts that support the policies of the Chinese Communist Party.`\
 https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
 
 **Sebastián Lelio, Director of Nuanced Film Portraits of Women, Dies at 52**\
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/11/23/travel/outage-anxiety-thanksgiving.html
 **Measles Is a Growing Risk for Adults in the United States**\
 `The danger is greatest for those who are unvaccinated, but vaccinated people born before 1989 may no longer be sufficiently protected, medical experts said.`\
 https://www.nytimes.com/2026/11/23/health/measles-adults-vaccine-boosters.html
-
-**Marcia Ann Gillespie, Editor in Chief of Essence and Ms., Has Died**\
-`She became editor in chief of Essence at age 26, and later ran the feminist magazine Ms. She was 82.`\
-https://www.nytimes.com/2026/11/23/business/media/marcia-ann-gillespie-dead.html
-
-**Corrections: Nov. 22, 2026**\
-`Corrections that appeared in print on Sunday, Nov. 22, 2026.`\
-https://www.nytimes.com/2026/11/23/pageoneplus/corrections-nov-22-2026.html
-
-**COP31 Climate Talks Broke Down. Now What?**\
-`With big diplomatic efforts faltering, smaller pacts, local leaders and booming clean energy take center stage.`\
-https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
-
-**Live Updates: Huang’s Return to Nvidia Sparks Stock Rally and Lawmaker Skepticism**\
-`Mr. Huang resigned from the powerhouse chipmaker less than two weeks ago after revelations of his extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
-https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
-
-**Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
-`As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
-https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
 

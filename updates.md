@@ -1,3 +1,27 @@
+**Audra Fordin Fixes Cars, and Eases Women’s Fears**\
+`Audra Fordin recognized an undeniable need to make automobile education more accessible, and did something about it.`\
+https://www.nytimes.com/2026/11/23/business/small-business/women-cars.html
+
+**Why I’m Not Surprised Jensen Huang Is Back**\
+`The Opinion contributing writer Natasha Sarin explains why the Nvidia chief is so important to the A.I. industry as a whole.`\
+https://www.nytimes.com/2026/11/23/opinion/jensen-huang-nvidia-economy-ai.html
+
+**Why I’m Not Surprised Jensen Huang Is Back**\
+`The Opinion contributing writer Natasha Sarin explains why the Nvidia chief is so important to the A.I. industry as a whole.`\
+https://www.nytimes.com/video/opinion/100000011303366/why-im-not-surprised-jensen-huang-is-back.html
+
+**With Jensen Huang’s Return as C.E.O., Trump Effectively Overrode Nvidia’s Board**\
+`Nvidia’s board said Mr. Huang would not be back. But President Trump, who pushed for Mr. Huang’s reinstatement, effectively overrode the board, governance experts said.`\
+https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-board-trump.html
+
+**The Woman Who Took Canada to Court Over Genocide**\
+`Na’kuset is a longtime champion for Indigenous communities across Canada using her experiences to fuel her advocacy.`\
+https://www.nytimes.com/2026/11/23/world/canada/nakuset-montreal.html
+
+**Fake Personas Aligned With China Are Targeting Taiwan’s Election, Researchers Say**\
+`A tool developed by researchers at Vanderbilt University is detecting A.I.-generated social media posts that support the policies of the Chinese Communist Party.`\
+https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
+
 **Rep. Jimmy Gomez Resigns After Panel Alleges Unwanted Sexual Contact With Aide**\
 `Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
 https://www.nytimes.com/2026/11/23/us/politics/jimmy-gomez-democrat-resigns.html
