@@ -1,3 +1,19 @@
+**Do You Remember These Literary Lines?**\
+`Certain poets, playwrights and authors have shared observations about families, home and Thanksgiving in their works. Try this quiz to see if you can identify five of them. Hints are included.`\
+https://www.nytimes.com/quiz/2026/11/23/bookreview/family-thanksgiving-quiz.html
+
+**A Change at Nvidia**\
+`Plus, we look at digital doomsday preppers.`\
+https://www.nytimes.com/2026/11/23/briefing/a-change-at-nvidia.html
+
+**Book Review: ‘Objects of Desire,’ by Celia Paul**\
+`In a new memoir, “Objects of Desire,” the artist Celia Paul reckons with independence after a life built around relationships.`\
+https://www.nytimes.com/2026/11/23/books/review/objects-of-desire-celia-paul.html
+
+**This Might Just Be the Easiest Thanksgiving Dinner**\
+`Everyone, say hello to slow-cooker turkey meatballs and gravy.`\
+https://www.nytimes.com/2026/11/23/dining/this-might-just-be-the-easiest-thanksgiving-dinner.html
+
 **Don Toliver Concert in Britain Evacuated After ‘Unknown Substance’ Affects Crowd**\
 `A concert in Manchester, England, by the rapper Don Toliver was canceled mid-performance after the crowd began feeling the effects of what the local police called “an unknown substance.”`\
 https://www.nytimes.com/video/world/europe/100000011302391/don-toliver-concert-evacuation-manchester.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/23/opinion/national-popular-vote.html
 **Translating the Language of Trees**\
 `A book puts words to the sights and sounds that emanate from the giants in your backyard.`\
 https://www.nytimes.com/2026/11/23/realestate/translating-the-language-of-trees.html
-
-**China’s A.I. Freakout Is Coming. Just Wait.**\
-`There’s not much that bothers the Chinese state more than instability.`\
-https://www.nytimes.com/2026/11/23/opinion/china-ai-race-control.html
-
-**The Jewelry Brand Vever Comes Home After More Than 200 Years**\
-`Vever, founded in 1821 in Metz, France, is the subject of a new exhibition at a museum in its native city.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-vever-paris.html
-
-**Word of the Day: splotch**\
-`This word has appeared in 45 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/23/learning/word-of-the-day-splotch.html
-
-**In Jewelry, Cameos Are Making a Comeback**\
-`The storytelling qualities of these traditional pieces have attracted new fans in recent years.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-cameos-boucheron.html
 

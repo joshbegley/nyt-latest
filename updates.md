@@ -1,3 +1,19 @@
+**Do You Remember These Literary Lines?**\
+`Certain poets, playwrights and authors have shared observations about families, home and Thanksgiving in their works. Try this quiz to see if you can identify five of them. Hints are included.`\
+https://www.nytimes.com/quiz/2026/11/23/bookreview/family-thanksgiving-quiz.html
+
+**A Change at Nvidia**\
+`Plus, we look at digital doomsday preppers.`\
+https://www.nytimes.com/2026/11/23/briefing/a-change-at-nvidia.html
+
+**Book Review: ‘Objects of Desire,’ by Celia Paul**\
+`In a new memoir, “Objects of Desire,” the artist Celia Paul reckons with independence after a life built around relationships.`\
+https://www.nytimes.com/2026/11/23/books/review/objects-of-desire-celia-paul.html
+
+**This Might Just Be the Easiest Thanksgiving Dinner**\
+`Everyone, say hello to slow-cooker turkey meatballs and gravy.`\
+https://www.nytimes.com/2026/11/23/dining/this-might-just-be-the-easiest-thanksgiving-dinner.html
+
 **Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
 `Mr. Huang resigned after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. President Trump said his return was vital for the company and the American economy.`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
