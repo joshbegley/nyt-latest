@@ -54,7 +54,7 @@ https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
 `The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
 https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
 
-**The World’s Tech Capital Can’t Keep Sewage Off the Streets in a Deluge**\
+**Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
 `A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
 https://www.nytimes.com/2026/11/23/us/san-francisco-poop-water-sewer-rain.html
 

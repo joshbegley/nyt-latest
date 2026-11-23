@@ -1,3 +1,7 @@
+**Dozens Missing After Deadly Fire at Indonesia Candy Factory**\
+`At least three people died and dozens were missing after a fire at a candy factory in Banten Province, Indonesia.`\
+https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
+
 **Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
 `The Israeli prime minister, Benjamin Netanyahu calls renewing strikes a matter of national security. Military analysts and opposition leaders say he’s prioritizing his own interests.`\
 https://www.nytimes.com/2026/11/23/world/middleeast/netanyahu-israel-iran.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/style/amy-nelson-riveter-amazon-fbi-investiga
 **When It Comes to Nature vs. Nurture, How Much Do Our Genes Matter?**\
 `After centuries, the nature versus nurture debate still rages. Now the fight is over “missing heritability” — whether science can find a way to pinpoint inheritance in the human genome.`\
 https://www.nytimes.com/2026/11/23/science/missing-heritability.html
-
-**What’s Actually in Those Gas Station Drugs?**\
-`Inside gas station convenience stores and smoke shops across the country, a new generation of drugs is for sale. It can be difficult to know what’s actually inside these items, which come wrapped in candy-colored packaging and are often readily accessible to the everyday consumer. To better understand this phenomenon, The New York Times purchased and lab-tested 28 products. Matt Richtel, a reporter for Well, walks us through the findings.`\
-https://www.nytimes.com/video/well/100000011088461/gas-station-drugs-vape-weed-kratom-hallucinogens.html
 

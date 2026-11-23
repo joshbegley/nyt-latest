@@ -1,3 +1,7 @@
+**Dozens Missing After Deadly Fire at Indonesia Candy Factory**\
+`At least three people died and dozens were missing after a fire at a candy factory in Banten Province, Indonesia.`\
+https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
+
 **Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
 `The Israeli prime minister, Benjamin Netanyahu calls renewing strikes a matter of national security. Military analysts and opposition leaders say he’s prioritizing his own interests.`\
 https://www.nytimes.com/2026/11/23/world/middleeast/netanyahu-israel-iran.html
