@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jeho
 https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
 
 **In Iowa, Confusion Over Ammunition Explosion as Trump Calls for Delay**\
-`President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
+`President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided. His comments added to a confusing situation.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
 
 **The Jensen Huang Story Is Not Over**\
