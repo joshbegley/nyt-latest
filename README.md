@@ -1,3 +1,7 @@
+**Don Toliver Concert in Britain Is Evacuated Over ‘Unknown Substance’**\
+`The American rapper was performing in Manchester on Sunday when people in the crowd began experiencing effects from the substance, prompting an emergency response.`\
+https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-evacuation-uk.html
+
 **Your Nvidia Questions**\
 `Reporters answered your queries about the scandal.`\
 https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/books/review/long-wave-daisy-johnson.html
 **A French Star’s Latest Reinvention? Acting in Japanese.**\
 `Virginie Efira went from hosting reality TV to starring in art house movies. For her latest, “All of a Sudden,” she mastered a new language — and won best actress at Cannes.`\
 https://www.nytimes.com/2026/11/23/movies/virginie-efira-all-of-a-sudden.html
-
-**Amy Nelson Was a Corporate Feminist Darling. Then a Corporation Upended Her Life.**\
-`Amy Nelson was an optimistic avatar of corporate feminism. Then a corporation upended her life.`\
-https://www.nytimes.com/2026/11/23/style/amy-nelson-riveter-amazon-fbi-investigation.html
 
