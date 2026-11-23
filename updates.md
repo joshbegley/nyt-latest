@@ -1,3 +1,11 @@
+**What Does It Actually Mean to Write ‘Like a Human’?**\
+`What does it mean to write with a “human touch”? That’s what Marcus Olang’, a writer in Nairobi, Kenya, wondered after he was told a project proposal he worked on for days sounded as if it was written by ChatGPT. He explains how the massive effort to crack down on A.I. writing hides a deeper story. It’s not actually about technology, but how fluid and fraught the definition of sounding — being — human has always been.`\
+https://www.nytimes.com/video/opinion/100000011302829/what-does-it-actually-mean-to-write-like-a-human.html
+
+**Trump Administration Sanctions Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
+`The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
+https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
+
 **Audra Fordin Fixes Cars, and Eases Women’s Fears**\
 `Audra Fordin recognized an undeniable need to make automobile education more accessible, and did something about it.`\
 https://www.nytimes.com/2026/11/23/business/small-business/women-cars.html

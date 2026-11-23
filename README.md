@@ -1,3 +1,11 @@
+**The Local: Where is Uptown?**\
+`Also, how Sahan Journal is telling a deportation story.`\
+https://www.nytimes.com/2026/11/23/briefing/uptown-minneapolis.html
+
+**Meet the Woman Behind Gray’s Papaya, One of New York’s Favorite Hot Dogs**\
+`While the ownership of Gray’s Papaya, the Upper West Side mainstay, has changed, the ethos and food and drink staples remain the same.`\
+https://www.nytimes.com/2026/11/23/nyregion/grays-papaya-rachael-gray.html
+
 **What Does It Actually Mean to Write ‘Like a Human’?**\
 `What does it mean to write with a “human touch”? That’s what Marcus Olang’, a writer in Nairobi, Kenya, wondered after he was told a project proposal he worked on for days sounded as if it was written by ChatGPT. He explains how the massive effort to crack down on A.I. writing hides a deeper story. It’s not actually about technology, but how fluid and fraught the definition of sounding — being — human has always been.`\
 https://www.nytimes.com/video/opinion/100000011302829/what-does-it-actually-mean-to-write-like-a-human.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/23/books/review/objects-of-desire-celia-paul.htm
 **This Might Just Be the Easiest Thanksgiving Dinner**\
 `Everyone, say hello to slow-cooker turkey meatballs and gravy.`\
 https://www.nytimes.com/2026/11/23/dining/this-might-just-be-the-easiest-thanksgiving-dinner.html
-
-**Don Toliver Concert in Britain Evacuated After ‘Unknown Substance’ Affects Crowd**\
-`A concert in Manchester, England, by the rapper Don Toliver was canceled mid-performance after the crowd began feeling the effects of what the local police called “an unknown substance.”`\
-https://www.nytimes.com/video/world/europe/100000011302391/don-toliver-concert-evacuation-manchester.html
-
-**Feeling ‘Outage Anxiety’? Our Thanksgiving Travel Guide Can Help.**\
-`A series of outages has left travelers on edge heading into the holiday on Thursday. We’ve gathered our best advice to help ensure a smooth journey.`\
-https://www.nytimes.com/2026/11/23/travel/outage-anxiety-thanksgiving.html
 
