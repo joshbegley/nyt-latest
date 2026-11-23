@@ -1,3 +1,15 @@
+**Phumzile Mlambo-Ngcuka, South Africa’s First Female Deputy President, Has Died**\
+`A champion of women’s rights and education, she led the U.N.’s gender equality and empowerment organization after leaving political office. She died at 71.`\
+https://www.nytimes.com/2026/11/23/world/africa/phumzile-mlambo-ngcuka-dead.html
+
+**Trump Administration to Sanction Singaporean Firm at Center of Nvidia Scandal**\
+`The administration is expected to add Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision`\
+https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
+
+**House Democrat Quits After Panel Alleges Unwanted Sexual Contact With Aide**\
+`Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
+https://www.nytimes.com/2026/11/23/us/politics/jimmy-gomez-democrat-resigns.html
+
 **The Return of Jensen Huang**\
 `The Nvidia C.E.O. is back, President Trump is celebrating and markets are rallying.`\
 https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
