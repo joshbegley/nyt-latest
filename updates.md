@@ -1,3 +1,11 @@
+**S&P 500 Futures Rise After Tough Week**\
+`Early investor bets pointed to some stability when regular trading resumes on Monday, though analysts warned that more volatility could still be ahead.`\
+https://www.nytimes.com/2026/11/22/business/ai-stocks-sp500.html
+
+**Israeli Political Leaders Decry ‘Jewish Terrorism’ After West Bank Attacks**\
+`Extremist settlers carried out a spate of violent raids in Palestinian villages over the weekend, spurring opponents of the Netanyahu government to demand a forceful response.`\
+https://www.nytimes.com/2026/11/22/world/middleeast/israeli-political-leaders-decry-jewish-terrorism-after-west-bank-attacks.html
+
 **Is Mexico Stepping Up in the War on Drugs?**\
 `With several powerful drug kingpins recently taken down by Mexican forces, some experts see what may be a new chapter beginning in Mexico.`\
 https://www.nytimes.com/2026/11/22/world/americas/mexico-us-cartel-arrests.html
