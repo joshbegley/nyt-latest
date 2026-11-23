@@ -1,3 +1,7 @@
+**Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
+`The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
+https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html
+
 **Mamdani to Have Surgery for Torn Achilles’ Tendon**\
 `Mayor Zohran Mamdani was injured playing soccer last week. He said two deputy mayors would fill in temporarily during and immediately after the operation.`\
 https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
 **Thanksgiving Weather: Storm Maps and Forecast**\
 `Storms on the East and West Coast could make travel difficult this week.`\
 https://www.nytimes.com/2026/11/23/weather/thanksgiving-storm-updates-maps.html
-
-**They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.**\
-`When the military refused to let them sign up, a band of aging men found their own way to wage war against Russia.`\
-https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html
 
