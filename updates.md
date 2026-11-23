@@ -1,3 +1,7 @@
+**Measles Is a Growing Risk for Adults in the United States**\
+`The danger is greatest for those who are unvaccinated, but vaccinated people born before 1989 may no longer be sufficiently protected, medical experts said.`\
+https://www.nytimes.com/2026/11/23/health/measles-adults-vaccine-boosters.html
+
 **Live Updates: Nvidia Reinstates Jensen Huang as C.E.O.**\
 `Mr. Huang resigned less than two weeks ago after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset. Nvidia’s board said it was satisfied with his “candor.”`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated

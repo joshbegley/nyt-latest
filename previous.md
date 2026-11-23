@@ -1,3 +1,7 @@
+**Measles Is a Growing Risk for Adults in the United States**\
+`The danger is greatest for those who are unvaccinated, but vaccinated people born before 1989 may no longer be sufficiently protected, medical experts said.`\
+https://www.nytimes.com/2026/11/23/health/measles-adults-vaccine-boosters.html
+
 **Marcia Ann Gillespie, Editor in Chief of Essence and Ms., Has Died**\
 `She became editor in chief of Essence at age 26, and later ran the feminist magazine Ms. She was 82.`\
 https://www.nytimes.com/2026/11/23/business/media/marcia-ann-gillespie-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/jewelry-childlike-designs-phoebe-cutl
 **Norwegian Jewelry Has a Home at the National Museum of Oslo**\
 `The National Museum in Oslo holds a range of Norwegian designs.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-national-museum-oslo.html
-
-**Jewelry Fans Say Solange Azagury-Partridge Has Led the Way**\
-`Experts and fans of Solange Azagury-Partridge say her colorful designs have blazed an imaginative trail.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-solange-azagury-partridge-london.html
 
