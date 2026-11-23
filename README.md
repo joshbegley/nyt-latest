@@ -1,3 +1,7 @@
+**Why Trump Wanted Jensen Huang Back**\
+`In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011302909/why-trump-wanted-jensen-huang-back.html
+
 **Drone Attack Hits Colombian City as Unmanned Explosives Transform Conflict**\
 `At least three people were injured. The United Nations has reported a 445 percent increase in drone bombings in the country.`\
 https://www.nytimes.com/2026/11/23/world/americas/colombia-drone-attack-cucuta.html
@@ -30,7 +34,7 @@ https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-
 `President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
-**‘Sister’: A Late-Night Skit Magnifies a Home Care Crisis**\
+**‘Sister’: A Late-Night Sketch Magnifies a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
 https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/business/thanksgiving-grocery-prices.html
 **CVS Health’s Planned Breakup Hasn’t Quieted Antitrust Critics**\
 `Lawmakers are warning that spinning off the health care conglomerate’s drugstores will not end scrutiny over its power.`\
 https://www.nytimes.com/2026/11/23/business/cvs-pharmacy-health-federal-investigations-antitrust.html
-
-**They Loved Their Proximity to Trump. They Won’t Like What Comes Next.**\
-`Will an asset becomes a liability?`\
-https://www.nytimes.com/2026/11/23/opinion/trump-princelings-democrats-congress.html
 
