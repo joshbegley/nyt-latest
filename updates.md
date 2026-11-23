@@ -1,3 +1,7 @@
+**How Homeowners Are Powering Vietnam’s E-Bike Surge**\
+`The war in Iran has brought on a rapid switch from motorbikes to electric two-wheelers in Vietnam, creating an informal charging economy led by entrepreneurial homeowners.`\
+https://www.nytimes.com/video/world/asia/100000011212632/vietnam-electric-bike-ebikes-charging-stations.html
+
 **A Readable Feast:The Literature of Thanksgiving**\
 `How American writers have used the holiday to gauge the state of the nation, and the family.`\
 https://www.nytimes.com/interactive/2026/11/22/dining/thanksgiving-literature.html
