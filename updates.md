@@ -1,3 +1,7 @@
+**Dozens Killed in Fire at Indonesia Candy Factory**\
+`Dozens of people were killed in a fire that tore through a candy factory in Banten Province, Indonesia, the police said.`\
+https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
+
 **Miley Cyrus Marries Maxx Morando in Palm Springs**\
 `The pop star married her partner, Maxx Morando, in an event at Frank Sinatra’s Palm Springs estate.`\
 https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
