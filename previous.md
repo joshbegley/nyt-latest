@@ -1,5 +1,9 @@
-**Dozens Missing After Deadly Fire at Indonesia Candy Factory**\
-`At least three people died and dozens were missing after a fire at a candy factory in Banten Province, Indonesia.`\
+**Your Nvidia Questions**\
+`Reporters answered your queries about the scandal.`\
+https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
+
+**Dozens Missing After Fire at Indonesia Candy Factory**\
+`Dozens were still missing on Monday after a fire tore through a candy factory in Banten Province, Indonesia, over the weekend.`\
 https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
 
 **Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/movies/virginie-efira-all-of-a-sudden.html
 **Amy Nelson Was a Corporate Feminist Darling. Then a Corporation Upended Her Life.**\
 `Amy Nelson was an optimistic avatar of corporate feminism. Then a corporation upended her life.`\
 https://www.nytimes.com/2026/11/23/style/amy-nelson-riveter-amazon-fbi-investigation.html
-
-**When It Comes to Nature vs. Nurture, How Much Do Our Genes Matter?**\
-`After centuries, the nature versus nurture debate still rages. Now the fight is over “missing heritability” — whether science can find a way to pinpoint inheritance in the human genome.`\
-https://www.nytimes.com/2026/11/23/science/missing-heritability.html
 
