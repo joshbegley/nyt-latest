@@ -1,3 +1,7 @@
+**Could a City Council Bill Really Raise Amazon Prices by $5?**\
+`Amazon is fighting a City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
+https://www.nytimes.com/2026/11/23/nyregion/amazon-price-increases-nyc.html
+
 **Trump Toasted a Troubled Boxer as a V.I.P. at Crypto Gala**\
 `At his third dinner for buyers of his memecoin digital tokens, the president’s honored guests included Floyd Mayweather, who owes the I.R.S.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-floyd-mayweather-gala.html
@@ -118,8 +122,8 @@ https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jeho
 `Mayor Zohran Mamdani was injured playing soccer last week. He said two deputy mayors would fill in temporarily during and immediately after the operation.`\
 https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
 
-**In Iowa, Confusion Over Ammunition Explosion as Trump Calls for Delay**\
-`President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided. His comments added to a confusing situation.`\
+**Federal Court Clears the Way for Planned Ammunition Explosion in Iowa**\
+`The ruling capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
 
 **The Jensen Huang Story Is Not Over**\
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-
 **Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
 `The president set in motion a weekend of maneuvering, led by Vice President JD Vance, to help Jensen Huang get his old job back.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
-
-**‘Sister’: A Late-Night Sketch Spotlights a Home Care Crisis**\
-`Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
-https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 
