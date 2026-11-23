@@ -1,3 +1,11 @@
+**Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
+`As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
+https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
+
+**SpaceX Sued By Oregon and Virginia Over A.I.-Generated Sexualized Images**\
+`The states accused Elon Musk’s company of violating consumer protection laws with its Grok Imagine artificial intelligence tool, which created the images.`\
+https://www.nytimes.com/2026/11/23/technology/spacex-lawsuit-ai-sexualized-images.html
+
 **Can Jensen Huang Return to Nvidia?**\
 `The odds of the Nvidia co-founder returning as chief executive appeared to get a boost following new comments by President Trump and Treasury Secretary Scott Bessent.`\
 https://www.nytimes.com/2026/11/23/business/dealbook/jensen-huang-nvidia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/theater/100000011219226/neurodiverse-theater-neuro
 **5 New Mountain Hotels for Your Next Winter Escape**\
 `From Montana to Switzerland, here are getaways with cozy, elegant rooms, fireplaces, good food and plenty of snowy views.`\
 https://www.nytimes.com/2026/11/23/travel/5-mountain-hotels-winter.html
-
-**Goldsmith Skills Move From One Generation to the Next**\
-`Tom Scott, who has worked in the precious metal since the 1960s, welcomed two young artisans into his studio in recent years.`\
-https://www.nytimes.com/2026/11/23/fashion/goldsmith-tlondon.html
-
-**Eating for Pleasure Doesn’t Need to Stop at the Holidays**\
-`Savoring delicious food is not only enjoyable in the moment, it may even enhance long-term well-being.`\
-https://www.nytimes.com/2026/11/23/well/eat/food-pleasure-joy-benefits-holidays.html
 
