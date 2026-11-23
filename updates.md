@@ -1,3 +1,15 @@
+**As Tides Near Record Levels in California, a Storm Threatens to Make Things Worse**\
+`High tides reaching two or more feet above normal may cause flooding this week, forecasters warned.`\
+https://www.nytimes.com/2026/11/23/weather/california-king-tides-storm.html
+
+**A Vibrating Rage Runs Through ‘Elektra’ and ‘La Distance’**\
+`Daughters find themselves hating what their fathers left them in two plays now in Brooklyn. One woman burns her world down; the other one abandons it.`\
+https://www.nytimes.com/2026/11/23/theater/elektra-la-distance-bam-theater-new-audience-brooklyn.html
+
+**Over 700,000 Russian Soldiers Have Died in Ukraine, Analysis Indicates**\
+`Hacked government data underscores the immense human cost of President Vladimir V. Putin’s war of attrition.`\
+https://www.nytimes.com/2026/11/23/world/europe/russia-ukraine-war-deaths.html
+
 **‘Sister’: A Late-Night Sketch Reflects a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
 https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
