@@ -1,3 +1,11 @@
+**‘Dig’ and 11 More Shows to Watch on TV This Week**\
+`A new series from Amy Poehler and Michael Schur debuts. Networks air football, a dog show and the parade for Thanksgiving Day.`\
+https://www.nytimes.com/2026/11/23/movies/dig-what-to-watch-on-tv.html
+
+**Democrats Must Defund Trump’s War in Iran**\
+`More war simply means more death and pain for everyone, Americans included.`\
+https://www.nytimes.com/2026/11/23/opinion/defund-iran-war-democrats.html
+
 **We Tested Kratom Products, Cannabinoids and Other Gas Station Drugs to See What’s Really Inside**\
 `Inside gas station convenience stores and smoke shops, drugs are for sale — wrapped in candy-colored packaging. Some are not as advertised.`\
 https://www.nytimes.com/interactive/2026/11/23/well/gas-station-drugs-vape-weed-kratom-hallucinogens.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico
 **A Riverboat Captain Recalls a Crash on the Mississippi**\
 `Capt. Len Stewart had mere seconds to react before a 525-foot tanker crashed into the American Heritage, a riverboat in New Orleans with nearly 200 passengers on board.`\
 https://www.nytimes.com/2026/11/22/us/new-orleans-riverboat-crash-captain.html
-
-**Procter & Gamble to Increase Factory Shifts Without Humans to Cut Costs**\
-`The maker of Pampers and Bounty paper towels operates 15 sites capable of running shifts unattended, with plans to add more in 2027.`\
-https://www.nytimes.com/2026/11/22/business/procter-gamble-factory-automated.html
-
-**See How Much Democrats Gained, From Congress to State Races**\
-`Democrats have secured comfortable majorities in Congress, flipped state legislatures and broken longstanding Republican control of state governments across the United States.`\
-https://www.nytimes.com/interactive/2026/11/22/us/elections/midterm-elections-democrats-republicans-control.html
 

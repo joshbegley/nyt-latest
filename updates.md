@@ -1,3 +1,11 @@
+**‘Dig’ and 11 More Shows to Watch on TV This Week**\
+`A new series from Amy Poehler and Michael Schur debuts. Networks air football, a dog show and the parade for Thanksgiving Day.`\
+https://www.nytimes.com/2026/11/23/movies/dig-what-to-watch-on-tv.html
+
+**Democrats Must Defund Trump’s War in Iran**\
+`More war simply means more death and pain for everyone, Americans included.`\
+https://www.nytimes.com/2026/11/23/opinion/defund-iran-war-democrats.html
+
 **Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate**\
 `Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
 https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
