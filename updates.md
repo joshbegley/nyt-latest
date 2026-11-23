@@ -1,3 +1,7 @@
+**With Jensen Huang, Trump Strikes Another Blow for Billionaire Impunity**\
+`Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
+https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
+
 **Trump Pressed Nvidia to Bring Back Jensen Huang**\
 `Also, measles is a growing risk for some American adults. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/23/briefing/trump-nvidia-jensen-huang.html

@@ -1,3 +1,7 @@
+**With Jensen Huang, Trump Strikes Another Blow for Billionaire Impunity**\
+`Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
+https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
+
 **Trump Pressed Nvidia to Bring Back Jensen Huang**\
 `Also, measles is a growing risk for some American adults. Here’s the latest at the end of Monday.`\
 https://www.nytimes.com/2026/11/23/briefing/trump-nvidia-jensen-huang.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
 **Miley Cyrus Marries Maxx Morando in Palm Springs**\
 `The pop star married her partner, Maxx Morando, in an event at Frank Sinatra’s Palm Springs estate.`\
 https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
-
-**Elon Musk Faces an A.I. Dilemma at SpaceX**\
-`Mr. Musk’s SpaceX is renting out computing power from its data centers to competitors, including Anthropic. That’s making it harder for his own A.I. effort.`\
-https://www.nytimes.com/2026/11/23/business/elon-musk-ai-anthropic-google.html
 
