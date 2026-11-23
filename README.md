@@ -1,3 +1,31 @@
+**E-Bike Rides Will Be Cheaper Next Year for Citi Bike Members**\
+`A 45-minute ride will cost $3.65 for members in New York City starting in January, down from a high of more than $12 right now, Mayor Zohran Mamdani is set to announce.`\
+https://www.nytimes.com/2026/11/23/nyregion/citi-bike-price-drops-nyc.html
+
+**How Two Opera Singers (With Day Jobs) Live on $170,000 in Harlem**\
+`To sustain a life in opera, which has significant upfront costs before a performer even lands a gig, two singers depend largely on jobs outside the industry.`\
+https://www.nytimes.com/interactive/2026/11/23/nyregion/nyc-budgeting-affordability-allais.html
+
+**NYT Spelling Bee Answers for November 23, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/23/crosswords/spelling-bee-forum.html
+
+**For Immigrant Construction Workers in New York, Danger Is Part of the Job**\
+`Immigrants are key to the building industry, but the deadly collapse of a Brooklyn building was a reminder of the peril they face.`\
+https://www.nytimes.com/2026/11/23/nyregion/immigrant-construction-workers-injury-death.html
+
+**What to Know About Macy’s 100th Thanksgiving Day Parade**\
+`The lineup includes the return of a wayward hippo, Goku and Popeye. With rain and heavy winds threatened, organizers are crossing their fingers.`\
+https://www.nytimes.com/2026/11/23/nyregion/macys-thanksgiving-day-parade-what-to-know.html
+
+**Jessica Ramos Couldn’t Afford Her Campaign Manager. She Gave Him a Senate Job.**\
+`Senator Jessica Ramos has been accused of violating New York election laws by hiring a political operative last year to simultaneously run her mayoral campaign and Senate office.`\
+https://www.nytimes.com/2026/11/23/nyregion/jessica-ramos-campaign.html
+
+**How Two Opera Singers (With Day Jobs) Live on $170,000 in Harlem**\
+`To sustain a life in opera, which has significant upfront costs before a performer even lands a gig, two singers depend largely on jobs outside the industry.`\
+https://www.nytimes.com/2026/11/23/nyregion/how-two-opera-singers-with-day-jobs-live-on-170000-in-harlem.html
+
 **‘Dig’ and 11 More Shows to Watch on TV This Week**\
 `A new series from Amy Poehler and Michael Schur debuts. Networks air football, a dog show and the parade for Thanksgiving Day.`\
 https://www.nytimes.com/2026/11/23/movies/dig-what-to-watch-on-tv.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/22/crosswords/wordle-review-1983.html
 **NYT Connections Answers for November 23, 2026**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
 https://www.nytimes.com/2026/11/22/crosswords/connections-companion-1261.html
-
-**In Movies and Politics, Money Gets You Only So Far**\
-`The G.O.P. had a huge spending advantage in many midterm races. But as the film business knows, when it comes to moving people to action, money gets you only so far.`\
-https://www.nytimes.com/2026/11/22/opinion/gop-midterms-wipeout-movies.html
-
-**Want Better Kids? Put Up Your Feet.**\
-`I was afraid to let my kids fend for themselves. When my injury forced them to anyway, they surprised me, and themselves.`\
-https://www.nytimes.com/2026/11/22/opinion/better-kids-work-less-parents.html
-
-**What Does It Actually Mean to Write ‘Like a Human’?**\
-`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
-https://www.nytimes.com/2026/11/22/opinion/ai-writing-technology-human-colonialism.html
-
-**NYT Strands Hints for November 23, 2026**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 23, 2026.`\
-https://www.nytimes.com/2026/11/22/crosswords/strands-sidekick-995.html
-
-**What Does It Actually Mean to Write ‘Like a Human’?**\
-`The hunt for A.I. writing has turned many of us into detectives. A Kenyan writer asks what we’re really looking for.`\
-https://www.nytimes.com/video/opinion/100000011243547/ai-writing-technology-human-colonialism.html
-
-**Top Drug Kingpin Is Captured by Mexican Army Amid Gunfire**\
-`Fausto Isidro Meza Flores, a kingpin known as El Chapo Isidro, has been arrested, the Mexican government said. He was captured during a violent operation in a major victory for the government.`\
-https://www.nytimes.com/video/world/americas/100000011300372/chapo-isidro-mexico-cartel-arrest.html
-
-**A Riverboat Captain Recalls a Crash on the Mississippi**\
-`Capt. Len Stewart had mere seconds to react before a 525-foot tanker crashed into the American Heritage, a riverboat in New Orleans with nearly 200 passengers on board.`\
-https://www.nytimes.com/2026/11/22/us/new-orleans-riverboat-crash-captain.html
 
