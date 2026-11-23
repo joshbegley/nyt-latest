@@ -1,3 +1,7 @@
+**Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
+`The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
+https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html
+
 **In Iowa, Confusion Over Ammunition Explosion as Trump Calls for Delay**\
 `President Trump said on Monday that the Army should wait to detonate a cache of dangerous explosives until a legal challenge is decided.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
