@@ -1,3 +1,11 @@
+**Drone Attack Hits Colombian City as Unmanned Explosives Transform Conflict**\
+`At least three people were injured. The United Nations has reported a 445 percent increase in drone bombings in the country.`\
+https://www.nytimes.com/2026/11/23/world/americas/colombia-drone-attack-cucuta.html
+
+**Have You Worked With Nvidia? We Want to Hear From You.**\
+`Fill out the form below and a reporter will be in touch.`\
+https://www.nytimes.com/2026/11/23/technology/employee-callout-tips.html
+
 **Protection for Section 8 Renters Is Upheld by New York’s Highest Court**\
 `The New York State Court of Appeals dismissed a landlord’s challenge to a law prohibiting discrimination against renters who rely on federal housing vouchers.`\
 https://www.nytimes.com/2026/11/23/nyregion/section-8-renters-housing-vouchers-discrimination.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/23/business/cvs-pharmacy-health-federal-investig
 **They Loved Their Proximity to Trump. They Won’t Like What Comes Next.**\
 `Will an asset becomes a liability?`\
 https://www.nytimes.com/2026/11/23/opinion/trump-princelings-democrats-congress.html
-
-**What Came Up During Thanksgiving Dinner? We Want to Hear.**\
-`Be our eyes and ears at the grown-ups table as we try to pin down the biggest topics of conversation this Thanksgiving.`\
-https://www.nytimes.com/2026/11/23/style/thanksgiving-dinner-arguments-survey.html
-
-**Live Auction App Let Users Bid on Live Seafood Alongside Trading Cards and Rare Coins**\
-`On the live-streamed auction app Whatnot, a cross between eBay and Twitch, people stock up on Wagyu hot dogs and staples like ground beef. But that’s not all.`\
-https://www.nytimes.com/2026/11/23/dining/whatnot-food-auction-e-commerce.html
 
