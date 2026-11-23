@@ -1,3 +1,7 @@
+**‘Sister’: A Late-Night Sketch Reflects a Home Care Crisis**\
+`Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
+https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
+
 **Why Trump Wanted Jensen Huang Back**\
 `In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011302909/why-trump-wanted-jensen-huang-back.html

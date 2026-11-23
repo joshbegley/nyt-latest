@@ -1,3 +1,15 @@
+**As Tides Near Record Levels in California, a Storm Threatens to Make Things Worse**\
+`High tides reaching two or more feet above normal may cause flooding this week, forecasters warned.`\
+https://www.nytimes.com/2026/11/23/weather/california-king-tides-storm.html
+
+**A Vibrating Rage Runs Through ‘Elektra’ and ‘La Distance’**\
+`Daughters find themselves hating what their fathers left them in two plays now in Brooklyn. One woman burns her world down; the other one abandons it.`\
+https://www.nytimes.com/2026/11/23/theater/elektra-la-distance-bam-theater-new-audience-brooklyn.html
+
+**Over 700,000 Russian Soldiers Have Died in Ukraine, Analysis Indicates**\
+`Hacked government data underscores the immense human cost of President Vladimir V. Putin’s war of attrition.`\
+https://www.nytimes.com/2026/11/23/world/europe/russia-ukraine-war-deaths.html
+
 **Why Trump Wanted Jensen Huang Back**\
 `In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011302909/why-trump-wanted-jensen-huang-back.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidenti
 **When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
 `A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
 https://www.nytimes.com/2026/11/23/realestate/ranch-house-renovation-lakeville-ct.html
-
-**What Are Your Most Memorable Holiday Travel Stories?**\
-`What are your plans this holiday season? Are you looking forward to them?`\
-https://www.nytimes.com/2026/11/23/learning/what-are-your-most-memorable-holiday-travel-stories.html
-
-**Grocers Take Losses on Thanksgiving Meal Bundles to Draw Shoppers**\
-`While retailers like Walmart may profit from the deals because of their size, smaller grocer chains are feeling the squeeze.`\
-https://www.nytimes.com/2026/11/23/business/thanksgiving-grocery-prices.html
-
-**CVS Health’s Planned Breakup Hasn’t Quieted Antitrust Critics**\
-`Lawmakers are warning that spinning off the health care conglomerate’s drugstores will not end scrutiny over its power.`\
-https://www.nytimes.com/2026/11/23/business/cvs-pharmacy-health-federal-investigations-antitrust.html
 

@@ -34,7 +34,7 @@ https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-
 `President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
-**‘Sister’: A Late-Night Sketch Magnifies a Home Care Crisis**\
+**‘Sister’: A Late-Night Sketch Reflects a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
 https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 
