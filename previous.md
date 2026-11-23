@@ -1,3 +1,7 @@
+**Feeling ‘Outage Anxiety’? Our Thanksgiving Travel Guide Can Help.**\
+`A series of outages has left travelers on edge heading into the holiday on Thursday. We’ve gathered our best advice to help ensure a smooth journey.`\
+https://www.nytimes.com/2026/11/23/travel/outage-anxiety-thanksgiving.html
+
 **Measles Is a Growing Risk for Adults in the United States**\
 `The danger is greatest for those who are unvaccinated, but vaccinated people born before 1989 may no longer be sufficiently protected, medical experts said.`\
 https://www.nytimes.com/2026/11/23/health/measles-adults-vaccine-boosters.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/jewelry-cameos-boucheron.html
 **Jewelry That Might Remind You of a Summer Camp Project**\
 `Phoebe Cutler decided to make some pendants that almost looked like a child might have made.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-childlike-designs-phoebe-cutler-australia.html
-
-**Norwegian Jewelry Has a Home at the National Museum of Oslo**\
-`The National Museum in Oslo holds a range of Norwegian designs.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-national-museum-oslo.html
 
