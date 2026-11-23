@@ -1,3 +1,15 @@
+**Israeli Leaders Denounce Settler Attacks in West Bank**\
+`Extremist Israeli settlers carried out violent overnight raids on Palestinian villages in the West Bank on Sunday, which several Israeli political figures called “Jewish terrorism.”`\
+https://www.nytimes.com/video/world/middleeast/100000011302243/israel-settlers-attacks-west-bank.html
+
+**Ukraine Claims Strikes on Russian Ships Near Libya**\
+`Ukraine’s president said on Monday that Ukrainian forces were responsible for strikes on two Russian ships off the coast of Libya the previous day.`\
+https://www.nytimes.com/video/world/europe/100000011302362/ukraine-russia-libya-drone-attacks.html
+
+**Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
+`President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
+
 **Live Updates: Trump Pressed Nvidia to Reinstate Jensen Huang as C.E.O.**\
 `Mr. Huang resigned less than two weeks ago after revelations of extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated

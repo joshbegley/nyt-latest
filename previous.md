@@ -1,3 +1,11 @@
+**Israeli Leaders Denounce Settler Attacks in West Bank**\
+`Extremist Israeli settlers carried out violent overnight raids on Palestinian villages in the West Bank on Sunday, which several Israeli political figures called “Jewish terrorism.”`\
+https://www.nytimes.com/video/world/middleeast/100000011302243/israel-settlers-attacks-west-bank.html
+
+**Ukraine Claims Strikes on Russian Ships Near Libya**\
+`Ukraine’s president said on Monday that Ukrainian forces were responsible for strikes on two Russian ships off the coast of Libya the previous day.`\
+https://www.nytimes.com/video/world/europe/100000011302362/ukraine-russia-libya-drone-attacks.html
+
 **Broadway Holiday Fare: ‘It’s a Wonderful Life,’ Blue Man Group and ‘Now You See Me’**\
 `Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
 https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html
@@ -7,8 +15,8 @@ https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-n
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
 
 **Trump Is Said to Have Directed Effort to Reinstate Nvidia Chief**\
-`President Trump decided he wanted to do whatever he could to help Mr. Huang get his old job back, two people familiar with the matter said.`\
-https://www.nytimes.com/2026/11/23/technology/trump-nvidia-huang.html
+`President Trump decided he wanted to do whatever he could to help Jensen Huang get his old job back, two people familiar with the matter said.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
 **‘Sister’: A Late-Night Skit Magnifies a Home Care Crisis**\
 `Readers comment on the serious truths about health care that explain why a “Saturday Night Live” bit went viral.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/23/dining/whatnot-food-auction-e-commerce.html
 **Squeezed for Space in Court Filings, Lawyers Get Typographically Creative**\
 `Manipulating page formatting and fonts can help exceed word limits in legal filings, but can also incur a judge’s ire.`\
 https://www.nytimes.com/2026/11/23/us/federal-court-typography-rules.html
-
-**In Harlem, a New Museum Maps the Civil Rights Fight in the North**\
-`The Urban Civil Rights Museum, the first in New York dedicated to the history of the movement, aims to tell stories often overlooked in similar narratives.`\
-https://www.nytimes.com/2026/11/23/arts/design/urban-civil-rights-museum-harlem.html
-
-**Isabel Allende’s 24,000 Letters to and From Her Mother**\
-`The New York Public Library has acquired the papers of the author Isabel Allende, who is a cousin of the Chilean leader Salvador Allende. They include correspondence with her mother.`\
-https://www.nytimes.com/2026/11/23/nyregion/isabel-allende-papers-new-york-public-library.html
 
