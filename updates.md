@@ -1,3 +1,7 @@
+**Don Toliver Concert in Britain Is Evacuated Over ‘Unknown Substance’**\
+`The American rapper was performing in Manchester on Sunday when people in the crowd began experiencing effects from the substance, prompting an emergency response.`\
+https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-evacuation-uk.html
+
 **Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
 `A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
 https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.html
