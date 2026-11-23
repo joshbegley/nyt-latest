@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/23/business/electric-motorcyles-vietnam.html
 `With electric supercars from Lexus and Ferrari on the way, designers are hoping to help their cars stand out with a roar, while quieter city-bound cars try to be good neighbors.`\
 https://www.nytimes.com/2026/11/23/business/evs-electric-engine-sounds.html
 
-**China Fears A.I. Could Give the U.S. an Edge in Nuclear Rivalry**\
+**Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate**\
 `Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
 https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
 
