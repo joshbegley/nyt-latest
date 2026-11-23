@@ -1,3 +1,7 @@
+**Nvidia Reinstates Jensen Huang as Chief Executive**\
+`Mr. Huang resigned from Nvidia on Nov. 12 after revelations of multiple extramarital relationships.`\
+https://www.nytimes.com/2026/11/23/business/nvidia-jensen-huang.html
+
 **Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
 `As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
 https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/fashion/jewelry-talismans-sydney-evan.html
 **A More Neurodiverse Stage**\
 `Jesse Green, our culture correspondent, visits with a theater company for neurodiverse actors in New York City. They are staging “The Curious Incident of the Dog in the Night-Time,” whose main character appears to be on the autism spectrum.`\
 https://www.nytimes.com/video/theater/100000011219226/neurodiverse-theater-neurodivergent-curious-incident-dog-nighttime-epic.html
-
-**5 New Mountain Hotels for Your Next Winter Escape**\
-`From Montana to Switzerland, here are getaways with cozy, elegant rooms, fireplaces, good food and plenty of snowy views.`\
-https://www.nytimes.com/2026/11/23/travel/5-mountain-hotels-winter.html
 
