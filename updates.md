@@ -1,3 +1,15 @@
+**Meet NASA’s first and only female launch director**\
+`Charlie Blackwell-Thompson is the first and only woman to serve as NASA’s launch director.`\
+https://www.nytimes.com/2026/11/23/science/space/women-charlie-blackwell-thompson-nasa.html
+
+**2 City Bus Drivers Killed in Head-On Collision in Ohio**\
+`Nine people were injured in the crash, which occurred in Columbus when one of the buses veered into the next lane, the police said.`\
+https://www.nytimes.com/2026/11/23/us/columbus-ohio-bus-crash.html
+
+**Trump Administration to Sanction Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
+`The administration is expected to add Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision`\
+https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
+
 **Phumzile Mlambo-Ngcuka, South Africa’s First Female Deputy President, Has Died**\
 `A champion of women’s rights and education, she led the U.N.’s gender equality and empowerment organization after leaving political office. She died at 71.`\
 https://www.nytimes.com/2026/11/23/world/africa/phumzile-mlambo-ngcuka-dead.html
