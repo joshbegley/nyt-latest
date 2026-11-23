@@ -1,3 +1,7 @@
+**House Democrat Quits After Panel Alleges Unwanted Sexual Contact With Aide**\
+`Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
+https://www.nytimes.com/2026/11/23/us/politics/jimmy-gomez-democrat-resigns.html
+
 **The Return of Jensen Huang**\
 `The Nvidia C.E.O. is back, President Trump is celebrating and markets are rallying.`\
 https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/11/23/business/crowdstrike-zscaler-cybersecurity.ht
 **Don Toliver Concert in Manchester Is Evacuated Over ‘Unknown Substance’**\
 `The American rapper was performing in Manchester on Sunday when people in the crowd began experiencing effects from the substance, prompting an emergency response.`\
 https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-evacuation-uk.html
-
-**Your Nvidia Questions**\
-`Reporters answered your queries about the scandal.`\
-https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
-
-**Dozens Killed in Fire at Indonesia Candy Factory**\
-`Dozens of people were killed in a fire that tore through a candy factory in Banten Province, Indonesia, the police said.`\
-https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
 
