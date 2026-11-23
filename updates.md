@@ -1,3 +1,7 @@
+**U.S. Tracked Alice Huang’s Contacts With China Spy Agency During Nvidia Affair**\
+`U.S. intelligence is said to show that the woman at the heart of the A.I. chip scandal was in touch with China’s Ministry of State Security during the period when she was in a relationship with Jensen Huang.`\
+https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvidia.html
+
 **Democrats Secure Largest House Majority This Century**\
 `Democrats secured 258 seats in the House on Sunday after Chuck Hubbard was declared the winner in North Carolina over Representative Virginia Foxx, an 11-term Republican. Democrats now have the largest House majority in three decades.`\
 https://www.nytimes.com/video/us/politics/100000011272185/democrats-258-house-majority-midterms-election.html

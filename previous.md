@@ -1,3 +1,7 @@
+**U.S. Tracked Alice Huang’s Contacts With China Spy Agency During Nvidia Affair**\
+`U.S. intelligence is said to show that the woman at the heart of the A.I. chip scandal was in touch with China’s Ministry of State Security during the period when she was in a relationship with Jensen Huang.`\
+https://www.nytimes.com/2026/11/22/us/politics/alice-huang-china-spy-agency-nvidia.html
+
 **Democrats Secure Largest House Majority This Century**\
 `Democrats secured 258 seats in the House on Sunday after Chuck Hubbard was declared the winner in North Carolina over Representative Virginia Foxx, an 11-term Republican. Democrats now have the largest House majority in three decades.`\
 https://www.nytimes.com/video/us/politics/100000011272185/democrats-258-house-majority-midterms-election.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/t-magazine/butternut-squash-pkhali-georgian-r
 **Andrew Scott on the Shattering Feat of Playing Ian Charleson in ‘Elsinore’**\
 `Scott is the subject of Oscar chatter for his performance recreating the last months of Ian Charleson for the biopic “Elsinore.”`\
 https://www.nytimes.com/2026/11/22/movies/andrew-scott-elsinore-ian-charleson.html
-
-**Bespoke Children’s Wedding Fashion**\
-`As more couples become parents before marrying, fashion designers are finding a new clientele: the bride and groom’s young children.`\
-https://www.nytimes.com/2026/11/22/style/custom-children-wedding-attire.html
 
