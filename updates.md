@@ -1,3 +1,7 @@
+**Brice Marden Had Homes All Over the World. This One Feels Like ‘The Shining.’**\
+`For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
+https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
+
 **Don Toliver Concert in Manchester Is Evacuated Over ‘Unknown Substance’**\
 `The American rapper was performing in Manchester on Sunday when people in the crowd began experiencing effects from the substance, prompting an emergency response.`\
 https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-evacuation-uk.html

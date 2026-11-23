@@ -118,7 +118,7 @@ https://www.nytimes.com/2026/11/23/t-magazine/uniform-mens-fashion-style.html
 `The conflict between Colombia’s government and a leftist rebel group ended in a historic 2016 accord. But Colombia is still waiting for true peace.`\
 https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html
 
-**Brice Marden Had Homes All Over the World. This One Reminded Feels Like ‘The Shining.’**\
+**Brice Marden Had Homes All Over the World. This One Feels Like ‘The Shining.’**\
 `For the painter and his artist wife, Helen Marden, work was inextricably linked to its setting — wherever that might be.`\
 https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.html
 

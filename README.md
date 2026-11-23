@@ -1,3 +1,7 @@
+**Two Major Cybersecurity Firms to Combine in $44 Billion Deal**\
+`CrowdStrike agreed to acquire Zscaler, bulking up as worries about hacks fueled by advances in artificial intelligence bedevil companies and governments.`\
+https://www.nytimes.com/2026/11/23/business/crowdstrike-zscaler-cybersecurity.html
+
 **Don Toliver Concert in Manchester Is Evacuated Over ‘Unknown Substance’**\
 `The American rapper was performing in Manchester on Sunday when people in the crowd began experiencing effects from the substance, prompting an emergency response.`\
 https://www.nytimes.com/2026/11/23/world/europe/manchester-don-toliver-concert-evacuation-uk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/well/eat/food-pleasure-joy-benefits-holidays.
 **Book Review: ‘Long Wave,’ by Daisy Johnson**\
 `Daisy Johnson’s “Long Wave” is an atmospheric, intergenerational saga on the border between the Gothic and the mundane.`\
 https://www.nytimes.com/2026/11/23/books/review/long-wave-daisy-johnson.html
-
-**A French Star’s Latest Reinvention? Acting in Japanese.**\
-`Virginie Efira went from hosting reality TV to starring in art house movies. For her latest, “All of a Sudden,” she mastered a new language — and won best actress at Cannes.`\
-https://www.nytimes.com/2026/11/23/movies/virginie-efira-all-of-a-sudden.html
 
