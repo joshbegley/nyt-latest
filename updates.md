@@ -1,3 +1,7 @@
+**A Readable Feast:The Literature of Thanksgiving**\
+`How American writers have used the holiday to gauge the state of the nation, and the family.`\
+https://www.nytimes.com/interactive/2026/11/22/dining/thanksgiving-literature.html
+
 **Israeli Political Leaders Denounce ‘Jewish Terrorism’ After West Bank Attacks**\
 `Extremist settlers carried out a spate of violent raids in Palestinian villages over the weekend, spurring opponents of the Netanyahu government to demand a forceful response.`\
 https://www.nytimes.com/2026/11/22/world/middleeast/israeli-political-leaders-decry-jewish-terrorism-after-west-bank-attacks.html
