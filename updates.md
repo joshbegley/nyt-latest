@@ -1,3 +1,7 @@
+**What Hakeem Jeffries Thinks of Stephen Miller**\
+`On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
+https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
+
 **Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
 `The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
 https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html

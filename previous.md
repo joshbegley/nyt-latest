@@ -1,3 +1,7 @@
+**What Hakeem Jeffries Thinks of Stephen Miller**\
+`On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
+https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
+
 **Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
 `The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
 https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/crosswords/connections-companion-1262.html
 **Deadly Fire Rips Through Candy Factory in Indonesia**\
 `Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
 https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
-
-**Thanksgiving Weather: Storm Maps and Forecast**\
-`Storms on the East and West Coast could make travel difficult this week.`\
-https://www.nytimes.com/2026/11/23/weather/thanksgiving-storm-updates-maps.html
 
