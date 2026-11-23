@@ -1,3 +1,7 @@
+**Israeli Political Leaders Decry ‘Jewish Terrorism’ After West Bank Attacks**\
+`Extremist settlers carried out a spate of violent raids in Palestinian villages over the weekend, spurring opponents of the Netanyahu government to demand a forceful response.`\
+https://www.nytimes.com/2026/11/22/world/middleeast/israeli-political-leaders-decry-jewish-terrorism-after-west-bank-attacks.html
+
 **Is Mexico Stepping Up in the War on Drugs?**\
 `With several powerful drug kingpins recently taken down by Mexican forces, some experts see what may be a new chapter beginning in Mexico.`\
 https://www.nytimes.com/2026/11/22/world/americas/mexico-us-cartel-arrests.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/business/mortgage-rates-housing-landlords.htm
 **Hunter Schafer, Now in ‘Blade Runner 2099,’ Never Meant to Be an Actress**\
 `The “Euphoria” star has other dreams for her future. But first she’ll star as Cora, a human among replicants, in “Blade Runner 2099.”`\
 https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to-be-an-actress.html
-
-**Patient Marks One Year Living With Pig Kidney, a Transplant Milestone**\
-`Experts hope that genetically modified pigs could one day provide a vast supply of organs for patients in need.`\
-https://www.nytimes.com/2026/11/22/well/pig-kidney-transplant-milestone.html
 
