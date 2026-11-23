@@ -1,3 +1,27 @@
+**A First for a ‘Curious Incident’ Production: A Cast of Neurodivergent Actors**\
+`A company for neurodivergent actors steps up to a bigger stage with its full-spectrum model of inclusion.`\
+https://www.nytimes.com/2026/11/23/theater/curious-incident-epic-players-neurodiverse.html
+
+**Quote of the Day: Caught Between Killers: Ebola on One Side, Islamic State on the Other**\
+`Quotation of the Day for Sunday, November 22, 2026.`\
+https://www.nytimes.com/2026/11/23/pageoneplus/quote-of-the-day-caught-between-killers-ebola-on-one-side-islamic-state-on-the-other.html
+
+**In Vietnam, an Electric Vehicle Revolution Without Cars**\
+`An oil shock is speeding a transformation of Vietnam’s streets, challenging global motorcycle giants and lifting a new generation of domestic manufacturers.`\
+https://www.nytimes.com/2026/11/23/business/electric-motorcyles-vietnam.html
+
+**Built to Whisper, E.V.s Look to Mimic the Growl of Gas Engines**\
+`With electric supercars from Lexus and Ferrari on the way, designers are hoping to help their cars stand out with a roar, while quieter city-bound cars try to be good neighbors.`\
+https://www.nytimes.com/2026/11/23/business/evs-electric-engine-sounds.html
+
+**China Fears A.I. Could Give the U.S. an Edge in Nuclear Rivalry**\
+`Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
+https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
+
+**From the Front Page: Georgia’s President Resigns on Nov. 23, 2003**\
+`Largely peaceful protests known as the Rose Revolution ousted Eduard Shevardnadze, paving the way for a more pro-Western government in the former Soviet republic.`\
+https://www.nytimes.com/2026/11/23/learning/from-the-front-page-georgias-president-resigns-on-nov-23-2003.html
+
 **How Homeowners Are Powering Vietnam’s E-Bike Surge**\
 `The war in Iran has brought on a rapid switch from motorbikes to electric two-wheelers in Vietnam, creating an informal charging economy led by entrepreneurial homeowners.`\
 https://www.nytimes.com/video/world/asia/100000011212632/vietnam-electric-bike-ebikes-charging-stations.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/interactive/2026/11/22/us/elections/midterm-elections-de
 **Fact-Checking Stephen Miller, the New White House Chief of Staff**\
 `Mr. Miller has promoted some of the second Trump administration’s most egregious falsehoods about immigration policy, the economy and political opposition.`\
 https://www.nytimes.com/2026/11/22/us/politics/stephen-miller-fact-check.html
-
-**Is Annie Andrews Too Real for the Senate? South Carolinians Are About to Find Out.**\
-`The pediatrician, who once compared JD Vance to the herpes virus, notched one of the most shocking upsets of the midterm elections by defeating Senator Darline Graham.`\
-https://www.nytimes.com/2026/11/22/us/politics/annie-andrews-south-carolina-senate.html
-
-**The Case of the Idle Assistants**\
-`Plus: Can I lie about having kids, and do I have to use my personal phone?`\
-https://www.nytimes.com/2026/11/22/business/understaffing-work-advice.html
-
-**How a Crash Into a Cruise Ship in New Orleans Became a ‘Miracle on the Mississippi’**\
-`When a 525-foot tanker struck the docked American Heritage riverboat on Nov. 13, a rescue operation turned tragedy into triumph and led the nearly 200 aboard to safety.`\
-https://www.nytimes.com/2026/11/22/us/new-orleans-riverboat-crash-tanker-tick-tock.html
-
-**Looking for the Formula to Stop an Apocalypse**\
-`Mike Winer and his colleagues are trying to build a mathematical safeguard to keep A.I. under human control. They fear they are running out of time.`\
-https://www.nytimes.com/2026/11/22/magazine/looking-for-the-formula-to-stop-an-apocalypse.html
-
-**Republicans Debate Why They Lost the Midterms, and if Trump Is to Blame**\
-`A divide is emerging in the party over what caused its wipeout midterm defeats, foreshadowing a battle over how to move forward before 2028.`\
-https://www.nytimes.com/2026/11/22/us/politics/republican-midterm-loss-debate-trump.html
-
-**Agriculture Secretary Declares U.S. Cattle Supply Safe as Screwworm Cases Rise**\
-`Officials said that heavy rains in the Southwest had led to more screwworm cases in animals, and that mitigation efforts were working well.`\
-https://www.nytimes.com/2026/11/22/business/screwworm-cases-cattle.html
 
