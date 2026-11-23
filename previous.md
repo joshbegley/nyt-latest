@@ -1,3 +1,7 @@
+**Dozens Unaccounted for After Fire Rips Through Candy Factory in Indonesia**\
+`Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
+https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
+
 **Thanksgiving Weather: Storm Maps and Forecast**\
 `Storms on the East and West Coast could make travel difficult this week.`\
 https://www.nytimes.com/2026/11/23/weather/thanksgiving-storm-updates-maps.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/interactive/2026/11/23/nyregion/nyc-budgeting-affordabil
 **NYT Spelling Bee Answers for November 23, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/23/crosswords/spelling-bee-forum.html
-
-**For Immigrant Construction Workers in New York, Danger Is Part of the Job**\
-`Immigrants are key to the building industry, but the deadly collapse of a Brooklyn building was a reminder of the peril they face.`\
-https://www.nytimes.com/2026/11/23/nyregion/immigrant-construction-workers-injury-death.html
 
