@@ -1,3 +1,7 @@
+**Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
+`Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
+
 **As Tides Near Record Levels in California, a Storm Threatens to Make Things Worse**\
 `High tides reaching two or more feet above normal may cause flooding this week, forecasters warned.`\
 https://www.nytimes.com/2026/11/23/weather/california-king-tides-storm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.ht
 **D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
 `The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
 https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
-
-**When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
-`A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
-https://www.nytimes.com/2026/11/23/realestate/ranch-house-renovation-lakeville-ct.html
 
