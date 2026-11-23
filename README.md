@@ -1,3 +1,7 @@
+**A Readable Feast:The Literature of Thanksgiving**\
+`How American writers have used the holiday to gauge the state of the nation, and the family.`\
+https://www.nytimes.com/interactive/2026/11/22/dining/thanksgiving-literature.html
+
 **S&P 500 Futures Rise After Tough Week**\
 `Early investor bets pointed to some stability when regular trading resumes on Monday, though analysts warned that more volatility could still be ahead.`\
 https://www.nytimes.com/2026/11/22/business/ai-stocks-sp500.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/business/screwworm-cases-cattle.html
 **The Cast of ‘The Gilded Age’ Belts Out a Holiday Album**\
 `With stars of musical theater including Audra McDonald, Kelli O’Hara and Brian Stokes Mitchell populating the cast, recording a few Christmas tunes was an easy lift.`\
 https://www.nytimes.com/2026/11/22/arts/music/the-gilded-age-christmas-album.html
-
-**Rather Than Sell Their House, They Became Landlords Instead**\
-`Homeowners say the rental income helps them cover their mortgage payments, but they must also learn to handle needed repairs and confront bad tenants.`\
-https://www.nytimes.com/2026/11/22/business/mortgage-rates-housing-landlords.html
 
