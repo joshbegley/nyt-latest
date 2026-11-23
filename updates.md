@@ -1,3 +1,15 @@
+**Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
+`It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
+https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
+
+**Miley Cyrus Marries Maxx Morando in Palm Springs**\
+`The pop star married her partner, Maxx Morando, in a modest Palm Springs event.`\
+https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
+
+**Elon Musk Faces an A.I. Dilemma at SpaceX**\
+`Mr. Musk’s SpaceX is renting out computing power from its data centers to competitors, including Anthropic. That’s making it harder for his own A.I. effort.`\
+https://www.nytimes.com/2026/11/23/business/elon-musk-ai-anthropic-google.html
+
 **Do You Remember These Literary Lines?**\
 `Certain poets, playwrights and authors have shared observations about families, home and Thanksgiving in their works. Try this quiz to see if you can identify five of them. Hints are included.`\
 https://www.nytimes.com/quiz/2026/11/23/bookreview/family-thanksgiving-quiz.html

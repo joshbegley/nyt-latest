@@ -1,3 +1,15 @@
+**Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
+`It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
+https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
+
+**Miley Cyrus Marries Maxx Morando in Palm Springs**\
+`The pop star married her partner, Maxx Morando, in a modest Palm Springs event.`\
+https://www.nytimes.com/2026/11/23/style/miley-cyrus-married-maxx-morando.html
+
+**Elon Musk Faces an A.I. Dilemma at SpaceX**\
+`Mr. Musk’s SpaceX is renting out computing power from its data centers to competitors, including Anthropic. That’s making it harder for his own A.I. effort.`\
+https://www.nytimes.com/2026/11/23/business/elon-musk-ai-anthropic-google.html
+
 **Do You Remember These Literary Lines?**\
 `Certain poets, playwrights and authors have shared observations about families, home and Thanksgiving in their works. Try this quiz to see if you can identify five of them. Hints are included.`\
 https://www.nytimes.com/quiz/2026/11/23/bookreview/family-thanksgiving-quiz.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/23/t-magazine/brice-helen-marden-artist-homes.ht
 **This Is How the Democrats Win MAHA Voters**\
 `It’s time Democrats to do what Robert F. Kennedy Jr. has so far failed to: make America healthier.`\
 https://www.nytimes.com/2026/11/23/opinion/republicans-maha-democrats-health.html
-
-**How to Wear a Belt If I Don’t Have a Waist**\
-`A reader has noticed belts are trending but isn’t sure if they are for her.`\
-https://www.nytimes.com/2026/11/23/style/belts-trends-how-to-wear.html
-
-**The National Popular Vote and the End of the Electoral College as We Know It**\
-`A presidential election in which the winner is decided by who gets the most votes is almost a reality.`\
-https://www.nytimes.com/2026/11/23/opinion/national-popular-vote.html
-
-**Translating the Language of Trees**\
-`A book puts words to the sights and sounds that emanate from the giants in your backyard.`\
-https://www.nytimes.com/2026/11/23/realestate/translating-the-language-of-trees.html
 
