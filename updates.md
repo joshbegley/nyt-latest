@@ -1,3 +1,11 @@
+**Two City Bus Drivers Killed in Head-On Collision in Columbus**\
+`A head-on collision between two city buses in Columbus, Ohio, killed both drivers and left nine people injured, according to officials. The police said it was unclear what caused one bus to veer across a double-yellow lane.`\
+https://www.nytimes.com/video/us/100000011303808/ohio-bus-collision-drivers-deaths.html
+
+**Retired Detective Scrubbed Car After Road-Rage Shooting, Prosecutors Say**\
+`Victor Romero was charged with second-degree murder and held without bail in the killing of Koran Irvine on the George Washington Bridge last month.`\
+https://www.nytimes.com/2026/11/23/nyregion/victor-romero-road-rage-shooting-evidence.html
+
 **Student News Quiz: Political Summit, Space Milestone, Word of the Year**\
 `Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
 https://www.nytimes.com/quiz/2026/11/23/learning/23studentnewsquiz-ln.html
