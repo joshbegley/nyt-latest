@@ -1,3 +1,7 @@
+**Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate**\
+`Chinese military researchers are studying how to harness A.I., but they worry the technology makes their country’s nuclear forces more vulnerable to attack.`\
+https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html
+
 **We Tested Kratom Products, Cannabinoids and Other Gas Station Drugs to See What’s Really Inside**\
 `Inside gas station convenience stores and smoke shops, drugs are for sale — wrapped in candy-colored packaging. Some are not as advertised.`\
 https://www.nytimes.com/interactive/2026/11/23/well/gas-station-drugs-vape-weed-kratom-hallucinogens.html
