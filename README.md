@@ -1,3 +1,7 @@
+**S&P 500 Futures Rise After Tough Week**\
+`Early investor bets pointed to some stability when regular trading resumes on Monday, though analysts warned that more volatility could still be ahead.`\
+https://www.nytimes.com/2026/11/22/business/ai-stocks-sp500.html
+
 **Israeli Political Leaders Decry ‘Jewish Terrorism’ After West Bank Attacks**\
 `Extremist settlers carried out a spate of violent raids in Palestinian villages over the weekend, spurring opponents of the Netanyahu government to demand a forceful response.`\
 https://www.nytimes.com/2026/11/22/world/middleeast/israeli-political-leaders-decry-jewish-terrorism-after-west-bank-attacks.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/22/arts/music/the-gilded-age-christmas-album.htm
 **Rather Than Sell Their House, They Became Landlords Instead**\
 `Homeowners say the rental income helps them cover their mortgage payments, but they must also learn to handle needed repairs and confront bad tenants.`\
 https://www.nytimes.com/2026/11/22/business/mortgage-rates-housing-landlords.html
-
-**Hunter Schafer, Now in ‘Blade Runner 2099,’ Never Meant to Be an Actress**\
-`The “Euphoria” star has other dreams for her future. But first she’ll star as Cora, a human among replicants, in “Blade Runner 2099.”`\
-https://www.nytimes.com/2026/11/22/arts/television/hunter-schafer-never-meant-to-be-an-actress.html
 
