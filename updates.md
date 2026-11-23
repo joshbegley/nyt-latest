@@ -1,3 +1,7 @@
+**Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
+`A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
+https://www.nytimes.com/2026/11/23/us/san-francisco-poop-water-sewer-rain.html
+
 **Dozens Missing After Deadly Fire at Indonesia Candy Factory**\
 `At least three people died and dozens were missing after a fire at a candy factory in Banten Province, Indonesia.`\
 https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
