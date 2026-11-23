@@ -1,3 +1,7 @@
+**Broadway Holiday Fare: ‘It’s a Wonderful Life,’ Blue Man Group and ‘Now You See Me’**\
+`Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
+https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html
+
 **Exiled From Kennedy Center, but Sticking to Its National Identity**\
 `Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
@@ -14,7 +18,7 @@ https://www.nytimes.com/2026/11/23/opinion/sister-snl-home-care.html
 `The rise, fall and return of founders of Silicon Valley tech companies is a well-worn tale.`\
 https://www.nytimes.com/2026/11/23/technology/jensen-huang-nvidia-ceo-return-silicon-valley.html
 
-**Trump’s Own Stock Portfolio Benefits From Nvidia’s Rise**\
+**Trump’s Own Stock Portfolio Likely Benefits From Nvidia’s Rise**\
 `It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
 https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/arts/design/urban-civil-rights-museum-harlem.
 **Isabel Allende’s 24,000 Letters to and From Her Mother**\
 `The New York Public Library has acquired the papers of the author Isabel Allende, who is a cousin of the Chilean leader Salvador Allende. They include correspondence with her mother.`\
 https://www.nytimes.com/2026/11/23/nyregion/isabel-allende-papers-new-york-public-library.html
-
-**How to Prepare for Population Decline and an Emptier World**\
-`We can adapt to an emptier world, but it will mean making hard choices.`\
-https://www.nytimes.com/2026/11/23/opinion/population-decline-how-to-prepare.html
 
