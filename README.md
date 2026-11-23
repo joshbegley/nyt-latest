@@ -1,8 +1,8 @@
 **Could a City Council Bill Really Raise Amazon Prices by $5?**\
-`Amazon is fighting a City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
+`Amazon is fighting a New York City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
 https://www.nytimes.com/2026/11/23/nyregion/amazon-price-increases-nyc.html
 
-**Trump Toasted a Troubled Boxer as a V.I.P. at Crypto Gala**\
+**Trump Toasted Floyd Mayweather, Who Owes the IRS, at Crypto Gala**\
 `At his third dinner for buyers of his memecoin digital tokens, the president’s honored guests included Floyd Mayweather, who owes the I.R.S.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-floyd-mayweather-gala.html
 

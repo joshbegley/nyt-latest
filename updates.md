@@ -1,3 +1,15 @@
+**Could a City Council Bill Really Raise Amazon Prices by $5?**\
+`Amazon is fighting a City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
+https://www.nytimes.com/2026/11/23/nyregion/amazon-price-increases-nyc.html
+
+**Federal Court Clears the Way for Planned Ammunition Explosion in Iowa**\
+`The ruling capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
+**Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
+`The president set in motion a weekend of maneuvering, led by Vice President JD Vance, to help Jensen Huang get his old job back.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
+
 **Trump Toasted a Troubled Boxer as a V.I.P. at Crypto Gala**\
 `At his third dinner for buyers of his memecoin digital tokens, the president’s honored guests included Floyd Mayweather, who owes the I.R.S.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-floyd-mayweather-gala.html
