@@ -34,8 +34,8 @@ https://www.nytimes.com/2026/11/23/us/columbus-ohio-bus-crash.html
 `A champion of women’s rights and education, she led the U.N.’s gender equality and empowerment organization after leaving political office. She died at 71.`\
 https://www.nytimes.com/2026/11/23/world/africa/phumzile-mlambo-ngcuka-dead.html
 
-**Trump Administration to Sanction Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
-`The administration is expected to add Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision`\
+**Trump Administration Sanctions Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
+`The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
 https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
 
 **Rep. Jimmy Gomez Resigns After Panel Alleges Unwanted Sexual Contact With Aide**\
