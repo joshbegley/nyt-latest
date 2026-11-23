@@ -50,7 +50,7 @@ https://www.nytimes.com/2026/11/23/crosswords/strands-sidekick-996.html
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 24, 2026.`\
 https://www.nytimes.com/2026/11/23/crosswords/connections-companion-1262.html
 
-**Dozens Unaccounted for After Fire Rips Through Candy Factory in Indonesia**\
+**Deadly Fire Rips Through Candy Factory in Indonesia**\
 `Hundreds of people were at the compound when a blaze broke out on Saturday and then raged for hours.`\
 https://www.nytimes.com/2026/11/23/world/asia/indonesia-factory-fire.html
 
