@@ -1,3 +1,11 @@
+**Broadway Holiday Fare: ‘It’s a Wonderful Life,’ Blue Man Group and ‘Now You See Me’**\
+`Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
+https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html
+
+**Trump’s Own Stock Portfolio Likely Benefits From Nvidia’s Rise**\
+`It’s not possible to determine the size of the president’s stake in the chip maker because there is a lag between when trades occur and when they are disclosed.`\
+https://www.nytimes.com/2026/11/23/technology/trump-nvidia-stock-purchases.html
+
 **Exiled From Kennedy Center, but Sticking to Its National Identity**\
 `Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
 https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
