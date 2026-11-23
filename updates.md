@@ -1,3 +1,7 @@
+**Rep. Jimmy Gomez Resigns After Panel Alleges Unwanted Sexual Contact With Aide**\
+`Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
+https://www.nytimes.com/2026/11/23/us/politics/jimmy-gomez-democrat-resigns.html
+
 **Meet NASA’s first and only female launch director**\
 `Charlie Blackwell-Thompson is the first and only woman to serve as NASA’s launch director.`\
 https://www.nytimes.com/2026/11/23/science/space/women-charlie-blackwell-thompson-nasa.html

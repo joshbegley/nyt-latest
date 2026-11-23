@@ -1,3 +1,7 @@
+**The Woman Who Took Canada to Court Over Genocide**\
+`Na’kuset is a longtime champion for Indigenous communities across Canada using her experiences to fuel her advocacy.`\
+https://www.nytimes.com/2026/11/23/world/canada/nakuset-montreal.html
+
 **Meet NASA’s first and only female launch director**\
 `Charlie Blackwell-Thompson is the first and only woman to serve as NASA’s launch director.`\
 https://www.nytimes.com/2026/11/23/science/space/women-charlie-blackwell-thompson-nasa.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/climate/cop31-collapse-what-next.html
 **Live Updates: Huang’s Return to Nvidia Sparks Stock Rally and Lawmaker Skepticism**\
 `Mr. Huang resigned from the powerhouse chipmaker less than two weeks ago after revelations of his extramarital relationships, including one with a woman U.S. intelligence believes to be a Chinese asset.`\
 https://www.nytimes.com/live/2026/11/23/technology/nvidia-jensen-huang-reinstated
-
-**Paolo Bulgari, Heir of Italian Jewelry Dynasty, Dies at 89**\
-`As the chairman of his family’s company, Mr. Bulgari embraced maximalist aesthetics that recalled ancient Rome. After the 2008 financial crisis, he steered the sale of the business to LVMH.`\
-https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
 
