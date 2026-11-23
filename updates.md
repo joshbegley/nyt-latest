@@ -1,3 +1,11 @@
+**Trump Administration Imposes Sanctions on Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
+`The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
+https://www.nytimes.com/2026/11/23/business/trump-administration-megaspeed-trade-blacklist-nvidia.html
+
+**Jensen Huang’s Return Shows the Lengths Trump Will Go to Keep A.I. Booming**\
+`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
+https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
+
 **Two City Bus Drivers Killed in Head-On Collision in Columbus**\
 `A head-on collision between two city buses in Columbus, Ohio, killed both drivers and left nine people injured, according to officials. The police said it was unclear what caused one bus to veer across a double-yellow lane.`\
 https://www.nytimes.com/video/us/100000011303808/ohio-bus-collision-drivers-deaths.html

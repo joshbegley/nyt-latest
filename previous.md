@@ -56,7 +56,7 @@ https://www.nytimes.com/2026/11/23/world/africa/phumzile-mlambo-ngcuka-dead.html
 
 **Trump Administration Imposes Sanctions on Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
 `The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
-https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
+https://www.nytimes.com/2026/11/23/business/trump-administration-megaspeed-trade-blacklist-nvidia.html
 
 **Rep. Jimmy Gomez Resigns After Panel Alleges Unwanted Sexual Contact With Aide**\
 `Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html
 https://www.nytimes.com/video/opinion/100000011297614/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
 
 **Jensen Huang’s Return Shows the Lengths Trump Will Go to Keep A.I. Booming**\
-`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market.`\
+`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
 https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
 
 **Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
