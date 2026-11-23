@@ -1,3 +1,11 @@
+**The Return of Jensen Huang**\
+`The Nvidia C.E.O. is back, President Trump is celebrating and markets are rallying.`\
+https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
+
+**Nvidia Reinstates Jensen Huang Following Affair Revelations**\
+`The Nvidia board of directors voted unanimously to reinstate Jensen Huang as the company’s leader less than two weeks after he resigned following reports of extramarital relationships, including one with a woman U.S. intelligence identified as a Chinese asset.`\
+https://www.nytimes.com/video/business/100000011302581/nvidia-jensen-huang-us-trump-business.html
+
 **Turning the Lens Around: Bob Woodward Takes On Bob Woodward**\
 `In a new memoir, the most celebrated journalist of his era finally tells his own story. It was “liberating,” he said in an interview. “Nothing is hidden here.”`\
 https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html

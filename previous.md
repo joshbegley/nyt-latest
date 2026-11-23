@@ -1,3 +1,11 @@
+**The Return of Jensen Huang**\
+`The Nvidia C.E.O. is back, President Trump is celebrating and markets are rallying.`\
+https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
+
+**Nvidia Reinstates Jensen Huang Following Affair Revelations**\
+`The Nvidia board of directors voted unanimously to reinstate Jensen Huang as the company’s leader less than two weeks after he resigned following reports of extramarital relationships, including one with a woman U.S. intelligence identified as a Chinese asset.`\
+https://www.nytimes.com/video/business/100000011302581/nvidia-jensen-huang-us-trump-business.html
+
 **Turning the Lens Around: Bob Woodward Takes On Bob Woodward**\
 `In a new memoir, the most celebrated journalist of his era finally tells his own story. It was “liberating,” he said in an interview. “Nothing is hidden here.”`\
 https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html
@@ -185,16 +193,4 @@ https://www.nytimes.com/2026/11/23/briefing/nvidia-jensen-huang.html
 **Dozens Killed in Fire at Indonesia Candy Factory**\
 `Dozens of people were killed in a fire that tore through a candy factory in Banten Province, Indonesia, the police said.`\
 https://www.nytimes.com/video/world/asia/100000011301934/indonesia-candy-factory-fire.html
-
-**Netanyahu Wants to Attack Iran. Does That Serve Israel or Him?**\
-`The Israeli prime minister, Benjamin Netanyahu, calls renewing strikes a matter of national security. Military analysts and opposition leaders say he’s prioritizing his own interests.`\
-https://www.nytimes.com/2026/11/23/world/middleeast/netanyahu-israel-iran.html
-
-**Why U.N. Climate Talks Collapsed, and How China’s Spies Set Sights on A.I. Chips**\
-`Plus, remembering the Pope of Peppers.`\
-https://www.nytimes.com/2026/11/23/podcasts/the-headlines/un-climate-talks-china-spies-ai-chips.html
-
-**Measles Is Officially Back. What Now?**\
-`The United States was once seen as a global leader for reining in the highly contagious virus. Large outbreaks could now become routine.`\
-https://www.nytimes.com/2026/11/23/podcasts/the-daily/measles-elimination-vaccines.html
 
