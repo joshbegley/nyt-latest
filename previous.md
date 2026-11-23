@@ -1,3 +1,7 @@
+**The Jensen Huang Story Is Not Over**\
+`In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011303262/the-jensen-huang-story-is-not-over.html
+
 **A.I.-Powered Fake Personas Target Taiwan’s Elections**\
 `A new tool developed by researchers at Vanderbilt is detecting A.I.-generated posts linked to social media accounts aligned with China.`\
 https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
@@ -131,7 +135,7 @@ https://www.nytimes.com/2026/11/23/style/paolo-bulgari-dead.html
 https://www.nytimes.com/2026/11/23/technology/spacex-lawsuit-ai-sexualized-images.html
 
 **Can Jensen Huang Return to Nvidia?**\
-`The odds of the Nvidia co-founder returning as chief executive appeared to get a boost following new comments by President Trump and Treasury Secretary Scott Bessent.`\
+`Jensen Huang did just that. Nvidia’s co-founder has been reinstated as chief executive, a move that has stunned Wall Street and Washington.`\
 https://www.nytimes.com/2026/11/23/business/dealbook/jensen-huang-nvidia.html
 
 **Two Major Cybersecurity Firms to Combine in $44 Billion Deal**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/opinion/apples-autumn-favorite-fruit.html
 **Virginia School District Shaken by Sex Abuse Claims Closes for a Week**\
 `The district failed to conduct required background checks on more than 500 employees. The problem came to light after two staff members were arrested in separate child sex abuse and pornography charges.`\
 https://www.nytimes.com/2026/11/23/us/albemarle-virginia-school-district-sex-abuse-closure.html
-
-**How We See Ourselves in a Word of the Year**\
-`The Word of the Year selections are tarot pulls for the future. What’s different about the picks for 2026?`\
-https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
 

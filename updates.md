@@ -1,3 +1,11 @@
+**The Jensen Huang Story Is Not Over**\
+`In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011303262/the-jensen-huang-story-is-not-over.html
+
+**Can Jensen Huang Return to Nvidia?**\
+`Jensen Huang did just that. Nvidia’s co-founder has been reinstated as chief executive, a move that has stunned Wall Street and Washington.`\
+https://www.nytimes.com/2026/11/23/business/dealbook/jensen-huang-nvidia.html
+
 **A.I.-Powered Fake Personas Target Taiwan’s Elections**\
 `A new tool developed by researchers at Vanderbilt is detecting A.I.-generated posts linked to social media accounts aligned with China.`\
 https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
