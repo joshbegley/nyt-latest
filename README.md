@@ -60,7 +60,7 @@ https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidenti
 
 **Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
 `A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
-https://www.nytimes.com/2026/11/23/us/san-francisco-poop-water-sewer-rain.html
+https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.html
 
 **When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
 `A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
