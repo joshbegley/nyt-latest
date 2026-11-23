@@ -1,3 +1,7 @@
+**Student News Quiz: Political Summit, Space Milestone, Word of the Year**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/11/23/learning/23studentnewsquiz-ln.html
+
 **The Local: Where is Uptown?**\
 `Also, how Sahan Journal is telling a deportation story.`\
 https://www.nytimes.com/2026/11/23/briefing/uptown-minneapolis.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/briefing/a-change-at-nvidia.html
 **Book Review: ‘Objects of Desire,’ by Celia Paul**\
 `In a new memoir, “Objects of Desire,” the artist Celia Paul reckons with independence after a life built around relationships.`\
 https://www.nytimes.com/2026/11/23/books/review/objects-of-desire-celia-paul.html
-
-**This Might Just Be the Easiest Thanksgiving Dinner**\
-`Everyone, say hello to slow-cooker turkey meatballs and gravy.`\
-https://www.nytimes.com/2026/11/23/dining/this-might-just-be-the-easiest-thanksgiving-dinner.html
 

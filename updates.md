@@ -1,3 +1,7 @@
+**Student News Quiz: Political Summit, Space Milestone, Word of the Year**\
+`Have you been paying attention to current events recently? See how well you do on this week’s news quiz for students.`\
+https://www.nytimes.com/quiz/2026/11/23/learning/23studentnewsquiz-ln.html
+
 **Trump Administration Imposes Sanctions on Megaspeed, Singaporean Firm at Center of Nvidia Scandal**\
 `The administration added Megaspeed to the entity list, a trade blacklist, after weeks of sparring among top officials on the decision.`\
 https://www.nytimes.com/2026/11/23/technology/trump-administration-megaspeed-trade-blacklist-nvidia.html
