@@ -1,3 +1,7 @@
+**Don Toliver Concert in Britain Evacuated After ‘Unknown Substance’ Affects Crowd**\
+`A concert in Manchester, England, by the rapper Don Toliver was canceled mid-performance after the crowd began feeling the effects of what the local police called “an unknown substance.”`\
+https://www.nytimes.com/video/world/europe/100000011302391/don-toliver-concert-evacuation-manchester.html
+
 **Feeling ‘Outage Anxiety’? Our Thanksgiving Travel Guide Can Help.**\
 `A series of outages has left travelers on edge heading into the holiday on Thursday. We’ve gathered our best advice to help ensure a smooth journey.`\
 https://www.nytimes.com/2026/11/23/travel/outage-anxiety-thanksgiving.html

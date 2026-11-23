@@ -1,3 +1,7 @@
+**Don Toliver Concert in Britain Evacuated After ‘Unknown Substance’ Affects Crowd**\
+`A concert in Manchester, England, by the rapper Don Toliver was canceled mid-performance after the crowd began feeling the effects of what the local police called “an unknown substance.”`\
+https://www.nytimes.com/video/world/europe/100000011302391/don-toliver-concert-evacuation-manchester.html
+
 **Feeling ‘Outage Anxiety’? Our Thanksgiving Travel Guide Can Help.**\
 `A series of outages has left travelers on edge heading into the holiday on Thursday. We’ve gathered our best advice to help ensure a smooth journey.`\
 https://www.nytimes.com/2026/11/23/travel/outage-anxiety-thanksgiving.html
@@ -98,13 +102,13 @@ https://www.nytimes.com/2026/11/23/us/albemarle-virginia-school-district-sex-abu
 `The Word of the Year selections are tarot pulls for the future. What’s different about the picks for 2026?`\
 https://www.nytimes.com/2026/11/23/crosswords/word-of-the-year-reflection.html
 
-**D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
-`The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
-https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
-
 **Rain Storms Overwhelm San Francisco’s Sewers, Sending Wastewater Into the Streets**\
 `A downpour once again sent wastewater into San Francisco streets. It could become a frequent occurrence in this El Niño year.`\
 https://www.nytimes.com/2026/11/23/us/san-francisco-flooding-water-sewer-rain.html
+
+**D.N.C. Plans 12 Debates for the 2028 Presidential Primary, Starting in June**\
+`The national party also revealed some initial criteria for participating, including a pledge to denounce spending from supportive groups that do not disclose their donors.`\
+https://www.nytimes.com/2026/11/23/us/politics/democrats-debates-2028-presidential-race.html
 
 **When ‘Room for Improvement’ Really Means ‘Take It Down to the Studs’**\
 `A Connecticut couple bought a 1969 ranch-style house and planned a piecemeal renovation. Then they got serious.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/23/learning/word-of-the-day-splotch.html
 **In Jewelry, Cameos Are Making a Comeback**\
 `The storytelling qualities of these traditional pieces have attracted new fans in recent years.`\
 https://www.nytimes.com/2026/11/23/fashion/jewelry-cameos-boucheron.html
-
-**Jewelry That Might Remind You of a Summer Camp Project**\
-`Phoebe Cutler decided to make some pendants that almost looked like a child might have made.`\
-https://www.nytimes.com/2026/11/23/fashion/jewelry-childlike-designs-phoebe-cutler-australia.html
 
