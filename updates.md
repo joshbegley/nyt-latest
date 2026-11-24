@@ -1,3 +1,11 @@
+**Crowds Gather to Try to Push City Landmarks**\
+`From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
+https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
+
+**Trump Ballroom and Other Projects Got $300 Million Donation Boost**\
+`The Trump administration declined to say who donated those funds to an account funding presidential projects like the White House ballroom and the triumphal arch.`\
+https://www.nytimes.com/2026/11/24/us/politics/account-park-service-trump-ballroom-donation.html
+
 **A Cooking Show Wunderkind Grows Up and Slings Ramen**\
 `Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
 https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html

@@ -1,3 +1,11 @@
+**Crowds Gather to Try to Push City Landmarks**\
+`From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
+https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
+
+**Trump Ballroom and Other Projects Got $300 Million Donation Boost**\
+`The Trump administration declined to say who donated those funds to an account funding presidential projects like the White House ballroom and the triumphal arch.`\
+https://www.nytimes.com/2026/11/24/us/politics/account-park-service-trump-ballroom-donation.html
+
 **A Cooking Show Wunderkind Grows Up and Slings Ramen**\
 `Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
 https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/opinion/ezra-klein-podcast-nicole-perlroth.ht
 **Phone Reservations Are Back at Restaurants. Humans May Not Be Included.**\
 `Against all odds, restaurants still get phone calls. A number of new services — some running on A.I. and some staffed by people — are vying for the chance to answer.`\
 https://www.nytimes.com/2026/11/24/dining/restaurant-reservations-phone-calls.html
-
-**More (and More) Black Friday Travel Deals**\
-`The bargains are plentiful this year, and they include deep discounts on resorts, cruises, safaris and more.`\
-https://www.nytimes.com/2026/11/24/travel/black-friday-deals.html
-
-**There’s a Good Reason Some Environmentalists Hate This Bill**\
-`Congress shouldn’t let Trump use weakened environmental laws to put his favored projects on public lands.`\
-https://www.nytimes.com/2026/11/24/opinion/permitting-reform-environmental-laws.html
 
