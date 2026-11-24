@@ -26,7 +26,7 @@ https://www.nytimes.com/interactive/2026/11/23/magazine/catholic-converts-gen-z.
 `Researchers found that more than 2.2 million women were using a fertility-awareness method, which requires them to chart their cycles closely.`\
 https://www.nytimes.com/2026/11/23/us/natural-family-planning-study.html
 
-**With Jensen Huang, Trump Strikes Another Blow for Billionaire Impunity**\
+**When You’re a Star They Let You Compromise National Security**\
 `Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
 https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
 

@@ -1,3 +1,15 @@
+**Judges Open Door for Trump to Move Hush-Money Appeal to Federal Court**\
+`A three-judge panel ruled that a lower court had erred in denying President Trump’s request to move his case out of state court, where he was convicted on 34 felony counts.`\
+https://www.nytimes.com/2026/11/23/nyregion/trump-conviction-appeal-federal-court.html
+
+**They Heard. They Saw. They Reviewed.**\
+`For 175 years, The Times has had a front-row seat to culture in the making. Today’s critics revisit what their predecessors witnessed.`\
+https://www.nytimes.com/interactive/2026/11/23/arts/nyt-critics-175-anniversary.html
+
+**Writers Frustrated Over PEN America’s Israel Stance Form Alternate Group**\
+`The century-old free speech organization stirred controversy with an article in July describing what it called the “rising isolation and exclusion” of Jewish and Israeli writers.`\
+https://www.nytimes.com/2026/11/23/arts/writers-frustrated-over-pen-americas-israel-stance-form-alternate-group.html
+
 **Could a City Council Bill Really Raise Amazon Prices by $5?**\
 `Amazon is fighting a New York City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
 https://www.nytimes.com/2026/11/23/nyregion/amazon-price-increases-nyc.html
