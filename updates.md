@@ -1,3 +1,7 @@
+**Luxury Water Is Luring Drinkers Who Have Lost Their Thirst for Alcohol**\
+`A host of newcomers are pushing into the high-end water space, which has long been occupied by brands like Fiji, Evian and Voss.`\
+https://www.nytimes.com/2026/11/24/business/luxury-water-fiji-evian-voss.html
+
 **Pressure Builds at American Airlines as It Lags Delta and United**\
 `American flies more travelers than any other U.S. carrier, but debt, fuel costs and mistakes have left it losing money while other big airlines report billions in profits.`\
 https://www.nytimes.com/2026/11/24/business/american-airlines-delta-united.html

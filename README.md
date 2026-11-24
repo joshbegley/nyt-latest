@@ -1,3 +1,19 @@
+**Notable Books**\
+`Plus, we look at a stockpile of explosives in Iowa.`\
+https://www.nytimes.com/2026/11/24/briefing/notable-books.html
+
+**So You Want to Impeach the President**\
+`What should House Democrats focus on? There is so much to choose from.`\
+https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
+
+**These Extra-Crispy Brussels Sprouts Are Indeed Very, Very Crispy**\
+`No deep-fryer needed: just a sheet pan, a very hot oven and this Ali Slagle recipe that has already racked up five stars.`\
+https://www.nytimes.com/2026/11/24/dining/these-extra-crispy-brussels-sprouts-are-indeed-very-very-crispy.html
+
+**Trump’s Nvidia Push Shows Companies’ Importance in Global Economic War**\
+`Presidents before him have bailed out companies in times of national crisis. Mr. Trump went further: He staked the fortunes of the United States on those of a favored chief executive.`\
+https://www.nytimes.com/2026/11/24/business/economy/trump-nvidia-national-security-us-economics.html
+
 **Luxury Water Is Luring Drinkers Who Have Lost Their Thirst for Alcohol**\
 `A host of newcomers are pushing into the high-end water space, which has long been occupied by brands like Fiji, Evian and Voss.`\
 https://www.nytimes.com/2026/11/24/business/luxury-water-fiji-evian-voss.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/24/opinion/disability-politics-trump-sharpie-lin
 **Meet Mirumi, the Furry, Robotic Bag Charm Flying Off Shelves**\
 `The Mirumi, which can grab onto your bag and turn its head, is riding the growing popularity of bag charms.`\
 https://www.nytimes.com/2026/11/24/style/mirumi-robot-bag-charm.html
-
-**The 75-Year Secret Behind the Success of ‘The Mousetrap’**\
-`Agatha Christie’s West End thriller is entering its platinum jubilee year with a slick new staging. But this cozy London landmark is built on a surprisingly grim foundation.`\
-https://www.nytimes.com/2026/11/24/theater/the-mousetrap-75th-anniversary.html
-
-**Harry and Meghan’s Life as ‘Nonroyal Royals’ in the UK**\
-`Six years after leaving the country, the Sussexes are back and arranging a careful program of public appearances. Will they complement the royal family, or compete with it?`\
-https://www.nytimes.com/2026/11/24/world/europe/harry-meghan-royal-family-uk.html
-
-**Why So Many of Us Have Chronic Back Pain, and Why It Won’t Go Away**\
-`More than half a billion people globally suffer from some form of back pain. And the numbers are only growing, with no reliable solution in sight.`\
-https://www.nytimes.com/2026/11/24/magazine/back-pain-chronic-treatment.html
-
-**Ancient Egyptian Cats Lived Squalid Lives Before Mummification**\
-`Cats destined to be offerings paid a high price to receive glory in the afterlife, markings on their skulls revealed.`\
-https://www.nytimes.com/2026/11/24/science/ancient-egyptian-cats-mummies.html
 
