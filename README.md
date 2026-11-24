@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigatio
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
 
 **Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
-`Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
+`Shares have veered wildly for days, pushed and pulled by the drama at Nvidia and the rise and fall of Anthropic’s stock after its blockbuster public offering.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
 
 **For China, Jensen Huang’s Return to Nvidia Is a Mixed Blessing**\
