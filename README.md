@@ -1,3 +1,7 @@
+**Iraq’s Prime Minister Aims to Wrest More Power from Kurdistan Region**\
+`Ali al-Zaidi, who just scored a symbolic victory against a powerful Iran-backed militia, has now moved to assert control over Kurdish border crossings and oil resources.`\
+https://www.nytimes.com/2026/11/24/world/middleeast/iraq-prime-minister-kurdistan-control.html
+
 **U.S. Spy Agencies Suffer Breach of Some Unclassified Information**\
 `The intrusion affecting the C.I.A. and the Office of the Director of National Intelligence comes amid heightened concerns about cybersecurity.`\
 https://www.nytimes.com/2026/11/24/us/politics/spy-agencies-computer-network-breaches.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court
 **California King Tides Threaten ‘Extreme’ Coastal Flooding**\
 `A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
 https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
-
-**What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
-`Pablo and chef Dave Chang investigate.`\
-https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
 
