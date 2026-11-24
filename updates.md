@@ -1,3 +1,11 @@
+**Army Addresses Concerns Over Detonating Dangerous Explosives in Iowa**\
+`On Wednesday, the Army plans to detonate a cache of dangerous explosives. The lead azide is degrading and cannot be moved. The Army reassured the public on Tuesday that it had taken the appropriate safety measures to mitigate the effects of the blast.`\
+https://www.nytimes.com/video/us/100000011305294/iowa-lead-azide-detonation-safety-concerns.html
+
+**Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
+`The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
+https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
+
 **Jensen Huang’s Startling Comeback at Nvidia**\
 `Readers react to Mr. Huang’s reinstatement as the C.E.O. of the chip-making giant. Also: An execution in Texas; a parent’s school maze.`\
 https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
