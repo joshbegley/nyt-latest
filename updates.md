@@ -1,3 +1,7 @@
+**Trump Was Warned About Jensen Huang. He Didn’t Care.**\
+`President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
+https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
+
 **Blanche Downplays Questions Over Nvidia as Company’s Customers Come Under Scrutiny**\
 `The remarks came even as Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
 https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
