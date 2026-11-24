@@ -2,7 +2,7 @@
 `Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
 
-**Stocks Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
+**Stocks Set to Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
 `Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
 
@@ -142,13 +142,13 @@ https://www.nytimes.com/2026/11/24/opinion/disability-politics-trump-sharpie-lin
 `The Mirumi, which can grab onto your bag and turn its head, is riding the growing popularity of bag charms.`\
 https://www.nytimes.com/2026/11/24/style/mirumi-robot-bag-charm.html
 
-**Harry and Meghan’s Life as ‘Nonroyal Royals’ in the UK**\
-`Six years after leaving the country, the Sussexes are back and arranging a careful program of public appearances. Will they complement the royal family, or compete with it?`\
-https://www.nytimes.com/2026/11/24/world/europe/harry-meghan-royal-family-uk.html
-
 **The 75-Year Secret Behind the Success of ‘The Mousetrap’**\
 `Agatha Christie’s West End thriller is entering its platinum jubilee year with a slick new staging. But this cozy London landmark is built on a surprisingly grim foundation.`\
 https://www.nytimes.com/2026/11/24/theater/the-mousetrap-75th-anniversary.html
+
+**Harry and Meghan’s Life as ‘Nonroyal Royals’ in the UK**\
+`Six years after leaving the country, the Sussexes are back and arranging a careful program of public appearances. Will they complement the royal family, or compete with it?`\
+https://www.nytimes.com/2026/11/24/world/europe/harry-meghan-royal-family-uk.html
 
 **Why So Many of Us Have Chronic Back Pain, and Why It Won’t Go Away**\
 `More than half a billion people globally suffer from some form of back pain. And the numbers are only growing, with no reliable solution in sight.`\

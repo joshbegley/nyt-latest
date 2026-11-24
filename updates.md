@@ -1,3 +1,7 @@
+**Stocks Set to Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
+`Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
+https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
+
 **Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
 `Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
