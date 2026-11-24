@@ -1,3 +1,11 @@
+**Roz Chast: Always a Turkey Dinner for My Birthday**\
+`In our family, Thanksgiving dinner ends with cake and candles.`\
+https://www.nytimes.com/2026/11/24/arts/roz-chast-thanksgiving-birthday.html
+
+**Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
+`Freezing temperatures threaten to make the chemicals even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
+https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
+
 **‘Saturday Night Live’ Is Coming to France**\
 `A French adaptation of the American sketch comedy institution will premiere next month on the premium channel Canal+. It comes as a British version is hitting a stride.`\
 https://www.nytimes.com/2026/11/24/arts/television/snl-france.html

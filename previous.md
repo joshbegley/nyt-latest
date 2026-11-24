@@ -1,3 +1,7 @@
+**Roz Chast: Always a Turkey Dinner for My Birthday**\
+`In our family, Thanksgiving dinner ends with cake and candles.`\
+https://www.nytimes.com/2026/11/24/arts/roz-chast-thanksgiving-birthday.html
+
 **‘Saturday Night Live’ Is Coming to France**\
 `A French adaptation of the American sketch comedy institution will premiere next month on the premium channel Canal+. It comes as a British version is hitting a stride.`\
 https://www.nytimes.com/2026/11/24/arts/television/snl-france.html
@@ -107,7 +111,7 @@ https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
 https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
 
 **Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
-`Freezing temperatures threaten to make the degrading explosives even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
+`Freezing temperatures threaten to make the chemicals even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
 https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
 
 **Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-miss
 **China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
 `Before his abrupt downfall, the technocratic Chen Jining was seen as a future national leader in Xi Jinping’s China.`\
 https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
-
-**Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
-`Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
-https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
 
