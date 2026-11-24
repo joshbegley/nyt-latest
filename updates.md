@@ -1,3 +1,7 @@
+**No. 2 Official at F.B.I. Is Said to Be Retiring Before End of Year**\
+`The departure of Christopher G. Raia, a veteran agent, comes a few months after another deputy left the F.B.I.`\
+https://www.nytimes.com/2026/11/23/us/politics/fbi-raia-retiring.html
+
 **Court Clears the Way for Iowa Ammunition Detonation; Trump Addresses the Crisis**\
 `The announcement late Monday capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html

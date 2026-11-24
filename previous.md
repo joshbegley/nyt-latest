@@ -1,3 +1,7 @@
+**No. 2 Official at F.B.I. Is Said to Be Retiring Before End of Year**\
+`The departure of Christopher G. Raia, a veteran agent, comes a few months after another deputy left the F.B.I.`\
+https://www.nytimes.com/2026/11/23/us/politics/fbi-raia-retiring.html
+
 **100 Notable Books of 2026**\
 `Here is the standout fiction and nonfiction of the year, chosen by the staff of The New York Times Book Review.`\
 https://www.nytimes.com/2026/11/23/books/review/notable-books.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.h
 **Sebastián Lelio, Director of Nuanced Film Portraits of Women, Dies at 52**\
 `Taking aim at “respectable” society, he featured a transgender character in “A Fantastic Woman,” which won an Academy Award.`\
 https://www.nytimes.com/2026/11/23/movies/sebastian-lelio-dead.html
-
-**Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
-`Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
-https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
 
