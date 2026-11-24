@@ -1,3 +1,7 @@
+**California King Tides Threaten ‘Extreme’ Coastal Flooding**\
+`A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
+https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
+
 **What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
 `Pablo and chef Dave Chang investigate.`\
 https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/nyregion/the-teenage-graffiti-king-and-the-wa
 **NYT Spelling Bee Answers for November 24, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/24/crosswords/spelling-bee-forum.html
-
-**What Personality Can Tell Us About Mental Health**\
-`Psychologists and psychiatrists have long considered the role of personality in understanding mental illness and treatment. Now, science is bridging the gap.`\
-https://www.nytimes.com/2026/11/24/science/personality-mental-health.html
 
