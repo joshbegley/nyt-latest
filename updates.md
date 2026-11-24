@@ -1,3 +1,7 @@
+**Director Antoine Fuqua Accused of Assaulting an L.A. Bar Manager**\
+`In the suit, the manager said the director of films including “Training Day” and “Michael” used an antisemitic slur and hit him in the face with a handgun. A representative for Fuqua denied the accusations.`\
+https://www.nytimes.com/2026/11/24/movies/antoine-fuqua-lawsuit.html
+
 **Roz Chast: Always a Turkey Dinner for My Birthday**\
 `In our family, Thanksgiving dinner ends with cake and candles.`\
 https://www.nytimes.com/2026/11/24/arts/roz-chast-thanksgiving-birthday.html
