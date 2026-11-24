@@ -1,3 +1,7 @@
+**Common Grounds for Impeachment**\
+`What should House Democrats focus on? There is so much to choose from.`\
+https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
+
 **Trump Was Warned About Jensen Huang. He Didn't Care.**\
 `President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
