@@ -1,3 +1,7 @@
+**Broderick Wins Tennessee House Race, Giving Democrats Largest Majority in 30 Years**\
+`Democrats’ midterm rout kept expanding in the House after a tech support worker ousted an eight-term Republican without having aired a single TV ad.`\
+https://www.nytimes.com/2026/11/24/us/politics/tennessee-house-election-results-broderick-wins.html
+
 **Mary Peacock Has Died. She Found Style on the Streets. (Not Fifth Avenue.)**\
 `A founder of the influential Rags magazine and a style savant at The Village Voice, she celebrated fashion at the ground level. She was 84.`\
 https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
