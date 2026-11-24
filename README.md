@@ -1,3 +1,7 @@
+**Pope Francis Diary Excerpts Published in New Book**\
+`Over decades, before and after he became leader of the Roman Catholic Church, Francis recorded occasional entries about his fears and doubts.`\
+https://www.nytimes.com/2026/11/24/world/europe/pope-francis-diary.html
+
 **Who Controls the Miss Universe Pageant? It’s Surprisingly Hard to Tell.**\
 `A new Miss Universe is set to be crowned today in Puerto Rico. But the organization has been hobbled by the chaos at last year’s pageant and a messy struggle for control.`\
 https://www.nytimes.com/2026/11/24/style/miss-universe-pageant-puerto-rico-feud.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-m
 **Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
 `The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
 https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html
-
-**Mamdani to Have Surgery for Torn Achilles’ Tendon**\
-`Mayor Zohran Mamdani was injured playing soccer last week. He said two deputy mayors would fill in temporarily during and immediately after the operation.`\
-https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
 
