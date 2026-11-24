@@ -1,3 +1,15 @@
+**Judges Open Door for Trump to Move Hush-Money Appeal to Federal Court**\
+`A three-judge panel ruled that a lower court had erred in denying President Trump’s request to move his case out of state court, where he was convicted on 34 felony counts.`\
+https://www.nytimes.com/2026/11/23/nyregion/trump-conviction-appeal-federal-court.html
+
+**They Heard. They Saw. They Reviewed.**\
+`For 175 years, The Times has had a front-row seat to culture in the making. Today’s critics revisit what their predecessors witnessed.`\
+https://www.nytimes.com/interactive/2026/11/23/arts/nyt-critics-175-anniversary.html
+
+**Writers Frustrated Over PEN America’s Israel Stance Form Alternate Group**\
+`The century-old free speech organization stirred controversy with an article in July describing what it called the “rising isolation and exclusion” of Jewish and Israeli writers.`\
+https://www.nytimes.com/2026/11/23/arts/writers-frustrated-over-pen-americas-israel-stance-form-alternate-group.html
+
 **Could a City Council Bill Really Raise Amazon Prices by $5?**\
 `Amazon is fighting a New York City Council bill to regulate deliveries, telling customers that it could raise prices by up to $5 per package. The truth is more complicated.`\
 https://www.nytimes.com/2026/11/23/nyregion/amazon-price-increases-nyc.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/video/world/middleeast/100000011302243/israel-settlers-a
 **Ukraine Claims Strikes on Russian Ships Near Libya**\
 `Ukraine’s president said on Monday that Ukrainian forces were responsible for strikes on two Russian ships off the coast of Libya the previous day.`\
 https://www.nytimes.com/video/world/europe/100000011302362/ukraine-russia-libya-drone-attacks.html
-
-**‘It’s a Wonderful Life’ and Other Broadway Shows for the Holidays**\
-`Andrew Rannells stars as George Bailey in a radio-play version of a classic movie. Also onstage: Illusionists and Blue Man Group’s “A New Holiday Surprise.”`\
-https://www.nytimes.com/2026/11/23/theater/its-a-wonderful-life-blue-man-group-now-you-see-me-review.html
-
-**Exiled From Kennedy Center, but Sticking to Its National Identity**\
-`Washington National Opera, which broke from the Kennedy Center this year, made clear its beliefs about American culture in two recent performances.`\
-https://www.nytimes.com/2026/11/23/arts/music/washington-national-opera-kennedy-center.html
-
-**Trump Is Said to Have Pushed to Reinstate Nvidia CEO Jensen Huang**\
-`The president set in motion a weekend of maneuvering, led by Vice President JD Vance, to help Jensen Huang get his old job back.`\
-https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang.html
 
