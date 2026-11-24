@@ -1,3 +1,7 @@
+**‘The Further Mis-Adventures of Cliff Booth’ Review: Golden-Boy Fumes**\
+`Quentin Tarantino wrote, and David Fincher directed, this movie starring Brad Pitt, which picks up with the stuntman character he played in “Once Upon a Time … in Hollywood.”`\
+https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-booth-review.html
+
 **‘The Digital Deficit Has Come Due’**\
 `Why is the internet so prone to outages and attacks right now? The cybersecurity expert Nicole Perlroth explains on “The Ezra Klein Show” that “faulty, flawed, vulnerable software” underlies the modern internet.`\
 https://www.nytimes.com/video/opinion/100000011299692/the-digital-deficit-has-come-due.html
