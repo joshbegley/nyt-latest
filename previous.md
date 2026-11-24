@@ -1,3 +1,7 @@
+**Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
+`As the death toll rose to 26, one rescue worker said that more victims might be found near a stairwell in the building. The police opened a criminal investigation.`\
+https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-missing.html
+
 **China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
 `Before his abrupt downfall, the technocratic Chen Jining was seen a future national leader in Xi Jinping’s China.`\
 https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/arts/grand-theft-auto-vi-little-haiti-vice-ci
 **How Do You Bring Joy to Your Life?**\
 `An expert suggests that we make an effort to cultivate more happiness in our everyday. What ideas do you have to do that?`\
 https://www.nytimes.com/2026/11/24/learning/how-do-you-bring-joy-to-your-life.html
-
-**Is There Such a Thing as Too Much Sleep?**\
-`We asked experts whether getting more than the typical seven to nine hours was cause for concern.`\
-https://www.nytimes.com/2026/11/24/well/too-much-sleep.html
 

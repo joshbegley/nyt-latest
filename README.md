@@ -1,3 +1,7 @@
+**Prince William and Catherine’s Country Home Broken Into, Police Say**\
+`Two men have been arrested on suspicion of breaking into Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
+https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
+
 **Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
 `As the death toll rose to 26, one rescue worker said that more victims might be found near a stairwell in the building. The police opened a criminal investigation.`\
 https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-missing.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/us/harvard-maga-class.html
 **This Grand Theft Auto Neighborhood Led to a Lawsuit**\
 `Decades ago, Rockstar Games edited dialogue in Grand Theft Auto: Vice City after controversy over a mission in Little Haiti.`\
 https://www.nytimes.com/2026/11/24/arts/grand-theft-auto-vi-little-haiti-vice-city-miami.html
-
-**How Do You Bring Joy to Your Life?**\
-`An expert suggests that we make an effort to cultivate more happiness in our everyday. What ideas do you have to do that?`\
-https://www.nytimes.com/2026/11/24/learning/how-do-you-bring-joy-to-your-life.html
 
