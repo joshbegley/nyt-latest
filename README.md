@@ -1,3 +1,11 @@
+**A Cooking Show Wunderkind Grows Up and Slings Ramen**\
+`Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
+https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
+
+**Why Trump Isn't Worried About Jensen Huang**\
+`Jonathan Swan, a White House reporter for The New York Times, joined “The Daily” to explain why President Trump pushed Nvidia’s board of directors to have Jensen Huang reinstated as chief executive.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-worried-about-jensen-huang.html
+
 **A Lion on the Loose Near Istanbul? Not So Fast.**\
 `Blurry surveillance footage spurred a frantic search — until the Turkish authorities said it was unclear whether the animal was the feline.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/travel/black-friday-deals.html
 **There’s a Good Reason Some Environmentalists Hate This Bill**\
 `Congress shouldn’t let Trump use weakened environmental laws to put his favored projects on public lands.`\
 https://www.nytimes.com/2026/11/24/opinion/permitting-reform-environmental-laws.html
-
-**The Navy Waves Goodbye to the Peacoat**\
-`But don’t worry, fashion will keep it afloat.`\
-https://www.nytimes.com/2026/11/24/style/us-navy-pea-coat-retired.html
-
-**From Chinese Factory Town to the Nvidia Scandal: The Rise of Alice Huang**\
-`The woman whose role has become a focus of the Nvidia spying saga grew up in a small town built around a weapons factory. Her jump to finance and the tech world paralleled China’s own.`\
-https://www.nytimes.com/2026/11/24/business/nvidia-alice-huang-china.html
 
