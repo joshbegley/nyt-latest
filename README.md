@@ -1,3 +1,7 @@
+**Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
+`The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
+https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
+
 **Jensen Huang’s Startling Comeback at Nvidia**\
 `Readers react to Mr. Huang’s reinstatement as the C.E.O. of the chip-making giant. Also: An execution in Texas; a parent’s school maze.`\
 https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/podcasts/i-stole-my-colleagues-packages-to-he
 **Corrections: Nov. 24, 2026**\
 `Corrections that appeared in print on Tuesday, Nov. 24, 2026.`\
 https://www.nytimes.com/2026/11/24/pageoneplus/corrections-nov-24-2026.html
-
-**‘Melania: The Series’ is a Bloodless, Instantly Dated Travelogue of Power**\
-`Amazon’s brief follow-up to the documentary film about Melania Trump is a portrait of a figure who resists being understood.`\
-https://www.nytimes.com/2026/11/24/arts/television/melania-the-series-review.html
 

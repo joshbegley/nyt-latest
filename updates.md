@@ -1,3 +1,7 @@
+**Jensen Huang’s Startling Comeback at Nvidia**\
+`Readers react to Mr. Huang’s reinstatement as the C.E.O. of the chip-making giant. Also: An execution in Texas; a parent’s school maze.`\
+https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
+
 **Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
 `A day after returning to his company, Mr. Huang acknowledged that he violated Nvidia’s code of conduct and that he “made some terrible mistakes.”`\
 https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html

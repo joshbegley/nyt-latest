@@ -1,3 +1,7 @@
+**Jensen Huang’s Startling Comeback at Nvidia**\
+`Readers react to Mr. Huang’s reinstatement as the C.E.O. of the chip-making giant. Also: An execution in Texas; a parent’s school maze.`\
+https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
+
 **Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
 `A day after returning to his company, Mr. Huang acknowledged that he violated Nvidia’s code of conduct and that he “made some terrible mistakes.”`\
 https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/2026/11/24/pageoneplus/corrections-nov-24-2026.html
 **‘Melania: The Series’ is a Bloodless, Instantly Dated Travelogue of Power**\
 `Amazon’s brief follow-up to the documentary film about Melania Trump is a portrait of a figure who resists being understood.`\
 https://www.nytimes.com/2026/11/24/arts/television/melania-the-series-review.html
-
-**A Councilwoman Takes Aim at a Housing Survey**\
-`The city collects data that lets experts calculate the rental vacancy rate. A Republican on the City Council told constituents not to cooperate.`\
-https://www.nytimes.com/2026/11/24/nyregion/housing-survey-vickie-paladino.html
-
-**Top Aviation Officials Were Traveling When F.A.A.’s Nationwide Ground Stop Halted Flights**\
-`Transportation administrators and some key executives for the contractor handling an equipment upgrade were in transit on Nov. 13, highlighting that Friday can be a bad day for something to go wrong.`\
-https://www.nytimes.com/2026/11/24/business/l3harris-ground-stop-aviation.html
 
