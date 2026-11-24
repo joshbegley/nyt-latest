@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Is Coming to France**\
+`A French adaptation of the American sketch comedy institution will premiere next month on the premium channel Canal+. It comes as a British version is hitting a stride.`\
+https://www.nytimes.com/2026/11/24/arts/television/snl-france.html
+
 **Trump Awards Rudy Giuliani Presidential Medal of Freedom**\
 `The award honored a Trump ally who was once known as “America’s mayor” but whose reputation was tarnished by his efforts to overturn the 2020 election on behalf of the president.`\
 https://www.nytimes.com/2026/11/24/us/politics/trump-rudy-giuliani-presidential-medal-of-freedom.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigatio
 **Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
 `Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
-
-**Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
-`Shares have veered wildly for days, pushed and pulled by the drama at Nvidia and the rise and fall of Anthropic’s stock after its blockbuster public offering.`\
-https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
 
