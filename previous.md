@@ -182,7 +182,7 @@ https://www.nytimes.com/2026/11/24/learning/how-do-you-bring-joy-to-your-life.ht
 `We asked experts whether getting more than the typical seven to nine hours was cause for concern.`\
 https://www.nytimes.com/2026/11/24/well/is-there-such-a-thing-as-too-much-sleep.html
 
-**Fleeing the U.S. and Torn Apart: Family Separation at the Northern Border**\
+**Some Haitian Families Fleeing the U.S. for Canada Are Being Separated at the Border**\
 `Driven to Canada by deportation fears, some members of Haitian families are being denied entry, turned back and detained by U.S. authorities.`\
 https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.html
 

@@ -1,3 +1,7 @@
+**Some Haitian Families Fleeing the U.S. for Canada Are Being Separated at the Border**\
+`Driven to Canada by deportation fears, some members of Haitian families are being denied entry, turned back and detained by U.S. authorities.`\
+https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.html
+
 **Too Big to Fail**\
 `We look at Jensen Huang’s return to Nvidia.`\
 https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
