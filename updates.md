@@ -1,3 +1,7 @@
+**China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
+`Before his abrupt downfall, the technocratic Chen Jining was seen as a future national leader in Xi Jinping’s China.`\
+https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
+
 **Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
 `The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
 https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html

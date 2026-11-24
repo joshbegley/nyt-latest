@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-i
 https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-missing.html
 
 **China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
-`Before his abrupt downfall, the technocratic Chen Jining was seen a future national leader in Xi Jinping’s China.`\
+`Before his abrupt downfall, the technocratic Chen Jining was seen as a future national leader in Xi Jinping’s China.`\
 https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
 
 **Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
