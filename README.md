@@ -1,3 +1,7 @@
+**The ‘Everywhere, All at Once’ Cybersecurity Crisis**\
+`The cybersecurity expert Nicole Perlroth explains why the digital world is in chaos.`\
+https://www.nytimes.com/video/opinion/100000011299691/the-everywhere-all-at-once-cybersecurity-crisis.html
+
 **High Tides and Storms Could Worsen Flooding on West Coast**\
 `Residents on the West Coast were bracing for high tides and storms that could worsen coastal flooding and disrupt Thanksgiving travel plans.`\
 https://www.nytimes.com/video/us/100000011304586/california-washington-king-tide-storm-preparation.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/business/trump-administration-megaspeed-trade
 **Rep. Jimmy Gomez Resigns After Panel Alleges Unwanted Sexual Contact With Aide**\
 `Representative Jimmy Gomez of California disputed the allegations from the Ethics Committee but said they left him with “no other alternative than to resign, effective Dec. 1.”`\
 https://www.nytimes.com/2026/11/23/us/politics/jimmy-gomez-democrat-resigns.html
-
-**The Return of Jensen Huang**\
-`The Nvidia C.E.O. is back, President Trump is celebrating and markets are rallying.`\
-https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
 
