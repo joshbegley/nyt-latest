@@ -1,3 +1,11 @@
+**25 Years of DealBook Moments**\
+`These photographs are drawn from events since DealBook began publishing that have left an indelible mark on business, policy and culture. We’re still feeling their ripples today.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/25-years-photographs-moments.html
+
+**Pierre Bellocq, Who Drew Horse Racing Cartoons as ‘Peb,’ Has Died**\
+`A Frenchman, he was best known for his work at The Daily Racing Form. He was 99.`\
+https://www.nytimes.com/2026/11/24/arts/pierre-bellocq-dead.html
+
 **Army Races to Detonate Old Explosives**\
 `Also, Jensen Huang apologizes to Nvidia employees. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
