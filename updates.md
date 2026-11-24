@@ -1,3 +1,11 @@
+**‘Smells Like Home’: An Old-School Grocery Is Set to Close After 99 Years**\
+`Zingone Bros. is beloved on the Upper West Side. That might not be enough to keep it open.`\
+https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
+
+**Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
+`Freezing temperatures threaten to make the degrading explosives even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
+https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
+
 **Broderick Wins Tennessee House Race, Giving Democrats Largest Majority in 30 Years**\
 `Democrats’ midterm rout kept expanding in the House after a tech support worker ousted an eight-term Republican without having aired a single TV ad.`\
 https://www.nytimes.com/2026/11/24/us/politics/tennessee-house-election-results-broderick-wins.html
