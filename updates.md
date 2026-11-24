@@ -1,3 +1,11 @@
+**Blanche Downplays Questions Over Nvidia as Company’s Customers Come Under Scrutiny**\
+`The remarks came even as Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
+https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
+
+**‘Carthage Resident Al Gore’ Buys His Hometown Tennessee Newspaper**\
+`The Carthage Courier announced this week that the former vice president was buying the weekly paper, which has been publishing since 1913.`\
+https://www.nytimes.com/2026/11/24/business/media/al-gore-newspaper-carthage-courier.html
+
 **Hakeem Jeffries on Whether He Will Continue to Accept AIPAC Donations**\
 `Hakeem Jeffries has been nominated to be the next speaker of the House. On “The Interview,” he was asked about how he would handle donations from the American Israel Public Affairs Committee, or AIPAC, one of the biggest spenders in American elections.`\
 https://www.nytimes.com/video/podcasts/100000011302859/hakeem-jeffries-on-whether-he-will-continue-to-accept-aipac-donations.html
