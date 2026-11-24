@@ -1,3 +1,11 @@
+**Judges Open Door for Trump to Win Appeal in Stormy Daniels Case**\
+`A three-judge panel ruled that a lower court had erred in denying President Trump’s request to move his case out of state court, where he was convicted on 34 felony counts.`\
+https://www.nytimes.com/2026/11/23/nyregion/trump-conviction-appeal-federal-court.html
+
+**Court Clears the Way for Iowa Ammunition Detonation; Trump Addresses the Crisis**\
+`The ruling capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
 **Trump’s Extraordinary Nvidia Intervention Sidelines National Security Concerns**\
 `President Trump’s move to put Jensen Huang back at the helm of Nvidia caps his indifference to the warnings of his own intelligence agencies.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-national-security.html
