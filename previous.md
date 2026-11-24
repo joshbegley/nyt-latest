@@ -1,3 +1,7 @@
+**Smithsonian Boss Defends Autonomy After Report of Trump Overhaul Plan**\
+`Lonnie Bunch wrote a letter intended to calm his staff after an outline of major personnel and programming changes was seen on a White House aide’s computer.`\
+https://www.nytimes.com/2026/11/24/arts/design/smithsonian-letter-lonnie-bunch-white-house.html
+
 **The Mississippi Senate Race Wasn’t Even This Year’s Biggest Upset**\
 `We found the most unlikely winners of the 2026 midterms.`\
 https://www.nytimes.com/2026/11/24/upshot/midterm-elections-upsets-predictions.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.
 **Protecting Child Actors’ Mental Health**\
 `The making of “Josephine” shows the measures some productions take to ensure young performers’ well-being. But there is no comprehensive mandate.`\
 https://www.nytimes.com/2026/11/24/movies/child-actors-mental-health-josephine.html
-
-**Young New Yorkers Are Losing on Kalshi, City Council Says**\
-`An investigation into prediction market companies found that 18- to 20-year-olds in New York City are losing money at a high rate.`\
-https://www.nytimes.com/2026/11/24/business/kalshi-nyc-council.html
 
