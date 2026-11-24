@@ -1,3 +1,7 @@
+**Iowa’s Toxic Explosion**\
+`The Army is scheduled blow up thousands of pounds of explosives that could spread toxic lead dust for miles.`\
+https://www.nytimes.com/2026/11/24/climate/iowas-toxic-explosion.html
+
 **Winter Travel Ideas: Family Vacations in Southeast Asia, San Francisco and More**\
 `Readers wrote in with their winter travel quandaries. Here are our ideas for them.`\
 https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/crosswords/wordle-review-1985.html
 **NYT Strands Hints for November 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
 https://www.nytimes.com/2026/11/24/crosswords/strands-sidekick-997.html
-
-**NYT Connections Answers for November 25, 2026**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
-https://www.nytimes.com/2026/11/24/crosswords/connections-companion-1263.html
 
