@@ -1,3 +1,7 @@
+**Officials Dismiss Rental Car Felony Charge for Incoming House Democrat**\
+`Representative-elect LaKesha Womack in North Carolina had been issued a criminal summons at a campaign rally last month about a rental vehicle she had failed to return in 2019.`\
+https://www.nytimes.com/2026/11/24/us/lakesha-womack-rental-car-felony-charge-dismissed.html
+
 **Director Antoine Fuqua Accused of Assaulting an L.A. Bar Manager**\
 `In the suit, the manager said the director of films including “Training Day” and “Michael” used an antisemitic slur and hit him in the face with a handgun. A representative for Fuqua denied the accusations.`\
 https://www.nytimes.com/2026/11/24/movies/antoine-fuqua-lawsuit.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
 **2 Men Arrested on Suspicion of Breaking Into Prince William and Kate’s Country Home**\
 `The men were arrested near Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
 https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
-
-**Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
-`As the death toll rose to 26, one rescue worker said that more victims might be found near a stairwell in the building. The police opened a criminal investigation.`\
-https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-missing.html
 
