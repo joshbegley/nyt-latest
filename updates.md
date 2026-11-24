@@ -1,3 +1,7 @@
+**When You’re a Star They Let You Compromise National Security**\
+`Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
+https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
+
 **Judges Open Door for Trump to Move Hush-Money Appeal to Federal Court**\
 `A three-judge panel ruled that a lower court had erred in denying President Trump’s request to move his case out of state court, where he was convicted on 34 felony counts.`\
 https://www.nytimes.com/2026/11/23/nyregion/trump-conviction-appeal-federal-court.html
