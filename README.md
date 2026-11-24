@@ -1,3 +1,7 @@
+**Trump Was Warned About Jensen Huang. He Didn't Care.**\
+`President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
+https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
+
 **Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
 `Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
 https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/business/medicare-hospice-caps-patients-lose-
 **Issey Miyake’s Satoshi Kondo Shares His Creative Influences**\
 `Satoshi Kondo, the head of women’s wear for the Japanese brand, offers a look inside his creative world.`\
 https://www.nytimes.com/2026/11/24/t-magazine/satoshi-kondo-influences-issey-miyake.html
-
-**Is the Future of Art in Prehistoric Caves?**\
-`For some, the rocky hide-outs aren’t just ancient shelters and our first canvases but sites for connecting to nonhuman life.`\
-https://www.nytimes.com/2026/11/24/t-magazine/prehistoric-cave-art-contemporary.html
 
