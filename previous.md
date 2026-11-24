@@ -182,13 +182,13 @@ https://www.nytimes.com/2026/11/24/dining/restaurant-reservations-phone-calls.ht
 `The bargains are plentiful this year, and they include deep discounts on resorts, cruises, safaris and more.`\
 https://www.nytimes.com/2026/11/24/travel/black-friday-deals.html
 
-**There’s a Good Reason Some Environmentalists Hate This Bill**\
-`Congress shouldn’t let Trump use weakened environmental laws to put his favored projects on public lands.`\
-https://www.nytimes.com/2026/11/24/opinion/permitting-reform-environmental-laws.html
-
 **The Navy Waves Goodbye to the Peacoat**\
 `But don’t worry, fashion will keep it afloat.`\
 https://www.nytimes.com/2026/11/24/style/us-navy-pea-coat-retired.html
+
+**There’s a Good Reason Some Environmentalists Hate This Bill**\
+`Congress shouldn’t let Trump use weakened environmental laws to put his favored projects on public lands.`\
+https://www.nytimes.com/2026/11/24/opinion/permitting-reform-environmental-laws.html
 
 **From Chinese Factory Town to the Nvidia Scandal: The Rise of Alice Huang**\
 `The woman whose role has become a focus of the Nvidia spying saga grew up in a small town built around a weapons factory. Her jump to finance and the tech world paralleled China’s own.`\
