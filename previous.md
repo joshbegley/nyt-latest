@@ -1,3 +1,11 @@
+**Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
+`A day after returning to his company, Mr. Huang acknowledged that he violated Nvidia’s code of conduct and that he “made some terrible mistakes.”`\
+https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
+
+**Unstoppable Crowds Are Meeting Up to Push Immovable Objects**\
+`In Chicago, St. Louis, New York and Washington dreamers and pranksters have gotten together recently aiming to shift massive landmarks.`\
+https://www.nytimes.com/2026/11/24/us/washington-monument-chicago-bean-pushing.html
+
 **Crowds Gather to Try to Push City Landmarks**\
 `From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
 https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/nyregion/housing-survey-vickie-paladino.html
 **Top Aviation Officials Were Traveling When F.A.A.’s Nationwide Ground Stop Halted Flights**\
 `Transportation administrators and some key executives for the contractor handling an equipment upgrade were in transit on Nov. 13, highlighting that Friday can be a bad day for something to go wrong.`\
 https://www.nytimes.com/2026/11/24/business/l3harris-ground-stop-aviation.html
-
-**The ‘Everywhere, All at Once’ Cybersecurity Crisis**\
-`The cybersecurity expert Nicole Perlroth explains why the digital world is in chaos.`\
-https://www.nytimes.com/2026/11/24/opinion/ezra-klein-podcast-nicole-perlroth.html
-
-**Phone Reservations Are Back at Restaurants. Humans May Not Be Included.**\
-`Against all odds, restaurants still get phone calls. A number of new services — some running on A.I. and some staffed by people — are vying for the chance to answer.`\
-https://www.nytimes.com/2026/11/24/dining/restaurant-reservations-phone-calls.html
 

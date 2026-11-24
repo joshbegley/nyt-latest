@@ -1,3 +1,11 @@
+**Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
+`A day after returning to his company, Mr. Huang acknowledged that he violated Nvidia’s code of conduct and that he “made some terrible mistakes.”`\
+https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
+
+**Unstoppable Crowds Are Meeting Up to Push Immovable Objects**\
+`In Chicago, St. Louis, New York and Washington dreamers and pranksters have gotten together recently aiming to shift massive landmarks.`\
+https://www.nytimes.com/2026/11/24/us/washington-monument-chicago-bean-pushing.html
+
 **Crowds Gather to Try to Push City Landmarks**\
 `From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
 https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
