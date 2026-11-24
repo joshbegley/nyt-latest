@@ -178,13 +178,13 @@ https://www.nytimes.com/2026/11/24/dining/women-chefs-wineries-nonprofits.html
 `Lisa L. Thompson is Union Theological Seminary’s first Black president. She hopes to make the university as accessible as possible.`\
 https://www.nytimes.com/2026/11/24/nyregion/aliya-latif.html
 
-**MAGA Attacked Harvard. So Harvard Taught a Class About It.**\
-`The Make America Great Again movement wants to remake Harvard. Harvard has a class for that.`\
-https://www.nytimes.com/2026/11/24/us/harvard-maga-class.html
-
 **Word of the Day: delectable**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://www.nytimes.com/2026/11/24/learning/word-of-the-day-delectable.html
+
+**MAGA Attacked Harvard. So Harvard Taught a Class About It.**\
+`The Make America Great Again movement wants to remake Harvard. Harvard has a class for that.`\
+https://www.nytimes.com/2026/11/24/us/harvard-maga-class.html
 
 **This Grand Theft Auto Neighborhood Led to a Lawsuit**\
 `Decades ago, Rockstar Games edited dialogue in Grand Theft Auto: Vice City after controversy over a mission in Little Haiti.`\
