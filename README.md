@@ -1,3 +1,7 @@
+**Director Antoine Fuqua Accused of Assaulting an L.A. Bar Manager**\
+`In the suit, the manager said the director of films including “Training Day” and “Michael” used an antisemitic slur and hit him in the face with a handgun. A representative for Fuqua denied the accusations.`\
+https://www.nytimes.com/2026/11/24/movies/antoine-fuqua-lawsuit.html
+
 **Roz Chast: Always a Turkey Dinner for My Birthday**\
 `In our family, Thanksgiving dinner ends with cake and candles.`\
 https://www.nytimes.com/2026/11/24/arts/roz-chast-thanksgiving-birthday.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-i
 **Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
 `As the death toll rose to 26, one rescue worker said that more victims might be found near a stairwell in the building. The police opened a criminal investigation.`\
 https://www.nytimes.com/2026/11/24/world/asia/indonesia-factory-fire-deaths-missing.html
-
-**China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
-`Before his abrupt downfall, the technocratic Chen Jining was seen as a future national leader in Xi Jinping’s China.`\
-https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
 
