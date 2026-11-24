@@ -1,3 +1,15 @@
+**100 Notable Books of 2025**\
+`Here is the standout fiction and nonfiction of the year, chosen by the staff of The New York Times Book Review.`\
+https://www.nytimes.com/2026/11/23/books/review/notable-books.html
+
+**NYT Crossword Answers for Nov. 24, 2026**\
+`Karen Lurie and Peter Gwinn make their New York Times Crossword collaboration debut.`\
+https://www.nytimes.com/2026/11/23/crosswords/daily-puzzle-2026-11-24.html
+
+**Which Notable Book of 2026 Should I Read First? A Guide.**\
+`We’ve broken down our annual list by theme.`\
+https://www.nytimes.com/interactive/2026/11/23/books/book-recommendations-notables.html
+
 **Court Greenlights Controversial Plan to Detonate Dangerous Explosive in Iowa**\
 `The U.S. Army is planning to detonate lead azide, an explosive used in military munitions, which could set off a plume of toxic lead dust over towns in Iowa. But locals and environmental groups have expressed concerns over the plan.`\
 https://www.nytimes.com/video/us/100000011302420/court-greenlights-controversial-plan-to-detonate-dangerous-explosive-in-iowa.html

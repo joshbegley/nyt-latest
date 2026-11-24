@@ -1,4 +1,4 @@
-**100 Notable Books of 2025**\
+**100 Notable Books of 2026**\
 `Here is the standout fiction and nonfiction of the year, chosen by the staff of The New York Times Book Review.`\
 https://www.nytimes.com/2026/11/23/books/review/notable-books.html
 
