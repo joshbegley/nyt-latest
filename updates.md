@@ -1,3 +1,11 @@
+**‘The Digital Deficit Has Come Due’**\
+`Why is the internet so prone to outages and attacks right now? The cybersecurity expert Nicole Perlroth explains on “The Ezra Klein Show” that “faulty, flawed, vulnerable software” underlies the modern internet.`\
+https://www.nytimes.com/video/opinion/100000011299692/the-digital-deficit-has-come-due.html
+
+**Huawei Found Guilty of Stealing Trade Secrets in U.S. Trial**\
+`The verdict was a victory for the Justice Department in a long-running case over what federal prosecutors called brazen trade theft by the Chinese telecommunications giant.`\
+https://www.nytimes.com/2026/11/24/nyregion/huawei-guilty-new-york.html
+
 **Iowa’s Toxic Explosion**\
 `The Army is scheduled blow up thousands of pounds of explosives that could spread toxic lead dust for miles.`\
 https://www.nytimes.com/2026/11/24/climate/iowas-toxic-explosion.html
