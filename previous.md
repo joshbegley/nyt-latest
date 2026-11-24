@@ -1,3 +1,7 @@
+**The Mortality Gap Between Black and White Americans Is Shrinking**\
+`A new report shows significant progress on racial health disparities, though many still persist.`\
+https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates.html
+
 **Notable Books**\
 `Plus, we look at a stockpile of explosives in Iowa.`\
 https://www.nytimes.com/2026/11/24/briefing/notable-books.html
@@ -35,7 +39,7 @@ https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.
 https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
 
 **Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
-`Sales start earlier and seem to drag on endlessly, giving some shoppers “Black Friday fatigue.”`\
+`Some shoppers have “Black Friday fatigue” from sales that began as early as the first week in November.`\
 https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
 
 **How Huang’s Return Rewrote Corporate America’s Rules**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/t-magazine/prehistoric-cave-art-contemporary.
 **I Was Disabled in Middle Age. It Opened Up the World.**\
 `Life on the wrong side of the Sharpie line is tough but instructive.`\
 https://www.nytimes.com/2026/11/24/opinion/disability-politics-trump-sharpie-line.html
-
-**Meet Mirumi, the Furry, Robotic Bag Charm Flying Off Shelves**\
-`The Mirumi, which can grab onto your bag and turn its head, is riding the growing popularity of bag charms.`\
-https://www.nytimes.com/2026/11/24/style/mirumi-robot-bag-charm.html
 

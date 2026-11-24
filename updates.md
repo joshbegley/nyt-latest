@@ -1,3 +1,11 @@
+**The Mortality Gap Between Black and White Americans Is Shrinking**\
+`A new report shows significant progress on racial health disparities, though many still persist.`\
+https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates.html
+
+**Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
+`Some shoppers have “Black Friday fatigue” from sales that began as early as the first week in November.`\
+https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
+
 **Notable Books**\
 `Plus, we look at a stockpile of explosives in Iowa.`\
 https://www.nytimes.com/2026/11/24/briefing/notable-books.html
