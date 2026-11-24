@@ -1,3 +1,7 @@
+**Trump’s Extraordinary Nvidia Intervention Sidelines National Security Concerns**\
+`President Trump’s move to put Jensen Huang back at the helm of Nvidia caps his indifference to the warnings of his own intelligence agencies.`\
+https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-national-security.html
+
 **When You’re a Star They Let You Compromise National Security**\
 `Huang’s firing damaged something Donald Trump values even more than national security: the stock market.`\
 https://www.nytimes.com/2026/11/23/opinion/jensen-huang-trump-reinstated.html
