@@ -1,3 +1,15 @@
+**OpenAI Engineer Secretly Recorded Dozens of Meetings, Prosecutors Say**\
+`A court filing said the engineer captured meetings on customers, A.I. safety and a foreign government briefing. Federal prosecutors are investigating what he did with the recordings.`\
+https://www.nytimes.com/2026/11/23/technology/openai-engineer-secret-recordings.html
+
+**Why Trump Put Jensen Huang Back in Charge at Nvidia**\
+`In a shocking turn, the chip-making giant reinstated its chief executive. We unpack how it happened — and what it means.`\
+https://www.nytimes.com/2026/11/23/podcasts/why-trump-put-jensen-huang-back-in-charge-at-nvidia.html
+
+**How a Scientist Behind the Mediterranean Diet Got Caught in Trump’s War on Harvard**\
+`Walter Willett studies the link between diet and health, a high priority for Health Secretary Robert F. Kennedy Jr. His grants were frozen anyway.`\
+https://www.nytimes.com/2026/11/23/us/politics/walter-willett-trump-harvard.html
+
 **Jensen Huang is back as Nvidia C.E.O.**\
 `Jensen Huang is back at Nvidia. Guest host Max Read gets the story behind the reversal from Huang biographer Stephen Witt (“The Thinking Machine”) and Jonathan Swan, a White House reporter for The New York Times.`\
 https://www.nytimes.com/video/podcasts/100000011303332/jensen-huang-is-back-as-nvidia-ceo.html
