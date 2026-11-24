@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates
 `Plus, we look at a stockpile of explosives in Iowa.`\
 https://www.nytimes.com/2026/11/24/briefing/notable-books.html
 
-**So You Want to Impeach the President**\
+**Common Grounds for Impeachment**\
 `What should House Democrats focus on? There is so much to choose from.`\
 https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
 
