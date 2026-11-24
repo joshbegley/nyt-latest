@@ -3,7 +3,7 @@
 https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
 
 **Prince William and Catherine’s Country Home Broken Into, Police Say**\
-`The men were arrested at Anmer Hall, the couple’s retreat in Norfolk, on Monday night, the police said.`\
+`The men were arrested at Anmer Hall, the couple’s retreat in Norfolk, on Monday night.`\
 https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
 
 **Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
