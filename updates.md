@@ -1,3 +1,7 @@
+**Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
+`Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
+https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
+
 **California King Tides Threaten ‘Extreme’ Coastal Flooding**\
 `A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
 https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
