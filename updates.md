@@ -1,3 +1,11 @@
+**The Mississippi Senate Race Wasn’t Even This Year’s Biggest Upset**\
+`We found the most unlikely winners of the 2026 midterms.`\
+https://www.nytimes.com/2026/11/24/upshot/midterm-elections-upsets-predictions.html
+
+**A Playlist of Thanksgiving Sides**\
+`The J.B.s, Kacey Musgraves, the Cranberries and more salute the rock stars of the dinner table.`\
+https://www.nytimes.com/2026/11/24/arts/music/amplifier-playlist-thanksgiving-cranberries-jbs.html
+
 **Army Addresses Concerns Over Detonating Dangerous Explosives in Iowa**\
 `On Wednesday, the Army plans to detonate a cache of dangerous explosives. The lead azide is degrading and cannot be moved. The Army reassured the public on Tuesday that it had taken the appropriate safety measures to mitigate the effects of the blast.`\
 https://www.nytimes.com/video/us/100000011305294/iowa-lead-azide-detonation-safety-concerns.html
