@@ -1,3 +1,11 @@
+**Army Races to Detonate Old Explosives**\
+`Also, Jensen Huang apologizes to Nvidia employees. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
+
+**Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He plans to ultimately make his way to Mexico, his lawyers said.`\
+https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
+
 **Maps: Tracking the Iowa Ammunition Plant Detonation**\
 `See locations and forecasts related to the planned explosion.`\
 https://www.nytimes.com/interactive/2026/11/24/weather/iowa-maps-lead-wind.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/24/business/economy/trump-nvidia-national-securi
 **Luxury Water Is Luring Drinkers Who Have Lost Their Thirst for Alcohol**\
 `A host of newcomers are pushing into the high-end water space, which has long been occupied by brands like Fiji, Evian and Voss.`\
 https://www.nytimes.com/2026/11/24/business/luxury-water-fiji-evian-voss.html
-
-**Pressure Builds at American Airlines as It Lags Delta and United**\
-`American flies more travelers than any other U.S. carrier, but debt, fuel costs and mistakes have left it losing money while other big airlines report billions in profits.`\
-https://www.nytimes.com/2026/11/24/business/american-airlines-delta-united.html
-
-**Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
-`The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
-https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html
 
