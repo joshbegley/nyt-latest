@@ -1,3 +1,7 @@
+**Blanche Downplays Questions Over Nvidia as Company’s Customers Come Under Scrutiny**\
+`The remarks came even as Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
+https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
+
 **‘Carthage Resident Al Gore’ Buys His Hometown Tennessee Newspaper**\
 `The Carthage Courier announced this week that the former vice president was buying the weekly paper, which has been publishing since 1913.`\
 https://www.nytimes.com/2026/11/24/business/media/al-gore-newspaper-carthage-courier.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.
 **Street Style Look of the Week: Loud Colors, Bold Patterns and a Faux Fox**\
 `Eriko Iwase, a Japanese language instructor, pulled out all the stops when getting dressed on a recent Tuesday off in Tokyo.`\
 https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
-
-**Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
-`Some shoppers have “Black Friday fatigue” from sales that began as early as the first week in November.`\
-https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
 
