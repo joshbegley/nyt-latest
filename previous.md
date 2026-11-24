@@ -1,3 +1,7 @@
+**Hakeem Jeffries on Whether He Will Continue to Accept AIPAC Donations**\
+`Hakeem Jeffries has been nominated to be the next speaker of the House. On “The Interview,” he was asked about how he would handle donations from the American Israel Public Affairs Committee, or AIPAC, one of the biggest spenders in American elections.`\
+https://www.nytimes.com/video/podcasts/100000011302859/hakeem-jeffries-on-whether-he-will-continue-to-accept-aipac-donations.html
+
 **Officials Dismiss Rental Car Felony Charge for Incoming House Democrat**\
 `Representative-elect LaKesha Womack in North Carolina had been issued a criminal summons at a campaign rally last month about a rental vehicle she had failed to return in 2019.`\
 https://www.nytimes.com/2026/11/24/us/lakesha-womack-rental-car-felony-charge-dismissed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
 **How Huang’s Return Rewrote Corporate America’s Rules**\
 `The reinstatement of Jensen Huang atop Nvidia, following pressure from President Trump, shattered norms for corporate governance. What comes next is unclear.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
-
-**2 Men Arrested on Suspicion of Breaking Into Prince William and Kate’s Country Home**\
-`The men were arrested near Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
-https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
 

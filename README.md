@@ -1,3 +1,7 @@
+**‘Carthage Resident Al Gore’ Buys His Hometown Tennessee Newspaper**\
+`The Carthage Courier announced this week that the former vice president was buying the weekly paper, which has been publishing since 1913.`\
+https://www.nytimes.com/2026/11/24/business/media/al-gore-newspaper-carthage-courier.html
+
 **Hakeem Jeffries on Whether He Will Continue to Accept AIPAC Donations**\
 `Hakeem Jeffries has been nominated to be the next speaker of the House. On “The Interview,” he was asked about how he would handle donations from the American Israel Public Affairs Committee, or AIPAC, one of the biggest spenders in American elections.`\
 https://www.nytimes.com/video/podcasts/100000011302859/hakeem-jeffries-on-whether-he-will-continue-to-accept-aipac-donations.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.
 **Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
 `Some shoppers have “Black Friday fatigue” from sales that began as early as the first week in November.`\
 https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
-
-**How Huang’s Return Rewrote Corporate America’s Rules**\
-`The reinstatement of Jensen Huang atop Nvidia, following pressure from President Trump, shattered norms for corporate governance. What comes next is unclear.`\
-https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
 
