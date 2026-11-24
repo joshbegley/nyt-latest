@@ -1,3 +1,11 @@
+**Iowans Brace for a Toxic Plume on the Eve of a Planned Explosion**\
+`Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
+https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
+
+**Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. His decision came as he faced the prospect that the administration might decide his fate for him and deport him to Liberia.`\
+https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
+
 **DealBook Summit 2026: The Cost of Being Pragmatic in a Chaotic World**\
 `At the summit marking DealBook’s 25th year, business leaders explored the dangers of mistrust in turbulent times.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/world-chaos-pragmatism.html
