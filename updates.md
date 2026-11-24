@@ -1,3 +1,15 @@
+**‘Play That Goes Wrong’ Team to Bring Spy Spoof to Broadway**\
+`“The Comedy About Spies,” which had an earlier run in London, will be part of New York’s play-heavy spring season.`\
+https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.html
+
+**Street Style Look of the Week: Loud Colors, Bold Patterns and a Faux Fox**\
+`Eriko Iwase, a Japanese language instructor, pulled out all the stops when getting dressed on a recent Tuesday off in Tokyo.`\
+https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
+
+**Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
+`Sales start earlier and seem to drag on endlessly, giving some shoppers “Black Friday fatigue.”`\
+https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
+
 **Prince William and Catherine’s Country Home Broken Into, Police Say**\
 `The men were arrested at Anmer Hall, the couple’s retreat in Norfolk, on Monday night.`\
 https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html

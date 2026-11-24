@@ -1,3 +1,15 @@
+**‘Play That Goes Wrong’ Team to Bring Spy Spoof to Broadway**\
+`“The Comedy About Spies,” which had an earlier run in London, will be part of New York’s play-heavy spring season.`\
+https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.html
+
+**Street Style Look of the Week: Loud Colors, Bold Patterns and a Faux Fox**\
+`Eriko Iwase, a Japanese language instructor, pulled out all the stops when getting dressed on a recent Tuesday off in Tokyo.`\
+https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
+
+**Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
+`Sales start earlier and seem to drag on endlessly, giving some shoppers “Black Friday fatigue.”`\
+https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
+
 **How Huang’s Return Rewrote Corporate America’s Rules**\
 `The reinstatement of Jensen Huang atop Nvidia, following pressure from President Trump, shattered norms for corporate governance. What comes next is unclear.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/24/world/women-leadership-road-safety-nneka-henr
 **5 Women on the Decisions That Shaped Their Careers in Food and Drink**\
 `We asked these global leaders in the food and drink world to pinpoint a pivotal time in their lives, and here’s what they shared.`\
 https://www.nytimes.com/2026/11/24/dining/women-chefs-wineries-nonprofits.html
-
-**Lisa L. Thompson Is Bringing More Women Into the Pulpit — and the Classroom**\
-`Lisa L. Thompson is Union Theological Seminary’s first Black president. She hopes to make the university as accessible as possible.`\
-https://www.nytimes.com/2026/11/24/nyregion/aliya-latif.html
-
-**Word of the Day: delectable**\
-`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/24/learning/word-of-the-day-delectable.html
-
-**MAGA Attacked Harvard. So Harvard Taught a Class About It.**\
-`The Make America Great Again movement wants to remake Harvard. Harvard has a class for that.`\
-https://www.nytimes.com/2026/11/24/us/harvard-maga-class.html
 
