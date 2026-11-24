@@ -1,3 +1,11 @@
+**Stocks Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
+`Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
+https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
+
+**For China, Jensen Huang’s Return to Nvidia Is a Mixed Blessing**\
+`Beijing may welcome the return of the leading U.S. advocate for A.I. chip sales to China. But the saga could reinforce a Chinese push for self-reliance, analysts say.`\
+https://www.nytimes.com/2026/11/24/world/asia/jensen-huang-nvidia-china.html
+
 **Some Haitian Families Fleeing the U.S. for Canada Are Being Separated at the Border**\
 `Driven to Canada by deportation fears, some members of Haitian families are being denied entry, turned back and detained by U.S. authorities.`\
 https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.html

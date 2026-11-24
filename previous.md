@@ -1,3 +1,11 @@
+**Stocks Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
+`Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
+https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
+
+**For China, Jensen Huang’s Return to Nvidia Is a Mixed Blessing**\
+`Beijing may welcome the return of the leading U.S. advocate for A.I. chip sales to China. But the saga could reinforce a Chinese push for self-reliance, analysts say.`\
+https://www.nytimes.com/2026/11/24/world/asia/jensen-huang-nvidia-china.html
+
 **Too Big to Fail**\
 `We look at Jensen Huang’s return to Nvidia.`\
 https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.h
 **Why Chicago’s Tax Incentive Program Fell Short in Low-Income Neighborhoods**\
 `An examination by The Times shows how a tax incentive program that transformed downtown has left some poorer neighborhoods overlooked and neglected.`\
 https://www.nytimes.com/2026/11/24/us/chicago-tax-incentives-low-income-neighborhoods.html
-
-**‘A Wolf in the Suburbs’: An Olympian’s War Against the Suburban Lawn**\
-`This is the story of an Olympic canoeist and one very controversial lawn.`\
-https://www.nytimes.com/2026/11/24/opinion/wild-yards-lawns-nature-wolf-ruck-canada.html
-
-**A Wolf in the Suburbs**\
-`This is the story of a Canadian city, an Olympic canoeist and one very controversial lawn.`\
-https://www.nytimes.com/video/opinion/100000011231356/a-wolf-in-the-suburbs.html
 
