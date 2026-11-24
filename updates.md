@@ -1,3 +1,7 @@
+**Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
+`Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
+https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
+
 **Top Aviation Officials Were Traveling When F.A.A.’s Nationwide Ground Stop Halted Flights**\
 `Transportation administrators and some key executives for the contractor handling an equipment upgrade were in transit on Nov. 13, highlighting that Friday can be a bad day for something to go wrong.`\
 https://www.nytimes.com/2026/11/24/business/l3harris-ground-stop-aviation.html
