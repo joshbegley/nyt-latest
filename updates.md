@@ -1,3 +1,7 @@
+**Too Big to Fail**\
+`We look at Jensen Huang’s return to Nvidia.`\
+https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
+
 **Why Trump Pushed to Save Jensen Huang, and Iowa Braces for a Toxic Explosion**\
 `Plus, how A.I. is tackling one of Hollywood’s most tedious jobs.`\
 https://www.nytimes.com/2026/11/24/podcasts/the-headlines/trump-jensen-huang-iowa-toxic-explosion.html

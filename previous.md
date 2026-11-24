@@ -1,3 +1,7 @@
+**Too Big to Fail**\
+`We look at Jensen Huang’s return to Nvidia.`\
+https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
+
 **Why Trump Pushed to Save Jensen Huang, and Iowa Braces for a Toxic Explosion**\
 `Plus, how A.I. is tackling one of Hollywood’s most tedious jobs.`\
 https://www.nytimes.com/2026/11/24/podcasts/the-headlines/trump-jensen-huang-iowa-toxic-explosion.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/opinion/wild-yards-lawns-nature-wolf-ruck-can
 **A Wolf in the Suburbs**\
 `This is the story of a Canadian city, an Olympic canoeist and one very controversial lawn.`\
 https://www.nytimes.com/video/opinion/100000011231356/a-wolf-in-the-suburbs.html
-
-**6 Craft Retreats Offer Knitting, Pottery and More for All Skill Levels**\
-`Interest in crafting hobbies, like knitting or pottery, isn’t new, but several factors in the wake of the pandemic have also made them appealing. Here are some suggestions for hands-on retreats.`\
-https://www.nytimes.com/2026/11/24/travel/crafting-retreat-grandma-hobbies.html
 
