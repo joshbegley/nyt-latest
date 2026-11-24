@@ -1,3 +1,7 @@
+**Army Addresses Concerns Over Detonating Dangerous Explosives in Iowa**\
+`On Wednesday, the Army plans to detonate a cache of dangerous explosives. The lead azide is degrading and cannot be moved. The Army reassured the public on Tuesday that it had taken the appropriate safety measures to mitigate the effects of the blast.`\
+https://www.nytimes.com/video/us/100000011305294/iowa-lead-azide-detonation-safety-concerns.html
+
 **Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
 `The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
 https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/opinion/trump-vought-government-accountabilit
 **I Stole My Colleagues’ Packages to Help Protect Yours**\
 `You can take simple steps to ensure you receive your orders this season and beyond.`\
 https://www.nytimes.com/2026/11/24/podcasts/i-stole-my-colleagues-packages-to-help-protect-yours.html
-
-**Corrections: Nov. 24, 2026**\
-`Corrections that appeared in print on Tuesday, Nov. 24, 2026.`\
-https://www.nytimes.com/2026/11/24/pageoneplus/corrections-nov-24-2026.html
 
