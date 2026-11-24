@@ -1,3 +1,11 @@
+**China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
+`Before his abrupt downfall, the technocratic Chen Jining was seen a future national leader in Xi Jinping’s China.`\
+https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
+
+**Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
+`Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
+https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
+
 **Stocks Set to Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
 `Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html

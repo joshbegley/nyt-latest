@@ -1,8 +1,12 @@
+**China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
+`Before his abrupt downfall, the technocratic Chen Jining was seen a future national leader in Xi Jinping’s China.`\
+https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
+
 **Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
 `Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
 
-**Stocks Set to Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
+**Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
 `Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
 
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/learning/how-do-you-bring-joy-to-your-life.ht
 **Is There Such a Thing as Too Much Sleep?**\
 `We asked experts whether getting more than the typical seven to nine hours was cause for concern.`\
 https://www.nytimes.com/2026/11/24/well/too-much-sleep.html
-
-**Some Haitian Families Fleeing the U.S. for Canada Are Being Separated at the Border**\
-`Driven to Canada by deportation fears, some members of Haitian families are being denied entry, turned back and detained by U.S. authorities.`\
-https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.html
 
