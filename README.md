@@ -1,3 +1,11 @@
+**Maps: Tracking the Iowa Ammunition Plant Detonation**\
+`See locations and forecasts related to the planned explosion.`\
+https://www.nytimes.com/interactive/2026/11/24/weather/iowa-maps-lead-wind.html
+
+**Prosecutor Urged Justice Dept. to Reconsider Charges Against Fugitive, Email Shows**\
+`Aaron Reitz, the U.S. attorney in Houston, questioned the indictment of a Chicago doctor who fled the country after being accused of defrauding taxpayers. The man later donated to Mr. Reitz’s campaign.`\
+https://www.nytimes.com/2026/11/24/us/politics/aaron-reitz-justice-dept-anosh-ahmed.html
+
 **Blanche Downplays Questions Over Nvidia as Company’s Customers Come Under Scrutiny**\
 `The remarks came even as Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
 https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/24/business/american-airlines-delta-united.html
 **Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
 `The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
 https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html
-
-**‘Play That Goes Wrong’ Team to Bring Spy Spoof to Broadway**\
-`“The Comedy About Spies,” which had an earlier run in London, will be part of New York’s play-heavy spring season.`\
-https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.html
-
-**Street Style Look of the Week: Loud Colors, Bold Patterns and a Faux Fox**\
-`Eriko Iwase, a Japanese language instructor, pulled out all the stops when getting dressed on a recent Tuesday off in Tokyo.`\
-https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
 
