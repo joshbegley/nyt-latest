@@ -1,3 +1,15 @@
+**Radio Offers Russian Troops Classic Rock, Nostalgia — and Pleas to Surrender**\
+`What seem like frontline Russian radio stations are actually a Ukrainian psychological operation, hoping to sow despair among the Kremlin’s soldiers.`\
+https://www.nytimes.com/2026/11/24/world/europe/ukraine-russia-psyops-radio-izium.html
+
+**Quote of the Day: It Feels Like Chaos; It May Be Beginning of Technological Age**\
+`Quotation of the Day for Tuesday, November 24, 2026.`\
+https://www.nytimes.com/2026/11/24/pageoneplus/quote-of-the-day-it-feels-like-chaos-it-may-be-beginning-of-technological-age.html
+
+**From the Front Page: Jack Ruby Kills Lee Harvey Oswald on Nov. 24, 1963**\
+`Oswald, the man accused of assassinating President John F. Kennedy, was shot while in police custody in Dallas.`\
+https://www.nytimes.com/2026/11/24/learning/from-the-front-page-jack-ruby-kills-lee-harvey-oswald-on-nov-24-1963.html
+
 **No. 2 Official at F.B.I. Is Said to Be Retiring Before End of Year**\
 `The departure of Christopher G. Raia, a veteran agent, comes a few months after another deputy left the F.B.I.`\
 https://www.nytimes.com/2026/11/23/us/politics/fbi-raia-retiring.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tend
 **Court Clears the Way for Iowa Ammunition Detonation; Trump Addresses the Crisis**\
 `The announcement late Monday capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
-
-**The Jensen Huang Story Is Not Over**\
-`In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011303262/the-jensen-huang-story-is-not-over.html
-
-**Fake Personas Aligned With China Are Targeting Taiwan’s Election, Researchers Say**\
-`A tool developed by researchers at Vanderbilt University is detecting A.I.-generated social media posts that support the policies of the Chinese Communist Party.`\
-https://www.nytimes.com/2026/11/23/us/politics/taiwan-elections-misinformation.html
-
-**Sebastián Lelio, Director of Nuanced Film Portraits of Women, Dies at 52**\
-`Taking aim at “respectable” society, he featured a transgender character in “A Fantastic Woman,” which won an Academy Award.`\
-https://www.nytimes.com/2026/11/23/movies/sebastian-lelio-dead.html
 

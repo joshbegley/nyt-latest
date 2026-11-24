@@ -1,3 +1,15 @@
+**Radio Offers Russian Troops Classic Rock, Nostalgia — and Pleas to Surrender**\
+`What seem like frontline Russian radio stations are actually a Ukrainian psychological operation, hoping to sow despair among the Kremlin’s soldiers.`\
+https://www.nytimes.com/2026/11/24/world/europe/ukraine-russia-psyops-radio-izium.html
+
+**Quote of the Day: It Feels Like Chaos; It May Be Beginning of Technological Age**\
+`Quotation of the Day for Tuesday, November 24, 2026.`\
+https://www.nytimes.com/2026/11/24/pageoneplus/quote-of-the-day-it-feels-like-chaos-it-may-be-beginning-of-technological-age.html
+
+**From the Front Page: Jack Ruby Kills Lee Harvey Oswald on Nov. 24, 1963**\
+`Oswald, the man accused of assassinating President John F. Kennedy, was shot while in police custody in Dallas.`\
+https://www.nytimes.com/2026/11/24/learning/from-the-front-page-jack-ruby-kills-lee-harvey-oswald-on-nov-24-1963.html
+
 **No. 2 Official at F.B.I. Is Said to Be Retiring Before End of Year**\
 `The departure of Christopher G. Raia, a veteran agent, comes a few months after another deputy left the F.B.I.`\
 https://www.nytimes.com/2026/11/23/us/politics/fbi-raia-retiring.html
