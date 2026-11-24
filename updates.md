@@ -1,3 +1,7 @@
+**Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
+`Shares have veered wildly for days, pushed and pulled by the drama at Nvidia and the rise and fall of Anthropic’s stock after its blockbuster public offering.`\
+https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
+
 **China Investigates Chen Jining, Shanghai’s Party Leader, as Xi’s Purges Expand**\
 `Before his abrupt downfall, the technocratic Chen Jining was seen as a future national leader in Xi Jinping’s China.`\
 https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigation-china-xi.html
