@@ -1,3 +1,11 @@
+**‘Smells Like Home’: An Old-School Grocery Is Set to Close After 99 Years**\
+`Zingone Bros. is beloved on the Upper West Side. That might not be enough to keep it open.`\
+https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
+
+**Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
+`Freezing temperatures threaten to make the degrading explosives even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
+https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
+
 **Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
 `Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
 https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/business/nvidia-alice-huang-china.html
 **Is This Robot the Next Labubu?**\
 `A Japanese robotic toy is the hottest new trend in bag accessories. Our reporter Alisha Haridasani Gupta explores the evolution of these accessories and why they’re so appealing to adults.`\
 https://www.nytimes.com/video/style/100000011290319/is-this-robot-the-next-labubu.html
-
-**Shrinking Back an Expanded Sea Ranch Model Home**\
-`An expanded 750-square-foot prototype was renewed in the spirt of its original design.`\
-https://www.nytimes.com/2026/11/24/realestate/sea-ranch-model-home-renovation-restoration.html
-
-**‘Rob Lowe: The Outsider’ Review: The Perils of Early Fame**\
-`This documentary explores the paradox of the title subject’s 1980s fame as one of the hottest young actors in Hollywood, and perhaps one of the most lost.`\
-https://www.nytimes.com/2026/11/24/movies/rob-lowe-the-outsider-review.html
 
