@@ -1,3 +1,7 @@
+**California King Tides Threaten ‘Extreme’ Coastal Flooding**\
+`A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
+https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
+
 **What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
 `Pablo and chef Dave Chang investigate.`\
 https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html

@@ -1,3 +1,7 @@
+**Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
+`Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
+https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
+
 **California King Tides Threaten ‘Extreme’ Coastal Flooding**\
 `A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
 https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/nyregion/jane-fonda-deniro-schumer-van-hollen
 **The Teenage Graffiti King and the Wall He Left Behind**\
 `David Smith, better known as “Sane,” was one of New York City’s most-wanted vandals in the 1980s. A Queens couple is on a quest to keep his legacy alive.`\
 https://www.nytimes.com/2026/11/24/nyregion/the-teenage-graffiti-king-and-the-wall-he-left-behind.html
-
-**NYT Spelling Bee Answers for November 24, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/24/crosswords/spelling-bee-forum.html
 
