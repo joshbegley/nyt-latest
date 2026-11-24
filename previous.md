@@ -1,3 +1,15 @@
+**‘Saturday Night Live’ Is Coming to France**\
+`A French adaptation of the American sketch comedy institution will premiere next month on the premium channel Canal+. It comes as a British version is hitting a stride.`\
+https://www.nytimes.com/2026/11/24/arts/television/snl-france.html
+
+**Trump Awards Rudy Giuliani Presidential Medal of Freedom**\
+`The award honored a Trump ally who was once known as “America’s mayor” but whose reputation was tarnished by his efforts to overturn the 2020 election on behalf of the president.`\
+https://www.nytimes.com/2026/11/24/us/politics/trump-rudy-giuliani-presidential-medal-of-freedom.html
+
+**Thelma Golden to Step Down as Head of Studio Museum in Harlem**\
+`After 21 years at the helm of the Studio Museum in Harlem, where she completed its new home and helped redefine the art canon, Thelma Golden has decided it’s time to go.`\
+https://www.nytimes.com/2026/11/24/arts/design/thelma-golden-steps-down-studio-museum-harlem.html
+
 **National Security vs. the Stock Market**\
 `President Trump swept aside concerns about possible espionage when he lobbied Nvidia’s board to reinstate Jensen Huang as chief executive.`\
 https://www.nytimes.com/2026/11/24/world/nvidia-trump-stocks-china-books.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/11/24/climate/iowas-toxic-explosion.html
 `Readers wrote in with their winter travel quandaries. Here are our ideas for them.`\
 https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
 
-**Some Critics of Jensen Huang’s Reinstatement Point to Double Standard**\
+**Some Critics of Jensen Huang’s Reinstatement Suggest Double Standard**\
 `After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
 https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
 
@@ -90,7 +102,7 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-
 `Blurry surveillance footage spurred a frantic search — until the Turkish authorities said it was unclear whether the animal was the feline.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
 
-**‘Smells Like Home’: An Old-School Grocery Is Set to Close After 99 Years**\
+**An Adored Manhattan Grocery, and Seinfeld Favorite, May Close Its Doors**\
 `Zingone Bros. is beloved on the Upper West Side. That might not be enough to keep it open.`\
 https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
 
@@ -181,16 +193,4 @@ https://www.nytimes.com/2026/11/24/world/asia/shanghai-party-leader-investigatio
 **Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
 `Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
-
-**Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
-`Shares have veered wildly for days, pushed and pulled by the drama at Nvidia and the rise and fall of Anthropic’s stock after its blockbuster public offering.`\
-https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
-
-**For China, Jensen Huang’s Return to Nvidia Is a Mixed Blessing**\
-`Beijing may welcome the return of the leading U.S. advocate for A.I. chip sales to China. But the saga could reinforce a Chinese push for self-reliance, analysts say.`\
-https://www.nytimes.com/2026/11/24/world/asia/jensen-huang-nvidia-china.html
-
-**Too Big to Fail**\
-`We look at Jensen Huang’s return to Nvidia.`\
-https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
 
