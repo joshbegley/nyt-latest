@@ -1,5 +1,9 @@
+**How Huang’s Return Rewrote Corporate America’s Rules**\
+`The reinstatement of Jensen Huang atop Nvidia, following pressure from President Trump, shattered norms for corporate governance. What comes next is unclear.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
+
 **Prince William and Catherine’s Country Home Broken Into, Police Say**\
-`Two men have been arrested on suspicion of breaking into Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
+`The men were arrested at Anmer Hall, the couple’s retreat in Norfolk, on Monday night, the police said.`\
 https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
 
 **Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/learning/word-of-the-day-delectable.html
 **MAGA Attacked Harvard. So Harvard Taught a Class About It.**\
 `The Make America Great Again movement wants to remake Harvard. Harvard has a class for that.`\
 https://www.nytimes.com/2026/11/24/us/harvard-maga-class.html
-
-**This Grand Theft Auto Neighborhood Led to a Lawsuit**\
-`Decades ago, Rockstar Games edited dialogue in Grand Theft Auto: Vice City after controversy over a mission in Little Haiti.`\
-https://www.nytimes.com/2026/11/24/arts/grand-theft-auto-vi-little-haiti-vice-city-miami.html
 
