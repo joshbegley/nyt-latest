@@ -1,3 +1,7 @@
+**Court Greenlights Controversial Plan to Detonate Dangerous Explosive in Iowa**\
+`The U.S. Army is planning to detonate lead azide, an explosive used in military munitions, which could set off a plume of toxic lead dust over towns in Iowa. But locals and environmental groups have expressed concerns over the plan.`\
+https://www.nytimes.com/video/us/100000011302420/court-greenlights-controversial-plan-to-detonate-dangerous-explosive-in-iowa.html
+
 **OpenAI Engineer Secretly Recorded Dozens of Meetings, Prosecutors Say**\
 `A court filing said the engineer captured meetings on customers, A.I. safety and a foreign government briefing. Federal prosecutors are investigating what he did with the recordings.`\
 https://www.nytimes.com/2026/11/23/technology/openai-engineer-secret-recordings.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/theater/elektra-la-distance-bam-theater-new-a
 **Over 700,000 Russian Soldiers Have Died in Ukraine, Analysis Indicates**\
 `Hacked government data underscores the immense human cost of President Vladimir V. Putin’s war of attrition.`\
 https://www.nytimes.com/2026/11/23/world/europe/russia-ukraine-war-deaths.html
-
-**Why Trump Wanted Jensen Huang Back**\
-`In this episode of “The Call,” Michael Barbaro, host of “The Daily,” calls The Times’s White House correspondent Jonathan Swan to respond to the breaking news of Jensen Huang being reinstated as C.E.O., president and a member of the board at Nvidia.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011302909/why-trump-wanted-jensen-huang-back.html
 
