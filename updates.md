@@ -1,3 +1,7 @@
+**Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
+`A day after returning to his company, Mr. Huang acknowledged that he had violated Nvidia’s code of conduct and “made some terrible mistakes.”`\
+https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
+
 **‘The Further Mis-Adventures of Cliff Booth’ Review: Golden-Boy Fumes**\
 `Quentin Tarantino wrote, and David Fincher directed, this movie starring Brad Pitt, which picks up with the stuntman character he played in “Once Upon a Time … in Hollywood.”`\
 https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-booth-review.html

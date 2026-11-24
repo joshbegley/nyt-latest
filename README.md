@@ -1,3 +1,7 @@
+**National Security vs. the Stock Market**\
+`President Trump swept aside concerns about possible espionage when he lobbied Nvidia’s board to reinstate Jensen Huang as chief executive.`\
+https://www.nytimes.com/2026/11/24/world/nvidia-trump-stocks-china-books.html
+
 **‘The Further Mis-Adventures of Cliff Booth’ Review: Golden-Boy Fumes**\
 `Quentin Tarantino wrote, and David Fincher directed, this movie starring Brad Pitt, which picks up with the stuntman character he played in “Once Upon a Time … in Hollywood.”`\
 https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-booth-review.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/asia/jensen-huang-nvidia-china.html
 **Too Big to Fail**\
 `We look at Jensen Huang’s return to Nvidia.`\
 https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
-
-**Why Trump Pushed to Save Jensen Huang, and Iowa Braces for a Toxic Explosion**\
-`Plus, how A.I. is tackling one of Hollywood’s most tedious jobs.`\
-https://www.nytimes.com/2026/11/24/podcasts/the-headlines/trump-jensen-huang-iowa-toxic-explosion.html
 

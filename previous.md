@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
 https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
 
 **Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
-`A day after returning to his company, Mr. Huang acknowledged that he violated Nvidia’s code of conduct and that he “made some terrible mistakes.”`\
+`A day after returning to his company, Mr. Huang acknowledged that he had violated Nvidia’s code of conduct and “made some terrible mistakes.”`\
 https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
 
 **Unstoppable Crowds Are Meeting Up to Push Immovable Objects**\
