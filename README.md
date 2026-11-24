@@ -1,3 +1,11 @@
+**Mary Peacock Has Died. She Found Style on the Streets. (Not Fifth Avenue.)**\
+`A founder of the influential Rags magazine and a style savant at The Village Voice, she celebrated fashion at the ground level. She was 84.`\
+https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
+
+**This Danish Man Was a Rare Witness to the Agricultural Revolution**\
+`Excavated in 1956, “Rodhals Man” lived — and ate — at the cusp of one of the biggest shifts in human history, a new study says.`\
+https://www.nytimes.com/2026/11/24/science/rodhals-man-neolithic-farming-witness.html
+
 **Trump Was Warned About Jensen Huang. He Didn't Care.**\
 `President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/movies/rob-lowe-the-outsider-review.html
 **A Riveting ‘Seven Guitars,’ Led by Actors Fluent in Wilson’s Blues**\
 `The director Ruben Santiago-Hudson and a stellar ensemble bring this Off Broadway revival, about a musician seeking redemption, to exuberant life.`\
 https://www.nytimes.com/2026/11/24/theater/seven-guitars-review-hornsby-santiago-hudson.html
-
-**Medicare Hospice Caps Leave Patients Without Care**\
-`Critics say the payment limits to companies penalize patients who are not dying on the government’s timetable.`\
-https://www.nytimes.com/2026/11/24/business/medicare-hospice-caps-patients-lose-care.html
-
-**Issey Miyake’s Satoshi Kondo Shares His Creative Influences**\
-`Satoshi Kondo, the head of women’s wear for the Japanese brand, offers a look inside his creative world.`\
-https://www.nytimes.com/2026/11/24/t-magazine/satoshi-kondo-influences-issey-miyake.html
 
