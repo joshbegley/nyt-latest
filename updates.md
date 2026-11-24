@@ -1,3 +1,7 @@
+**Jensen Huang is back as Nvidia C.E.O.**\
+`Jensen Huang is back at Nvidia. Guest host Max Read gets the story behind the reversal from Huang biographer Stephen Witt (“The Thinking Machine”) and Jonathan Swan, a White House reporter for The New York Times.`\
+https://www.nytimes.com/video/podcasts/100000011303332/jensen-huang-is-back-as-nvidia-ceo.html
+
 **Judges Open Door for Trump to Win Appeal in Stormy Daniels Case**\
 `A three-judge panel ruled that a lower court had erred in denying President Trump’s request to move his case out of state court, where he was convicted on 34 felony counts.`\
 https://www.nytimes.com/2026/11/23/nyregion/trump-conviction-appeal-federal-court.html
