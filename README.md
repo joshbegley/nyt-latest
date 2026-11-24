@@ -1,3 +1,7 @@
+**Iranian Singer Receives 74 Lashes for Performing With No Hijab**\
+`Parastoo Ahmadi sang without wearing the mandatory veil in a virtual concert in 2024 that spread quickly online and drew the ire of the Islamic republic authorities.`\
+https://www.nytimes.com/2026/11/24/world/middleeast/iran-singer-parastoo-ahmadi-flogging-lashes.html
+
 **Stocks Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
 `Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/well/too-much-sleep.html
 **Some Haitian Families Fleeing the U.S. for Canada Are Being Separated at the Border**\
 `Driven to Canada by deportation fears, some members of Haitian families are being denied entry, turned back and detained by U.S. authorities.`\
 https://www.nytimes.com/2026/11/24/us/haitians-deportations-canada-immigration.html
-
-**Why Chicago’s Tax Incentive Program Fell Short in Low-Income Neighborhoods**\
-`An examination by The Times shows how a tax incentive program that transformed downtown has left some poorer neighborhoods overlooked and neglected.`\
-https://www.nytimes.com/2026/11/24/us/chicago-tax-incentives-low-income-neighborhoods.html
 
