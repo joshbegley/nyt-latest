@@ -1,3 +1,23 @@
+**Why Trump Pushed to Save Jensen Huang, and Iowa Braces for a Toxic Explosion**\
+`Plus, how A.I. is tackling one of Hollywood’s most tedious jobs.`\
+https://www.nytimes.com/2026/11/24/podcasts/the-headlines/trump-jensen-huang-iowa-toxic-explosion.html
+
+**Too Big to Fire: Jensen Huang’s Return to Nvidia**\
+`President Trump set in motion a weekend of maneuvering to help reinstate Nvidia’s chief executive.`\
+https://www.nytimes.com/2026/11/24/podcasts/the-daily/too-big-to-fire-jensen-huangs-return-to-nvidia.html
+
+**Today’s Wordle Hints for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/wordle-review-1985.html
+
+**NYT Strands Hints for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/strands-sidekick-997.html
+
+**NYT Connections Answers for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/connections-companion-1263.html
+
 **Why the Nvidia Board Folded**\
 `The whole thing was a pointless and depressing exercise.`\
 https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
