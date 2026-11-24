@@ -54,8 +54,8 @@ https://www.nytimes.com/interactive/2026/11/24/weather/iowa-maps-lead-wind.html
 `Aaron Reitz, the U.S. attorney in Houston, questioned the indictment of a Chicago doctor who fled the country after being accused of defrauding taxpayers. The man later donated to Mr. Reitz’s campaign.`\
 https://www.nytimes.com/2026/11/24/us/politics/aaron-reitz-justice-dept-anosh-ahmed.html
 
-**Blanche Downplays Questions Over Nvidia as Company’s Customers Come Under Scrutiny**\
-`The remarks came even as Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
+**Blanche Downplays Questions Over Nvidia as Investigators Examine Company’s Customers**\
+`Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
 https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
 
 **‘Carthage Resident Al Gore’ Buys His Hometown Tennessee Newspaper**\
