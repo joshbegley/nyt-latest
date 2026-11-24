@@ -1,3 +1,7 @@
+**Pressure Builds at American Airlines as It Lags Delta and United**\
+`American flies more travelers than any other U.S. carrier, but debt, fuel costs and mistakes have left it losing money while other big airlines report billions in profits.`\
+https://www.nytimes.com/2026/11/24/business/american-airlines-delta-united.html
+
 **Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
 `The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
 https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/science/ancient-egyptian-cats-mummies.html
 **Massive London Barracks Site to Become Luxury Housing**\
 `For nearly two centuries, St. John’s Wood Square housed army barracks. Soon, it will hold 120 high-end residences.`\
 https://www.nytimes.com/2026/11/24/realestate/historic-barracks-site-is-londons-latest-luxury-development.html
-
-**A U.N. Leader Focuses on the Deadly Problem of Road Safety**\
-`Nneka Henry works for the United Nations to help develop solutions to the chaos and calamity caused by cars, motorcycles and scooters, and help drum up the resources to improve safety.`\
-https://www.nytimes.com/2026/11/24/world/women-leadership-road-safety-nneka-henry.html
 

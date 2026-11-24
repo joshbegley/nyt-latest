@@ -1,3 +1,7 @@
+**Pressure Builds at American Airlines as It Lags Delta and United**\
+`American flies more travelers than any other U.S. carrier, but debt, fuel costs and mistakes have left it losing money while other big airlines report billions in profits.`\
+https://www.nytimes.com/2026/11/24/business/american-airlines-delta-united.html
+
 **Stock Markets Slip as Nvidia and A.I. Stocks Erase Some of Monday’s Rally**\
 `Shares have veered wildly for days, pushed and pulled by the drama at Nvidia and the rise and fall of Anthropic’s stock after its blockbuster public offering.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
