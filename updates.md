@@ -1,3 +1,7 @@
+**Some Critics of Jensen Huang’s Reinstatement Point to Double Standard**\
+`After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
+https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
+
 **Iraq’s Prime Minister Aims to Wrest More Power from Kurdistan Region**\
 `Ali al-Zaidi, who just scored a symbolic victory against a powerful Iran-backed militia, has now moved to assert control over Kurdish border crossings and oil resources.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iraq-prime-minister-kurdistan-control.html

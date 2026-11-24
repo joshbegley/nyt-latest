@@ -1,3 +1,7 @@
+**Some Critics of Jensen Huang’s Reinstatement Point to Double Standard**\
+`After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
+https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
+
 **Iraq’s Prime Minister Aims to Wrest More Power from Kurdistan Region**\
 `Ali al-Zaidi, who just scored a symbolic victory against a powerful Iran-backed militia, has now moved to assert control over Kurdish border crossings and oil resources.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/iraq-prime-minister-kurdistan-control.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/crosswords/connections-companion-1263.html
 **Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
 `Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
 https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
-
-**California King Tides Threaten ‘Extreme’ Coastal Flooding**\
-`A storm that threatened to make tidal flooding worse appeared on track to miss the state, forecasters said. But Tuesday’s tides will still bring dangers.`\
-https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.html
 
