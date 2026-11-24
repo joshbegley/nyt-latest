@@ -1,3 +1,23 @@
+**Why Trump Pushed to Save Jensen Huang, and Iowa Braces for a Toxic Explosion**\
+`Plus, how A.I. is tackling one of Hollywood’s most tedious jobs.`\
+https://www.nytimes.com/2026/11/24/podcasts/the-headlines/trump-jensen-huang-iowa-toxic-explosion.html
+
+**Too Big to Fire: Jensen Huang’s Return to Nvidia**\
+`President Trump set in motion a weekend of maneuvering to help reinstate Nvidia’s chief executive.`\
+https://www.nytimes.com/2026/11/24/podcasts/the-daily/too-big-to-fire-jensen-huangs-return-to-nvidia.html
+
+**Today’s Wordle Hints for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/wordle-review-1985.html
+
+**NYT Strands Hints for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/strands-sidekick-997.html
+
+**NYT Connections Answers for November 25, 2026**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
+https://www.nytimes.com/2026/11/24/crosswords/connections-companion-1263.html
+
 **Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
 `Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
 https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/opinion/100000011231356/a-wolf-in-the-suburbs.html
 **6 Craft Retreats Offer Knitting, Pottery and More for All Skill Levels**\
 `Interest in crafting hobbies, like knitting or pottery, isn’t new, but several factors in the wake of the pandemic have also made them appealing. Here are some suggestions for hands-on retreats.`\
 https://www.nytimes.com/2026/11/24/travel/crafting-retreat-grandma-hobbies.html
-
-**An Arctic Way of Life Fades as Norway Closes Its Last Coal Mine**\
-`The mining history of Svalbard goes back over a century. But this icy archipelago is now a cruise ship destination and a geopolitical hot spot.`\
-https://www.nytimes.com/2026/11/24/world/europe/norway-svalbard-arctic-last-coal-mine.html
-
-**The ‘Everywhere, All at Once’ Cybersecurity Crisis**\
-`The cybersecurity expert Nicole Perlroth explains why the digital world is in chaos.`\
-https://www.nytimes.com/video/opinion/100000011299691/the-everywhere-all-at-once-cybersecurity-crisis.html
-
-**High Tides and Storms Could Worsen Flooding on West Coast**\
-`Residents on the West Coast were bracing for high tides and storms that could worsen coastal flooding and disrupt Thanksgiving travel plans.`\
-https://www.nytimes.com/video/us/100000011304586/california-washington-king-tide-storm-preparation.html
-
-**Jane Fonda, DeNiro and Others Say Schumer Should Not Be Leader**\
-`In a letter signed by celebrities and other Democratic donors, the supporters of Senator Chris Van Hollen said a change in leadership was needed after the midterms.`\
-https://www.nytimes.com/2026/11/24/nyregion/jane-fonda-deniro-schumer-van-hollen.html
-
-**The Teenage Graffiti King and the Wall He Left Behind**\
-`David Smith, better known as “Sane,” was one of New York City’s most-wanted vandals in the 1980s. A Queens couple is on a quest to keep his legacy alive.`\
-https://www.nytimes.com/2026/11/24/nyregion/the-teenage-graffiti-king-and-the-wall-he-left-behind.html
 
