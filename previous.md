@@ -1,3 +1,7 @@
+**Jimmy Kimmel Clocks Trump’s Personal Investment in Jensen Huang**\
+`The late night host pointed to President Trump’s haranguing of the Nvidia board on Huang’s behalf: “And if you think that sounds fishy, it’s not — it’s called being a good friend.”`\
+https://www.nytimes.com/2026/11/24/arts/television/jimmy-kimmel-trump-jensen-huang.html
+
 **Pope Francis Diary Excerpts Published in New Book**\
 `Over decades, before and after he became leader of the Roman Catholic Church, Francis recorded occasional entries about his fears and doubts.`\
 https://www.nytimes.com/2026/11/24/world/europe/pope-francis-diary.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvi
 **What Hakeem Jeffries Thinks of Stephen Miller**\
 `On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
 https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
-
-**Germany to Return Archive Documenting Nazi Abuses to Jehovah’s Witnesses**\
-`The announcement follows a lawsuit in which the religious group had sought to reclaim the archive, which is held by a German museum.`\
-https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jehovahs-witnesses.html
 
