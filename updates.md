@@ -1,3 +1,11 @@
+**An Explosion Is Coming to Iowa. And Residents Can’t Do a Thing About It.**\
+`Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
+https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
+
+**Blanche Downplays Questions Over Nvidia as Investigators Examine Company’s Customers**\
+`Justice Department investigators have gathered evidence of Nvidia’s high-powered computer chips being illegally diverted by other firms to China, according to people familiar with the inquiries.`\
+https://www.nytimes.com/2026/11/24/us/politics/nvidia-justice-department-todd-blanche.html
+
 **Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
 `Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He had faced the prospect that the Trump administration might deport him to Liberia.`\
 https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
