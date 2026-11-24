@@ -1,4 +1,4 @@
-**Iowans Brace for a Toxic Plume on the Eve of a Planned Explosion**\
+**An Explosion Is Coming to Iowa. And Residents Can’t Do a Thing About It.**\
 `Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
 https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
 
