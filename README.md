@@ -1,3 +1,15 @@
+**100 Notable Books of 2025**\
+`Here is the standout fiction and nonfiction of the year, chosen by the staff of The New York Times Book Review.`\
+https://www.nytimes.com/2026/11/23/books/review/notable-books.html
+
+**NYT Crossword Answers for Nov. 24, 2026**\
+`Karen Lurie and Peter Gwinn make their New York Times Crossword collaboration debut.`\
+https://www.nytimes.com/2026/11/23/crosswords/daily-puzzle-2026-11-24.html
+
+**Which Notable Book of 2026 Should I Read First? A Guide.**\
+`We’ve broken down our annual list by theme.`\
+https://www.nytimes.com/interactive/2026/11/23/books/book-recommendations-notables.html
+
 **Court Greenlights Controversial Plan to Detonate Dangerous Explosive in Iowa**\
 `The U.S. Army is planning to detonate lead azide, an explosive used in military munitions, which could set off a plume of toxic lead dust over towns in Iowa. But locals and environmental groups have expressed concerns over the plan.`\
 https://www.nytimes.com/video/us/100000011302420/court-greenlights-controversial-plan-to-detonate-dangerous-explosive-in-iowa.html
@@ -177,16 +189,4 @@ https://www.nytimes.com/2026/11/23/movies/sebastian-lelio-dead.html
 **Trump Draws Bipartisan Criticism for Pushing to Reinstate Jensen Huang as Nvidia CEO**\
 `Politicians in both parties questioned the move, with some asking whether the president was prioritizing the stock market over national security.`\
 https://www.nytimes.com/2026/11/23/us/politics/trump-nvidia-huang-congress-criticism.html
-
-**As Tides Near Record Levels in California, a Storm Threatens to Make Things Worse**\
-`High tides reaching two or more feet above normal may cause flooding this week, forecasters warned.`\
-https://www.nytimes.com/2026/11/23/weather/california-king-tides-storm.html
-
-**A Vibrating Rage Runs Through ‘Elektra’ and ‘La Distance’**\
-`Daughters find themselves hating what their fathers left them in two plays now in Brooklyn. One woman burns her world down; the other one abandons it.`\
-https://www.nytimes.com/2026/11/23/theater/elektra-la-distance-bam-theater-new-audience-brooklyn.html
-
-**Over 700,000 Russian Soldiers Have Died in Ukraine, Analysis Indicates**\
-`Hacked government data underscores the immense human cost of President Vladimir V. Putin’s war of attrition.`\
-https://www.nytimes.com/2026/11/23/world/europe/russia-ukraine-war-deaths.html
 

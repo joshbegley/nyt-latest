@@ -1,3 +1,7 @@
+**Court Greenlights Controversial Plan to Detonate Dangerous Explosive in Iowa**\
+`The U.S. Army is planning to detonate lead azide, an explosive used in military munitions, which could set off a plume of toxic lead dust over towns in Iowa. But locals and environmental groups have expressed concerns over the plan.`\
+https://www.nytimes.com/video/us/100000011302420/court-greenlights-controversial-plan-to-detonate-dangerous-explosive-in-iowa.html
+
 **OpenAI Engineer Secretly Recorded Dozens of Meetings, Prosecutors Say**\
 `A court filing said the engineer captured meetings on customers, A.I. safety and a foreign government briefing. Federal prosecutors are investigating what he did with the recordings.`\
 https://www.nytimes.com/2026/11/23/technology/openai-engineer-secret-recordings.html
