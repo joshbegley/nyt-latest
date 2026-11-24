@@ -171,7 +171,7 @@ https://www.nytimes.com/2026/11/23/arts/design/kusserow-archive-nazi-abuses-jeho
 https://www.nytimes.com/2026/11/23/nyregion/zohran-mamdani-surgery-achilles-tendon.html
 
 **Court Clears the Way for Iowa Ammunition Detonation; Trump Addresses the Crisis**\
-`The ruling capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
+`The announcement late Monday capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
 https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
 
 **The Jensen Huang Story Is Not Over**\

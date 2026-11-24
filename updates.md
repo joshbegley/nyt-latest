@@ -1,3 +1,7 @@
+**Court Clears the Way for Iowa Ammunition Detonation; Trump Addresses the Crisis**\
+`The announcement late Monday capped a day of uncertainty in which President Trump spoke out on a crisis that threatens to launch a cloud of toxic lead dust across homes and farmland.`\
+https://www.nytimes.com/2026/11/23/climate/iowa-army-ammunition-explosion.html
+
 **100 Notable Books of 2026**\
 `Here is the standout fiction and nonfiction of the year, chosen by the staff of The New York Times Book Review.`\
 https://www.nytimes.com/2026/11/23/books/review/notable-books.html
