@@ -150,7 +150,7 @@ https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
 `Excavated in 1956, “Rodhals Man” lived — and ate — at the cusp of one of the biggest shifts in human history, a new study says.`\
 https://www.nytimes.com/2026/11/24/science/rodhals-man-neolithic-farming-witness.html
 
-**Trump Was Warned About Jensen Huang. He Didn't Care.**\
+**Trump Was Warned About Jensen Huang. He Didn’t Care.**\
 `President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
 
