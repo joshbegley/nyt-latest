@@ -1,3 +1,11 @@
+**A Cooking Show Wunderkind Grows Up and Slings Ramen**\
+`Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
+https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
+
+**Why Trump Isn't Worried About Jensen Huang**\
+`Jonathan Swan, a White House reporter for The New York Times, joined “The Daily” to explain why President Trump pushed Nvidia’s board of directors to have Jensen Huang reinstated as chief executive.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-worried-about-jensen-huang.html
+
 **A Lion on the Loose Near Istanbul? Not So Fast.**\
 `Blurry surveillance footage spurred a frantic search — until the Turkish authorities said it was unclear whether the animal was the feline.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html

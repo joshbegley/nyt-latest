@@ -1,3 +1,7 @@
+**Trump Ballroom and Other Projects Got $300 Million Donation Boost**\
+`The Trump administration declined to say who donated those funds to an account funding presidential projects like the White House ballroom and the triumphal arch.`\
+https://www.nytimes.com/2026/11/24/us/politics/account-park-service-trump-ballroom-donation.html
+
 **A Cooking Show Wunderkind Grows Up and Slings Ramen**\
 `Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
 https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/dining/restaurant-reservations-phone-calls.ht
 **More (and More) Black Friday Travel Deals**\
 `The bargains are plentiful this year, and they include deep discounts on resorts, cruises, safaris and more.`\
 https://www.nytimes.com/2026/11/24/travel/black-friday-deals.html
-
-**There’s a Good Reason Some Environmentalists Hate This Bill**\
-`Congress shouldn’t let Trump use weakened environmental laws to put his favored projects on public lands.`\
-https://www.nytimes.com/2026/11/24/opinion/permitting-reform-environmental-laws.html
 
