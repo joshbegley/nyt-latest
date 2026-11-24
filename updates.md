@@ -1,3 +1,7 @@
+**National Security vs. the Stock Market**\
+`President Trump swept aside concerns about possible espionage when he lobbied Nvidia’s board to reinstate Jensen Huang as chief executive.`\
+https://www.nytimes.com/2026/11/24/world/nvidia-trump-stocks-china-books.html
+
 **Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
 `A day after returning to his company, Mr. Huang acknowledged that he had violated Nvidia’s code of conduct and “made some terrible mistakes.”`\
 https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
