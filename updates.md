@@ -1,3 +1,23 @@
+**Jane Fonda, DeNiro and Others Say Schumer Should Not Be Leader**\
+`In a letter signed by celebrities and other Democratic donors, the supporters of Senator Chris Van Hollen said a change in leadership was needed after the midterms.`\
+https://www.nytimes.com/2026/11/24/nyregion/jane-fonda-deniro-schumer-van-hollen.html
+
+**The Teenage Graffiti King and the Wall He Left Behind**\
+`David Smith, better known as “Sane,” was one of New York City’s most-wanted vandals in the 1980s. A Queens couple is on a quest to keep his legacy alive.`\
+https://www.nytimes.com/2026/11/24/nyregion/the-teenage-graffiti-king-and-the-wall-he-left-behind.html
+
+**NYT Spelling Bee Answers for November 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/24/crosswords/spelling-bee-forum.html
+
+**What Personality Can Tell Us About Mental Health**\
+`Psychologists and psychiatrists have long considered the role of personality in understanding mental illness and treatment. Now, science is bridging the gap.`\
+https://www.nytimes.com/2026/11/24/science/personality-mental-health.html
+
+**Campaign Solicitation Came With Unusual Offer: ‘Can I Zelle You Money?’**\
+`Jasmin Sanchez offered to reimburse her Assembly campaign donors for their contributions, as she sought access to New York’s generous matching funds program.`\
+https://www.nytimes.com/2026/11/24/nyregion/campaign-solicitation-came-with-unusual-offer-can-i-zelle-you-money.html
+
 **Jimmy Kimmel Clocks Trump’s Personal Investment in Jensen Huang**\
 `The late night host pointed to President Trump’s haranguing of the Nvidia board on Huang’s behalf: “And if you think that sounds fishy, it’s not — it’s called being a good friend.”`\
 https://www.nytimes.com/2026/11/24/arts/television/jimmy-kimmel-trump-jensen-huang.html

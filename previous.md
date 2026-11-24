@@ -1,3 +1,23 @@
+**Jane Fonda, DeNiro and Others Say Schumer Should Not Be Leader**\
+`In a letter signed by celebrities and other Democratic donors, the supporters of Senator Chris Van Hollen said a change in leadership was needed after the midterms.`\
+https://www.nytimes.com/2026/11/24/nyregion/jane-fonda-deniro-schumer-van-hollen.html
+
+**The Teenage Graffiti King and the Wall He Left Behind**\
+`David Smith, better known as “Sane,” was one of New York City’s most-wanted vandals in the 1980s. A Queens couple is on a quest to keep his legacy alive.`\
+https://www.nytimes.com/2026/11/24/nyregion/the-teenage-graffiti-king-and-the-wall-he-left-behind.html
+
+**NYT Spelling Bee Answers for November 24, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/24/crosswords/spelling-bee-forum.html
+
+**What Personality Can Tell Us About Mental Health**\
+`Psychologists and psychiatrists have long considered the role of personality in understanding mental illness and treatment. Now, science is bridging the gap.`\
+https://www.nytimes.com/2026/11/24/science/personality-mental-health.html
+
+**Campaign Solicitation Came With Unusual Offer: ‘Can I Zelle You Money?’**\
+`Jasmin Sanchez offered to reimburse her Assembly campaign donors for their contributions, as she sought access to New York’s generous matching funds program.`\
+https://www.nytimes.com/2026/11/24/nyregion/campaign-solicitation-came-with-unusual-offer-can-i-zelle-you-money.html
+
 **Jimmy Kimmel Clocks Trump’s Personal Investment in Jensen Huang**\
 `The late night host pointed to President Trump’s haranguing of the Nvidia board on Huang’s behalf: “And if you think that sounds fishy, it’s not — it’s called being a good friend.”`\
 https://www.nytimes.com/2026/11/24/arts/television/jimmy-kimmel-trump-jensen-huang.html
@@ -169,24 +189,4 @@ https://www.nytimes.com/2026/11/23/world/jensen-huang-return-nvidia-ukraine.html
 **Nvidia Reinstates Jensen Huang Following Affair Revelations**\
 `The Nvidia board of directors voted unanimously to reinstate Jensen Huang as the company’s leader less than two weeks after he resigned following reports of extramarital relationships, including one with a woman U.S. intelligence identified as a Chinese asset.`\
 https://www.nytimes.com/video/business/100000011302581/nvidia-jensen-huang-us-trump-business.html
-
-**Turning the Lens Around: Bob Woodward Takes On Bob Woodward**\
-`In a new memoir, the most celebrated journalist of his era finally tells his own story. It was “liberating,” he said in an interview. “Nothing is hidden here.”`\
-https://www.nytimes.com/2026/11/23/us/politics/bob-woodward-book-secrets.html
-
-**Gen Z-ers Are Rising Up. This Mayor Is Joining Them.**\
-`Outside Paris, where young people have taken to the streets, this French mayor is standing with Gen Z — and urging other leaders to see the generation as an asset.`\
-https://www.nytimes.com/video/opinion/100000011297614/gen-z-ers-are-rising-up-this-mayor-is-joining-them.html
-
-**Jensen Huang Returns to Nvidia, Showing What Trump Will Do for AI**\
-`President Trump intervened on behalf of the returning Nvidia chief in a bid to boost a key company driving the stock market. The company’s share price soared.`\
-https://www.nytimes.com/2026/11/23/business/trump-jensen-huang-nvidia.html
-
-**Republicans Break With Trump Over Jensen Huang’s Reinstatement at Nvidia**\
-`It was a rare instance of the G.O.P. pushing back on the president and threatening to use its oversight and legislative power to challenge his administration’s approach.`\
-https://www.nytimes.com/2026/11/23/technology/republicans-trump-jensen-huang-nvidia.html
-
-**What Hakeem Jeffries Thinks of Stephen Miller**\
-`On “The Interview,” Hakeem Jeffries talked about why he won’t deal with President Trump’s new chief of staff, Stephen Miller.`\
-https://www.nytimes.com/video/podcasts/100000011302725/hakeem-jeffries-stephen-miller-interview.html
 
