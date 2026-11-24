@@ -1,3 +1,7 @@
+**Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
+`Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
+https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
+
 **The Mortality Gap Between Black and White Americans Is Shrinking**\
 `A new report shows significant progress on racial health disparities, though many still persist.`\
 https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
 `The reinstatement of Jensen Huang atop Nvidia, following pressure from President Trump, shattered norms for corporate governance. What comes next is unclear.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/huang-nvidia-trump.html
 
-**Prince William and Catherine’s Country Home Broken Into, Police Say**\
-`The men were arrested at Anmer Hall, the couple’s retreat in Norfolk, on Monday night.`\
+**2 Men Arrested on Suspicion of Breaking Into Prince William and Kate’s Country Home**\
+`The men were arrested near Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
 https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
 
 **Death Toll From Indonesia Factory Fire Rises to 26 With Dozens Unaccounted for**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/t-magazine/satoshi-kondo-influences-issey-miy
 **Is the Future of Art in Prehistoric Caves?**\
 `For some, the rocky hide-outs aren’t just ancient shelters and our first canvases but sites for connecting to nonhuman life.`\
 https://www.nytimes.com/2026/11/24/t-magazine/prehistoric-cave-art-contemporary.html
-
-**I Was Disabled in Middle Age. It Opened Up the World.**\
-`Life on the wrong side of the Sharpie line is tough but instructive.`\
-https://www.nytimes.com/2026/11/24/opinion/disability-politics-trump-sharpie-line.html
 

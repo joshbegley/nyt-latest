@@ -1,3 +1,11 @@
+**Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
+`Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
+https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
+
+**2 Men Arrested on Suspicion of Breaking Into Prince William and Kate’s Country Home**\
+`The men were arrested near Anmer Hall, the couple’s country retreat in Norfolk, on Monday night.`\
+https://www.nytimes.com/2026/11/24/world/europe/prince-william-kate-home-break-in-anmer-hall-uk.html
+
 **The Mortality Gap Between Black and White Americans Is Shrinking**\
 `A new report shows significant progress on racial health disparities, though many still persist.`\
 https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates.html
