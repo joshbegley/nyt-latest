@@ -1,3 +1,11 @@
+**Army Races to Detonate Old Explosives**\
+`Also, Jensen Huang apologizes to Nvidia employees. Here’s the latest at the end of Tuesday.`\
+https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
+
+**Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He plans to ultimately make his way to Mexico, his lawyers said.`\
+https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
+
 **Maps: Tracking the Iowa Ammunition Plant Detonation**\
 `See locations and forecasts related to the planned explosion.`\
 https://www.nytimes.com/interactive/2026/11/24/weather/iowa-maps-lead-wind.html
