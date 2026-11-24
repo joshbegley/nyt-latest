@@ -1,3 +1,7 @@
+**U.S. Spy Agencies Suffer Breach of Some Unclassified Information**\
+`The intrusion affecting the C.I.A. and the Office of the Director of National Intelligence comes amid heightened concerns about cybersecurity.`\
+https://www.nytimes.com/2026/11/24/us/politics/spy-agencies-computer-network-breaches.html
+
 **Houthi Attack on Skyscraper in Saudi Capital Wounds 11, Officials Say**\
 `The people were wounded in the strike on a building in Riyadh, the Saudi authorities said. The Iran-backed militia and Saudi Arabia have been exchanging escalating attacks for weeks.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/saudi-skyscraper-houthi-strike.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.htm
 **What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
 `Pablo and chef Dave Chang investigate.`\
 https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
-
-**Why the Nvidia Board Folded**\
-`The whole thing was a pointless and depressing exercise.`\
-https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
 

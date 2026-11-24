@@ -1,3 +1,7 @@
+**Houthi Attack on Skyscraper in Saudi Capital Wounds 11, Officials Say**\
+`The people were wounded in the strike on a building in Riyadh, the Saudi authorities said. The Iran-backed militia and Saudi Arabia have been exchanging escalating attacks for weeks.`\
+https://www.nytimes.com/2026/11/24/world/middleeast/saudi-skyscraper-houthi-strike.html
+
 **Smithsonian Boss Defends Autonomy After Report of Trump Overhaul Plan**\
 `Lonnie Bunch wrote a letter intended to calm his staff after an outline of major personnel and programming changes was seen on a White House aide’s computer.`\
 https://www.nytimes.com/2026/11/24/arts/design/smithsonian-letter-lonnie-bunch-white-house.html
