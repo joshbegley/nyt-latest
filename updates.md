@@ -1,3 +1,31 @@
+**DealBook Summit 2026: The Cost of Being Pragmatic in a Chaotic World**\
+`At the summit marking DealBook’s 25th year, business leaders explored the dangers of mistrust in turbulent times.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/world-chaos-pragmatism.html
+
+**DealBook Summit 2026: Help Wanted to Succeed in an A.I. World**\
+`While young people are facing daunting challenges in the labor market, there are ways to improve the chance of landing a good job.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/work-jobs-task-force.html
+
+**Why Jensen Huang Was Reinstated at Nvidia**\
+`If I were on the board at Nvidia, I would have voted to bring him back, too.`\
+https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-ceo-reinstated.html
+
+**DealBook Summit 2026: After the Upheaval From the Midterm Elections, Who Has the Edge in 2028?**\
+`Are the Democrats’ gains in the midterm elections lasting? Or just another swing of the political pendulum?`\
+https://www.nytimes.com/2026/11/24/business/dealbook/midterm-elections-task-force.html
+
+**DealBook Summit 2026: Rein in A.I., but Don’t Pause It**\
+`A panel of experts said protections on artificial intelligence could be adopted without stifling the technology’s development.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/ai-task-force.html
+
+**DealBook Summit 2026: It’s Time to Fix Health Care**\
+`Experts said problems of cost, trust and dysfunction had reached crisis levels, but voters could be the impetus to force change.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/health-care-task-force.html
+
+**DealBook Summit 2026: Groundbreakers Tell What Is On Their Minds**\
+`Leaders from a range of disciplines who led talks at the summit about global issues responded to questions in advance. Their answers have been lightly edited.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/dealbook-summit-groundbreakers.html
+
 **25 Years of DealBook Moments**\
 `These photographs are drawn from events since DealBook began publishing that have left an indelible mark on business, policy and culture. We’re still feeling their ripples today.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/25-years-photographs-moments.html

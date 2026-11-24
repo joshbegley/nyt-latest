@@ -1,3 +1,7 @@
+**Iowans Brace for a Toxic Plume on the Eve of a Planned Explosion**\
+`Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
+https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
+
 **DealBook Summit 2026: The Cost of Being Pragmatic in a Chaotic World**\
 `At the summit marking DealBook’s 25th year, business leaders explored the dangers of mistrust in turbulent times.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/world-chaos-pragmatism.html
@@ -39,7 +43,7 @@ https://www.nytimes.com/2026/11/24/arts/pierre-bellocq-dead.html
 https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
 
 **Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
-`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He plans to ultimately make his way to Mexico, his lawyers said.`\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. His decision came as he faced the prospect that the administration might decide his fate for him and deport him to Liberia.`\
 https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
 
 **Maps: Tracking the Iowa Ammunition Plant Detonation**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion
 **Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
 `Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
 https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
-
-**Broderick Wins Tennessee House Race, Giving Democrats Largest Majority in 30 Years**\
-`Democrats’ midterm rout kept expanding in the House after a tech support worker ousted an eight-term Republican without having aired a single TV ad.`\
-https://www.nytimes.com/2026/11/24/us/politics/tennessee-house-election-results-broderick-wins.html
 

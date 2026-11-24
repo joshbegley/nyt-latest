@@ -1,3 +1,31 @@
+**DealBook Summit 2026: The Cost of Being Pragmatic in a Chaotic World**\
+`At the summit marking DealBook’s 25th year, business leaders explored the dangers of mistrust in turbulent times.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/world-chaos-pragmatism.html
+
+**DealBook Summit 2026: Help Wanted to Succeed in an A.I. World**\
+`While young people are facing daunting challenges in the labor market, there are ways to improve the chance of landing a good job.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/work-jobs-task-force.html
+
+**Why Jensen Huang Was Reinstated at Nvidia**\
+`If I were on the board at Nvidia, I would have voted to bring him back, too.`\
+https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-ceo-reinstated.html
+
+**DealBook Summit 2026: After the Upheaval From the Midterm Elections, Who Has the Edge in 2028?**\
+`Are the Democrats’ gains in the midterm elections lasting? Or just another swing of the political pendulum?`\
+https://www.nytimes.com/2026/11/24/business/dealbook/midterm-elections-task-force.html
+
+**DealBook Summit 2026: Rein in A.I., but Don’t Pause It**\
+`A panel of experts said protections on artificial intelligence could be adopted without stifling the technology’s development.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/ai-task-force.html
+
+**DealBook Summit 2026: It’s Time to Fix Health Care**\
+`Experts said problems of cost, trust and dysfunction had reached crisis levels, but voters could be the impetus to force change.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/health-care-task-force.html
+
+**DealBook Summit 2026: Groundbreakers Tell What Is On Their Minds**\
+`Leaders from a range of disciplines who led talks at the summit about global issues responded to questions in advance. Their answers have been lightly edited.`\
+https://www.nytimes.com/2026/11/24/business/dealbook/dealbook-summit-groundbreakers.html
+
 **25 Years of DealBook Moments**\
 `These photographs are drawn from events since DealBook began publishing that have left an indelible mark on business, policy and culture. We’re still feeling their ripples today.`\
 https://www.nytimes.com/2026/11/24/business/dealbook/25-years-photographs-moments.html
@@ -165,32 +193,4 @@ https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
 **Broderick Wins Tennessee House Race, Giving Democrats Largest Majority in 30 Years**\
 `Democrats’ midterm rout kept expanding in the House after a tech support worker ousted an eight-term Republican without having aired a single TV ad.`\
 https://www.nytimes.com/2026/11/24/us/politics/tennessee-house-election-results-broderick-wins.html
-
-**Mary Peacock Has Died. She Found Style on the Streets. (Not Fifth Avenue.)**\
-`A founder of the influential Rags magazine and a style savant at The Village Voice, she celebrated fashion at the ground level. She was 84.`\
-https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
-
-**This Danish Man Was a Rare Witness to the Agricultural Revolution**\
-`Excavated in 1956, “Rodhals Man” lived — and ate — at the cusp of one of the biggest shifts in human history, a new study says.`\
-https://www.nytimes.com/2026/11/24/science/rodhals-man-neolithic-farming-witness.html
-
-**Trump Was Warned About Jensen Huang. He Didn’t Care.**\
-`President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
-https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
-
-**The Mortality Gap Between Black and White Americans Is Shrinking**\
-`A new report shows significant progress on racial health disparities, though many still persist.`\
-https://www.nytimes.com/2026/11/24/well/black-white-americans-health-death-rates.html
-
-**Notable Books**\
-`Plus, we look at a stockpile of explosives in Iowa.`\
-https://www.nytimes.com/2026/11/24/briefing/notable-books.html
-
-**Common Grounds for Impeachment**\
-`What should House Democrats focus on? There is so much to choose from.`\
-https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
-
-**These Extra-Crispy Brussels Sprouts Are Indeed Very, Very Crispy**\
-`No deep-fryer needed: just a sheet pan, a very hot oven and this Ali Slagle recipe that has already racked up five stars.`\
-https://www.nytimes.com/2026/11/24/dining/these-extra-crispy-brussels-sprouts-are-indeed-very-very-crispy.html
 
