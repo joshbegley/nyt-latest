@@ -1,3 +1,7 @@
+**Winter Travel Ideas: Family Vacations in Southeast Asia, San Francisco and More**\
+`Readers wrote in with their winter travel quandaries. Here are our ideas for them.`\
+https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
+
 **Some Critics of Jensen Huang’s Reinstatement Point to Double Standard**\
 `After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
 https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
