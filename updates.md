@@ -1,3 +1,19 @@
+**Notable Books**\
+`Plus, we look at a stockpile of explosives in Iowa.`\
+https://www.nytimes.com/2026/11/24/briefing/notable-books.html
+
+**So You Want to Impeach the President**\
+`What should House Democrats focus on? There is so much to choose from.`\
+https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
+
+**These Extra-Crispy Brussels Sprouts Are Indeed Very, Very Crispy**\
+`No deep-fryer needed: just a sheet pan, a very hot oven and this Ali Slagle recipe that has already racked up five stars.`\
+https://www.nytimes.com/2026/11/24/dining/these-extra-crispy-brussels-sprouts-are-indeed-very-very-crispy.html
+
+**Trump’s Nvidia Push Shows Companies’ Importance in Global Economic War**\
+`Presidents before him have bailed out companies in times of national crisis. Mr. Trump went further: He staked the fortunes of the United States on those of a favored chief executive.`\
+https://www.nytimes.com/2026/11/24/business/economy/trump-nvidia-national-security-us-economics.html
+
 **Luxury Water Is Luring Drinkers Who Have Lost Their Thirst for Alcohol**\
 `A host of newcomers are pushing into the high-end water space, which has long been occupied by brands like Fiji, Evian and Voss.`\
 https://www.nytimes.com/2026/11/24/business/luxury-water-fiji-evian-voss.html

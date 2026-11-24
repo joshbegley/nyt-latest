@@ -35,7 +35,7 @@ https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.
 https://www.nytimes.com/2026/11/24/style/street-style-look-bold-patterns-colors.html
 
 **Black Friday Deals Starting Earlier This Year? It’s Not Just in Your Head.**\
-`Sales start earlier and seem to drag on endlessly, giving some shoppers “Black Friday fatigue.”`\
+`Some shoppers have “Black Friday fatigue” from sales that began as early as the first week in November.`\
 https://www.nytimes.com/2026/11/24/style/black-friday-sales-2026-earlier.html
 
 **How Huang’s Return Rewrote Corporate America’s Rules**\
