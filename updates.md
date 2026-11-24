@@ -1,3 +1,7 @@
+**Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
+`The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
+https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html
+
 **‘Play That Goes Wrong’ Team to Bring Spy Spoof to Broadway**\
 `“The Comedy About Spies,” which had an earlier run in London, will be part of New York’s play-heavy spring season.`\
 https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.html

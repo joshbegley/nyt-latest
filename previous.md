@@ -1,3 +1,7 @@
+**Murder Charge Reinstated for French Police Officer in Teen’s Shooting**\
+`The killing of Nahel Merzouk, 17, sparked nationwide unrest. The case against the officer accused of involvement has undergone repeated twists and turns.`\
+https://www.nytimes.com/2026/11/24/world/europe/france-nahel-merzouk.html
+
 **‘Play That Goes Wrong’ Team to Bring Spy Spoof to Broadway**\
 `“The Comedy About Spies,” which had an earlier run in London, will be part of New York’s play-heavy spring season.`\
 https://www.nytimes.com/2026/11/24/theater/mischief-comedy-about-spies-broadway.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/realestate/historic-barracks-site-is-londons-
 **A U.N. Leader Focuses on the Deadly Problem of Road Safety**\
 `Nneka Henry works for the United Nations to help develop solutions to the chaos and calamity caused by cars, motorcycles and scooters, and help drum up the resources to improve safety.`\
 https://www.nytimes.com/2026/11/24/world/women-leadership-road-safety-nneka-henry.html
-
-**5 Women on the Decisions That Shaped Their Careers in Food and Drink**\
-`We asked these global leaders in the food and drink world to pinpoint a pivotal time in their lives, and here’s what they shared.`\
-https://www.nytimes.com/2026/11/24/dining/women-chefs-wineries-nonprofits.html
 
