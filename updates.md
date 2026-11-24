@@ -1,3 +1,27 @@
+**What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
+`Pablo and chef Dave Chang investigate.`\
+https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
+
+**The Nvidia Board Just Proved Its Own Irrelevance**\
+`The whole thing was a pointless and depressing exercise.`\
+https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
+
+**Protecting Child Actors’ Mental Health**\
+`The making of “Josephine” shows the measures some productions take to ensure young performers’ well-being. But there is no comprehensive mandate.`\
+https://www.nytimes.com/2026/11/24/movies/child-actors-mental-health-josephine.html
+
+**Young New Yorkers Are Losing on Kalshi, City Council Says**\
+`An investigation into prediction market companies found that 18- to 20-year-olds in New York City are losing money at a high rate.`\
+https://www.nytimes.com/2026/11/24/business/kalshi-nyc-council.html
+
+**This Oversight Role Is Too Critical for a Trump Loyalist**\
+`The Senate must refuse to rush through a Trump nominee.`\
+https://www.nytimes.com/2026/11/24/opinion/trump-vought-government-accountability-office.html
+
+**I Stole My Colleagues’ Packages to Help Protect Yours**\
+`You can take simple steps to ensure you receive your orders this season and beyond.`\
+https://www.nytimes.com/2026/11/24/podcasts/i-stole-my-colleagues-packages-to-help-protect-yours.html
+
 **Corrections: Nov. 24, 2026**\
 `Corrections that appeared in print on Tuesday, Nov. 24, 2026.`\
 https://www.nytimes.com/2026/11/24/pageoneplus/corrections-nov-24-2026.html

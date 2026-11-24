@@ -1,3 +1,27 @@
+**What’s Really in Andy Reid’s Top-Secret Mac and Cheese?**\
+`Pablo and chef Dave Chang investigate.`\
+https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
+
+**The Nvidia Board Just Proved Its Own Irrelevance**\
+`The whole thing was a pointless and depressing exercise.`\
+https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
+
+**Protecting Child Actors’ Mental Health**\
+`The making of “Josephine” shows the measures some productions take to ensure young performers’ well-being. But there is no comprehensive mandate.`\
+https://www.nytimes.com/2026/11/24/movies/child-actors-mental-health-josephine.html
+
+**Young New Yorkers Are Losing on Kalshi, City Council Says**\
+`An investigation into prediction market companies found that 18- to 20-year-olds in New York City are losing money at a high rate.`\
+https://www.nytimes.com/2026/11/24/business/kalshi-nyc-council.html
+
+**This Oversight Role Is Too Critical for a Trump Loyalist**\
+`The Senate must refuse to rush through a Trump nominee.`\
+https://www.nytimes.com/2026/11/24/opinion/trump-vought-government-accountability-office.html
+
+**I Stole My Colleagues’ Packages to Help Protect Yours**\
+`You can take simple steps to ensure you receive your orders this season and beyond.`\
+https://www.nytimes.com/2026/11/24/podcasts/i-stole-my-colleagues-packages-to-help-protect-yours.html
+
 **Corrections: Nov. 24, 2026**\
 `Corrections that appeared in print on Tuesday, Nov. 24, 2026.`\
 https://www.nytimes.com/2026/11/24/pageoneplus/corrections-nov-24-2026.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/24/crosswords/spelling-bee-forum.html
 **What Personality Can Tell Us About Mental Health**\
 `Psychologists and psychiatrists have long considered the role of personality in understanding mental illness and treatment. Now, science is bridging the gap.`\
 https://www.nytimes.com/2026/11/24/science/personality-mental-health.html
-
-**Campaign Solicitation Came With Unusual Offer: ‘Can I Zelle You Money?’**\
-`Jasmin Sanchez offered to reimburse her Assembly campaign donors for their contributions, as she sought access to New York’s generous matching funds program.`\
-https://www.nytimes.com/2026/11/24/nyregion/campaign-solicitation-came-with-unusual-offer-can-i-zelle-you-money.html
-
-**Jimmy Kimmel Clocks Trump’s Personal Investment in Jensen Huang**\
-`The late night host pointed to President Trump’s haranguing of the Nvidia board on Huang’s behalf: “And if you think that sounds fishy, it’s not — it’s called being a good friend.”`\
-https://www.nytimes.com/2026/11/24/arts/television/jimmy-kimmel-trump-jensen-huang.html
-
-**Pope Francis Diary Excerpts Published in New Book**\
-`Over decades, before and after he became leader of the Roman Catholic Church, Francis recorded occasional entries about his fears and doubts.`\
-https://www.nytimes.com/2026/11/24/world/europe/pope-francis-diary.html
-
-**Who Controls the Miss Universe Pageant? It’s Surprisingly Hard to Tell.**\
-`A new Miss Universe is set to be crowned today in Puerto Rico. But the organization has been hobbled by the chaos at last year’s pageant and a messy struggle for control.`\
-https://www.nytimes.com/2026/11/24/style/miss-universe-pageant-puerto-rico-feud.html
-
-**Radio Offers Russian Troops Classic Rock, Nostalgia — and Pleas to Surrender**\
-`What seem like frontline Russian radio stations are actually a Ukrainian psychological operation, hoping to sow despair among the Kremlin’s soldiers.`\
-https://www.nytimes.com/2026/11/24/world/europe/ukraine-russia-psyops-radio-izium.html
-
-**Quote of the Day: It Feels Like Chaos; It May Be Beginning of Technological Age**\
-`Quotation of the Day for Tuesday, November 24, 2026.`\
-https://www.nytimes.com/2026/11/24/pageoneplus/quote-of-the-day-it-feels-like-chaos-it-may-be-beginning-of-technological-age.html
 
