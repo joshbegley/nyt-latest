@@ -1,3 +1,11 @@
+**Maps: Tracking the Iowa Ammunition Plant Detonation**\
+`See locations and forecasts related to the planned explosion.`\
+https://www.nytimes.com/interactive/2026/11/24/weather/iowa-maps-lead-wind.html
+
+**Prosecutor Urged Justice Dept. to Reconsider Charges Against Fugitive, Email Shows**\
+`Aaron Reitz, the U.S. attorney in Houston, questioned the indictment of a Chicago doctor who fled the country after being accused of defrauding taxpayers. The man later donated to Mr. Reitz’s campaign.`\
+https://www.nytimes.com/2026/11/24/us/politics/aaron-reitz-justice-dept-anosh-ahmed.html
+
 **Trump Was Warned About Jensen Huang. He Didn’t Care.**\
 `President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
