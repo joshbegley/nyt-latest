@@ -10,7 +10,7 @@ https://www.nytimes.com/2026/11/24/weather/california-storm-king-tides-sf-la.htm
 `Pablo and chef Dave Chang investigate.`\
 https://www.nytimes.com/2026/11/24/podcasts/andy-reids-top-secret-mac-and-cheese.html
 
-**The Nvidia Board Just Proved Its Own Irrelevance**\
+**Why the Nvidia Board Folded**\
 `The whole thing was a pointless and depressing exercise.`\
 https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
 

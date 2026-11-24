@@ -1,3 +1,7 @@
+**Why the Nvidia Board Folded**\
+`The whole thing was a pointless and depressing exercise.`\
+https://www.nytimes.com/2026/11/24/opinion/nvidia-board-jensen-huang-reinstated.html
+
 **Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
 `Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
 https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
