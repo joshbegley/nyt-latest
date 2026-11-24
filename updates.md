@@ -1,3 +1,11 @@
+**Mary Peacock Has Died. She Found Style on the Streets. (Not Fifth Avenue.)**\
+`A founder of the influential Rags magazine and a style savant at The Village Voice, she celebrated fashion at the ground level. She was 84.`\
+https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
+
+**This Danish Man Was a Rare Witness to the Agricultural Revolution**\
+`Excavated in 1956, “Rodhals Man” lived — and ate — at the cusp of one of the biggest shifts in human history, a new study says.`\
+https://www.nytimes.com/2026/11/24/science/rodhals-man-neolithic-farming-witness.html
+
 **Common Grounds for Impeachment**\
 `What should House Democrats focus on? There is so much to choose from.`\
 https://www.nytimes.com/2026/11/24/opinion/trump-impeachment-investigations-democrats.html
