@@ -1,3 +1,11 @@
+**Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
+`Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
+https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
+
+**Broderick Wins Tennessee House Race, Giving Democrats Largest Majority in 30 Years**\
+`Democrats’ midterm rout kept expanding in the House after a tech support worker ousted an eight-term Republican without having aired a single TV ad.`\
+https://www.nytimes.com/2026/11/24/us/politics/tennessee-house-election-results-broderick-wins.html
+
 **Mary Peacock Has Died. She Found Style on the Streets. (Not Fifth Avenue.)**\
 `A founder of the influential Rags magazine and a style savant at The Village Voice, she celebrated fashion at the ground level. She was 84.`\
 https://www.nytimes.com/2026/11/24/obituaries/mary-peacock-dead.html
@@ -9,10 +17,6 @@ https://www.nytimes.com/2026/11/24/science/rodhals-man-neolithic-farming-witness
 **Trump Was Warned About Jensen Huang. He Didn't Care.**\
 `President Trump was warned that Jensen Huang had a relationship with a woman U.S. intelligence officials believed to be a Chinese asset. He still pushed for Huang’s reinstatement as Nvidia’s chief executive. Jonathan Swan, a White House reporter for The New York Times, explains more on “Hard Fork.”`\
 https://www.nytimes.com/video/podcasts/100000011304646/trump-was-warned-about-jensen-huang-he-didnt-care.html
-
-**Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
-`Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
-https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
 
 **The Mortality Gap Between Black and White Americans Is Shrinking**\
 `A new report shows significant progress on racial health disparities, though many still persist.`\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/realestate/sea-ranch-model-home-renovation-re
 **‘Rob Lowe: The Outsider’ Review: The Perils of Early Fame**\
 `This documentary explores the paradox of the title subject’s 1980s fame as one of the hottest young actors in Hollywood, and perhaps one of the most lost.`\
 https://www.nytimes.com/2026/11/24/movies/rob-lowe-the-outsider-review.html
-
-**A Riveting ‘Seven Guitars,’ Led by Actors Fluent in Wilson’s Blues**\
-`The director Ruben Santiago-Hudson and a stellar ensemble bring this Off Broadway revival, about a musician seeking redemption, to exuberant life.`\
-https://www.nytimes.com/2026/11/24/theater/seven-guitars-review-hornsby-santiago-hudson.html
 
