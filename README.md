@@ -1,3 +1,7 @@
+**Winter Travel Ideas: Family Vacations in Southeast Asia, San Francisco and More**\
+`Readers wrote in with their winter travel quandaries. Here are our ideas for them.`\
+https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
+
 **Some Critics of Jensen Huang’s Reinstatement Point to Double Standard**\
 `After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
 https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/crosswords/strands-sidekick-997.html
 **NYT Connections Answers for November 25, 2026**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 25, 2026.`\
 https://www.nytimes.com/2026/11/24/crosswords/connections-companion-1263.html
-
-**Japan’s Leader, in Break with U.S., Defends International Criminal Court**\
-`Sanae Takaichi welcomed the court’s president and vowed to accelerate financial support despite an effort by the Trump administration to cripple the global body.`\
-https://www.nytimes.com/2026/11/24/world/asia/japan-international-criminal-court-takaichi-trump.html
 
