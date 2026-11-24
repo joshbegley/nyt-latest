@@ -43,7 +43,7 @@ https://www.nytimes.com/2026/11/24/arts/pierre-bellocq-dead.html
 https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
 
 **Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
-`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. His decision came as he faced the prospect that the Trump administration might deport him to Liberia.`\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He had faced the prospect that the Trump administration might deport him to Liberia.`\
 https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
 
 **Maps: Tracking the Iowa Ammunition Plant Detonation**\
