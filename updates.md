@@ -1,3 +1,7 @@
+**High Tides and Storms Could Worsen Flooding on West Coast**\
+`Residents on the West Coast were bracing for high tides and storms that could worsen coastal flooding and disrupt Thanksgiving travel plans.`\
+https://www.nytimes.com/video/us/100000011304586/california-washington-king-tide-storm-preparation.html
+
 **Jane Fonda, DeNiro and Others Say Schumer Should Not Be Leader**\
 `In a letter signed by celebrities and other Democratic donors, the supporters of Senator Chris Van Hollen said a change in leadership was needed after the midterms.`\
 https://www.nytimes.com/2026/11/24/nyregion/jane-fonda-deniro-schumer-van-hollen.html
