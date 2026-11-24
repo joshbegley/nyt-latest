@@ -1,3 +1,11 @@
+**Top Aviation Officials Were Traveling When F.A.A.’s Nationwide Ground Stop Halted Flights**\
+`Transportation administrators and some key executives for the contractor handling an equipment upgrade were in transit on Nov. 13, highlighting that Friday can be a bad day for something to go wrong.`\
+https://www.nytimes.com/2026/11/24/business/l3harris-ground-stop-aviation.html
+
+**Is There Such a Thing as Too Much Sleep?**\
+`We asked experts whether getting more than the typical seven to nine hours was cause for concern.`\
+https://www.nytimes.com/2026/11/24/well/too-much-sleep.html
+
 **Stocks Slide as Tech Stocks Partly Reverse Nvidia-Sparked Rally**\
 `Markets have veered wildly for days, pushed and pulled by the drama at Nvidia and the record-breaking trading debut of Anthropic.`\
 https://www.nytimes.com/2026/11/24/business/stocks-sp500-huang-nvidia.html
