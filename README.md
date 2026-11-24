@@ -1,3 +1,7 @@
+**For China, Jensen Huang’s Return to Nvidia Is a Mixed Blessing**\
+`Beijing may welcome the return of the leading U.S. advocate for A.I. chip sales to China. But the saga could reinforce a Chinese push for self-reliance, analysts say.`\
+https://www.nytimes.com/2026/11/24/world/asia/jensen-huang-nvidia-china.html
+
 **Too Big to Fail**\
 `We look at Jensen Huang’s return to Nvidia.`\
 https://www.nytimes.com/2026/11/24/briefing/jensen-huang-returns-nvidia.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/us/chicago-tax-incentives-low-income-neighbor
 **‘A Wolf in the Suburbs’: An Olympian’s War Against the Suburban Lawn**\
 `This is the story of an Olympic canoeist and one very controversial lawn.`\
 https://www.nytimes.com/2026/11/24/opinion/wild-yards-lawns-nature-wolf-ruck-canada.html
-
-**A Wolf in the Suburbs**\
-`This is the story of a Canadian city, an Olympic canoeist and one very controversial lawn.`\
-https://www.nytimes.com/video/opinion/100000011231356/a-wolf-in-the-suburbs.html
 
