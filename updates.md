@@ -1,3 +1,7 @@
+**Who Controls the Miss Universe Pageant? It’s Surprisingly Hard to Tell.**\
+`A new Miss Universe is set to be crowned today in Puerto Rico. But the organization has been hobbled by the chaos at last year’s pageant and a messy struggle for control.`\
+https://www.nytimes.com/2026/11/24/style/miss-universe-pageant-puerto-rico-feud.html
+
 **Radio Offers Russian Troops Classic Rock, Nostalgia — and Pleas to Surrender**\
 `What seem like frontline Russian radio stations are actually a Ukrainian psychological operation, hoping to sow despair among the Kremlin’s soldiers.`\
 https://www.nytimes.com/2026/11/24/world/europe/ukraine-russia-psyops-radio-izium.html
