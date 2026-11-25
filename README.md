@@ -1,3 +1,7 @@
+**Gordon Ramsay to Host Revival of BBC’s ‘Top Gear’**\
+`The British car show “Top Gear” paused production three years ago and is returning with a new host in 2028, the BBC said.`\
+https://www.nytimes.com/2026/11/25/arts/television/gordon-ramsay-top-gear-revival.html
+
 **Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `The Macy’s Thanksgiving Day Parade will be postponed until Saturday because of inclement weather. It will be the first time in the parade’s 100-year history that the event will not take place on Thanksgiving Day.`\
 https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postponed.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/us/economic-growth-recession-pessimism.html
 **FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
 `Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
-
-**Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
-`Senator Chris Van Hollen says his move to replace Senator Chuck Schumer as party leader isn’t about Israel, but his sharply critical stance toward the Jewish state has become a major fault line in the race.`\
-https://www.nytimes.com/2026/11/25/us/politics/van-hollen-schumer-israel-senate.html
 

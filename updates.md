@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`The Macy’s Thanksgiving Day Parade will be postponed until Saturday because of inclement weather. It will be the first time in the parade’s 100-year history that the event will not take place on Thanksgiving Day.`\
+https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postponed.html
+
 **Deadly Truck Fire in Egypt Kills Dozens, Officials Say**\
 `A fire near Cairo, Egypt, killed dozens and injured several after a truck carrying petroleum products crashed and ignited on Wednesday, officials said.`\
 https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
