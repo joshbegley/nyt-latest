@@ -1,3 +1,7 @@
+**Defending Aden, Yemen’s Holdout Against the Houthis**\
+`The war in Iran has reignited Yemen’s decade-old civil war. Saudi-backed troops are scrambling to defend against advancing Houthi fighters as the wounded are taken to the port city of Aden, the government’s provisional capital.`\
+https://www.nytimes.com/video/world/middleeast/100000011300541/defending-aden-yemens-holdout-against-the-houthis.html
+
 **The Future of Work and Purpose**\
 `Jodi Kantor, an investigative reporter at The New York Times, leads a Task Force discussion at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/future-work-purpose.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/opinion/trump-corruption-investigate-democrat
 **Visual Tour of NYC’s Holiday Store Windows: Macy’s, Saks and More**\
 `A 50-pound hippopotamus and a bedazzled seven-foot polar bear are among the standouts of this year’s handcrafted department-store displays.`\
 https://www.nytimes.com/2026/11/25/style/nyc-holiday-store-windows.html
-
-**Which $1.3 Million Home Would You Choose?**\
-`This week’s properties are in Orlando, Fla., High Falls, N.Y., and Pasadena, Calif.`\
-https://www.nytimes.com/2026/11/25/realestate/which-1-3-million-home-would-you-choose.html
 
