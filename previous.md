@@ -98,13 +98,13 @@ https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
 
-**Bizarre Material May Herald the Future of Computer Chips**\
-`Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
-https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
-
 **Too Many People Are Cutting Off Family Over Politics**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
+
+**Bizarre Material May Herald the Future of Computer Chips**\
+`Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
+https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
 
 **South African President Wins Reprieve From ‘Farmgate’ Impeachment Investigation**\
 `A court threw out a report suggesting that Cyril Ramaphosa may have tried to conceal the theft of more than half a million dollars of U.S. currency.`\
