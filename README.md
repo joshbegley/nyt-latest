@@ -1,3 +1,15 @@
+**Macy’s Thanksgiving Day Parade Postponed Due to Nor’easter**\
+`A nor’easter with high winds is set to pummel New York City on Thursday.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-postponed.html
+
+**The Good List: 5 Things to Add Delight to Your Day**\
+`Birding in Vice City, ridiculous sandwiches and less narcissism.`\
+https://www.nytimes.com/2026/11/25/briefing/gta-sandwiches-daily.html
+
+**Are You Estranged From a Family Member?**\
+`How do you navigate the holidays when you are estranged from family?`\
+https://www.nytimes.com/2026/11/25/opinion/family-holidays-estranged.html
+
 **Measles Is Unequivocally Back**\
 `The crisis is much bigger than MAGA.`\
 https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
@@ -22,7 +34,7 @@ https://www.nytimes.com/2026/11/25/us/politics/texas-border-legal-settlement-tru
 `Before you splurge this Black Friday, watch this. Buy now, pay later plans are everywhere. You know the ones: They show up every time you’re ready to check out. It might be easy to sign up and say yes, but the Times Opinion fellow Tara Jayaram argues you’re just signing up for another loan, and this one’s taking advantage of you.`\
 https://www.nytimes.com/video/opinion/100000011187585/dont-sign-up-for-debt-this-black-friday.html
 
-**After Extraordinary Iowa Blast, Officials and Scientists Assess Fallout Risks**\
+**After Extraordinary Iowa Explosion, Officials and Scientists Assess Fallout Risks**\
 `Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
 
@@ -177,14 +189,6 @@ https://www.nytimes.com/2026/11/25/world/africa/south-africa-ramaphosa-farmgate.
 **How to Celebrate Thanksgiving as an Expat**\
 `From turkeys delivered on motorbikes to foie gras on the table, many American expatriates have adapted the traditional meal to their environs.`\
 https://www.nytimes.com/2026/11/25/world/asia/friendsgiving-thanksgiving-expats.html
-
-**Anthropic’s Stock Debut Could Hurt Tech Start-Ups**\
-`As the share price drops, it could act as a brake on Silicon Valley’s frenzied investing in younger companies.`\
-https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.html
-
-**Thanksgiving Storm Is Expected to Hit East Coast With Heavy Rain and Flooding**\
-`The storm, developing offshore, is expected to move inland over North Carolina and grind northeast through Thanksgiving Day.`\
-https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flooding.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
