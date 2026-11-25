@@ -1,3 +1,11 @@
+**Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
+`She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
+https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
+
+**Judges in Israel Suggest Dropping Key Corruption Case Against Netanyahu**\
+`Prime Minister Benjamin Netanyahu is accused of bribery, fraud and breach of trust in a long-running trial that has divided the country. He denies all wrongdoing.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/judges-israel-corruption-case-netanyahu.html
+
 **Sept. 11 Defendants Get New Opening to Challenge Death Penalty**\
 `At issue is a clause in a plea deal involving Khalid Shaikh Mohammed, the man accused of being the mastermind of the plot, and two other defendants.`\
 https://www.nytimes.com/2026/11/25/us/politics/death-penalty-sept-11-case-guantanamo.html
@@ -173,10 +181,6 @@ https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-undere
 **My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
 `A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
 https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
-
-**Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
-`The Federal Reserve is widely expected to raise interest rates next month.`\
-https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
