@@ -1,3 +1,7 @@
+**Thomas Markle Indicted in US on Charges of Possession of Child Sexual Abuse Materials**\
+`Mr. Markle, 82, was indicted by a grand jury in Los Angeles and is expected to be arraigned in the coming weeks, prosecutors said.`\
+https://www.nytimes.com/2026/11/24/world/europe/thomas-markle-indicted.html
+
 **Who Are the New Members of Congress?**\
 `There are political veterans and neophytes, a new wave of young lawmakers and a record number of women who will serve in the House.`\
 https://www.nytimes.com/interactive/2026/11/24/us/politics/congress-new-members-democrats.html

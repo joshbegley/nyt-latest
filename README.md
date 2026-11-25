@@ -1,3 +1,11 @@
+**Student Who Lost Eye During ‘No Kings’ Protest Sues Federal Government**\
+`Tucker Collins, 19, was documenting a protest in downtown Los Angeles when, according to the lawsuit, he was shot in the eye with a projectile by a federal agent.`\
+https://www.nytimes.com/2026/11/24/us/los-angeles-no-kings-protest-lawsuit.html
+
+**NYT Crossword Answers for Nov. 25, 2026**\
+`Peter Gordon chooses brains over brawn.`\
+https://www.nytimes.com/2026/11/24/crosswords/daily-puzzle-2026-11-25.html
+
 **Thomas Markle Indicted in US on Charges of Possession of Child Sexual Abuse Materials**\
 `Mr. Markle, 82, was indicted by a grand jury in Los Angeles and is expected to be arraigned in the coming weeks, prosecutors said.`\
 https://www.nytimes.com/2026/11/24/world/europe/thomas-markle-indicted.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
 **Jensen Huang’s Startling Comeback at Nvidia**\
 `Readers react to Mr. Huang’s reinstatement as the C.E.O. of the chip-making giant. Also: An execution in Texas; a parent’s school maze.`\
 https://www.nytimes.com/2026/11/24/opinion/jensen-huang-nvidia-trump.html
-
-**Jensen Huang Apologizes to Nvidia Employees, Says He Is in Therapy**\
-`A day after returning to his company, Mr. Huang acknowledged that he had violated Nvidia’s code of conduct and “made some terrible mistakes.”`\
-https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.html
-
-**Unstoppable Crowds Are Meeting Up to Push Immovable Objects**\
-`In Chicago, St. Louis, New York and Washington dreamers and pranksters have gotten together recently aiming to shift massive landmarks.`\
-https://www.nytimes.com/2026/11/24/us/washington-monument-chicago-bean-pushing.html
 
