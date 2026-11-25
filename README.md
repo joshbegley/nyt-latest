@@ -1,3 +1,7 @@
+**Fuel Leak at Power Plant Near Honolulu Has Local Officials Fuming**\
+`The mayor and the governor have had harsh words in recent days for the plant’s operator, and Gov. Josh Green signed an executive order requiring immediate reporting of any oil spill.`\
+https://www.nytimes.com/2026/11/24/us/h-power-fuel-leak-oahu-hawaii.html
+
 **Solomon Islands Enters Security Treaty With Australia, in a Blow to China**\
 `A 2022 Solomon Islands agreement with China had raised concerns it would enable Beijing to establish a military presence on the Pacific island. The new accord precludes such bases.`\
 https://www.nytimes.com/2026/11/24/world/asia/solomon-islands-security-treaty-australia-china.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/arts/design/smithsonian-letter-lonnie-bunch-w
 **The Mississippi Senate Race Wasn’t Even This Year’s Biggest Upset**\
 `We found the most unlikely winners of the 2026 midterms.`\
 https://www.nytimes.com/2026/11/24/upshot/midterm-elections-upsets-predictions.html
-
-**A Playlist of Thanksgiving Sides**\
-`The J.B.s, Kacey Musgraves, the Cranberries and more salute the rock stars of the dinner table.`\
-https://www.nytimes.com/2026/11/24/arts/music/amplifier-playlist-thanksgiving-cranberries-jbs.html
 
