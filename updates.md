@@ -1,3 +1,7 @@
+**Welcome Back to the Low-Trust Internet**\
+`The internet has grown to be a reliable platform for everything from communication to commerce and finance. But as A.I. supercharges cyberattacks, are we regressing to an era of “low-trust”? On “The Ezra Klein Show,” the cybersecurity expert Nicole Perlroth and Ezra Klein discuss the return of a more unreliable internet.`\
+https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-trust-internet.html
+
 **Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
 `Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
