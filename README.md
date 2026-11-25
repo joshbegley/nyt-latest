@@ -111,7 +111,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
-`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, amid fears that it could release a cloud of hazardous lead dust.`\
+`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, but it will take time to determine whether it released hazardous lead dust.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -169,8 +169,4 @@ https://www.nytimes.com/2026/11/25/nyregion/how-opera-props-became-mashed-potato
 **Trapped on the Tarmac: 3-Hour Flight Delays Spike Under Trump**\
 `Long delays have risen to levels not seen in more than 15 years, with no enforcement in sight.`\
 https://www.nytimes.com/2026/11/25/upshot/tarmac-delays-flights-trump.html
-
-**See How the 100th Macy’s Thanksgiving Day Parade Came Together Over 5 Years**\
-`For the 100th procession, crews have been planning and painting and drilling and more since 2021. Here’s how the largely handcrafted event came together.`\
-https://www.nytimes.com/2026/11/25/arts/television/macys-thanksgiving-day-parade-prep-planning.html
 

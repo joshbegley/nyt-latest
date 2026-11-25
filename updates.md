@@ -1,3 +1,23 @@
+**Anthropic’s Stock Debut Could Hurt Tech Start-Ups**\
+`As the share price drops, it could act as a brake on Silicon Valley’s frenzied investing in younger companies.`\
+https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.html
+
+**Thanksgiving Storm Is Expected to Hit East Coast With Heavy Rain and Flooding**\
+`The storm, developing offshore, is expected to move inland over North Carolina and grind northeast through Thanksgiving Day.`\
+https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flooding.html
+
+**Do This to Protect Your Data**\
+`The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
+https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
+
+**Humanity Bests Technology in Paris Opera’s ‘Ring’**\
+`When staff strikes kept parts of Calixto Bieito’s tech-themed production from the stage, the musicians’ artistry saved the day.`\
+https://www.nytimes.com/2026/11/25/arts/music/paris-opera-ring-cycle-calixto-bieito.html
+
+**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
+`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, amid fears that it could release a cloud of hazardous lead dust.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **The Ensemble Cast of a New York Sitcom Is Suddenly Running the Country**\
 `Remember when New York was an island off this nation’s coast?`\
 https://www.nytimes.com/2026/11/25/opinion/nyc-jeffries-schumer-mamdani-aoc-trump.html

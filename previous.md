@@ -1,3 +1,19 @@
+**Anthropic’s Stock Debut Could Hurt Tech Start-Ups**\
+`As the share price drops, it could act as a brake on Silicon Valley’s frenzied investing in younger companies.`\
+https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.html
+
+**Thanksgiving Storm Is Expected to Hit East Coast With Heavy Rain and Flooding**\
+`The storm, developing offshore, is expected to move inland over North Carolina and grind northeast through Thanksgiving Day.`\
+https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flooding.html
+
+**Do This to Protect Your Data**\
+`The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
+https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
+
+**Humanity Bests Technology in Paris Opera’s ‘Ring’**\
+`When staff strikes kept parts of Calixto Bieito’s tech-themed production from the stage, the musicians’ artistry saved the day.`\
+https://www.nytimes.com/2026/11/25/arts/music/paris-opera-ring-cycle-calixto-bieito.html
+
 **Welcome Back to the Low-Trust Internet**\
 `The internet has grown to be a reliable platform for everything from communication to commerce and finance. But as A.I. supercharges cyberattacks, are we regressing to an era of “low-trust”? On “The Ezra Klein Show,” the cybersecurity expert Nicole Perlroth and Ezra Klein discuss the return of a more unreliable internet.`\
 https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-trust-internet.html
@@ -95,7 +111,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
-`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
+`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, amid fears that it could release a cloud of hazardous lead dust.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -157,20 +173,4 @@ https://www.nytimes.com/2026/11/25/upshot/tarmac-delays-flights-trump.html
 **See How the 100th Macy’s Thanksgiving Day Parade Came Together Over 5 Years**\
 `For the 100th procession, crews have been planning and painting and drilling and more since 2021. Here’s how the largely handcrafted event came together.`\
 https://www.nytimes.com/2026/11/25/arts/television/macys-thanksgiving-day-parade-prep-planning.html
-
-**As Bob Iger Exits Disney for Good, an Unwelcome Biography Arrives**\
-`“The House of Mouse” challenges the image the company’s former chief has cultivated over decades. He is scheduled to attend his final Disney board meeting next week.`\
-https://www.nytimes.com/2026/11/25/business/media/bob-iger-disney-robbie-whelan.html
-
-**Hubert ‘Geese’ Ausbie, Start of the Harlem Globetrotters, Has Died**\
-`Known as the “Clown Prince of Basketball,” he mixed comic antics and high-flying athletic feats. He was 88.`\
-https://www.nytimes.com/2026/11/25/sports/hubert-geese-ausbie-dead.html
-
-**My Partner’s Wife Has Alzheimer’s. Loving Him Means Caring for Her, Too.**\
-`When Deb Copaken met the love of her life, he was navigating his wife’s Alzheimer’s diagnosis. Now, they are all navigating it together.`\
-https://www.nytimes.com/2026/11/25/podcasts/love-caregiving-partners-spouse-alzheimers.html
-
-**With Oil Prices Spiking, New Englanders Brace for a Pricey Winter**\
-`Demand for fuel assistance programs has risen across the region, as residents dial down thermostats and put on another sweater.`\
-https://www.nytimes.com/2026/11/25/realestate/new-england-oil-heating-homeowners.html
 
