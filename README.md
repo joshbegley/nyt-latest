@@ -1,3 +1,7 @@
+**We’re Investigating a $300 Million Mystery**\
+`A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
+https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
+
 **A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
 `Three data companies say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flood
 **Do This to Protect Your Data**\
 `The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
 https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
-
-**Humanity Bests Technology in Paris Opera’s ‘Ring’**\
-`When staff strikes kept parts of Calixto Bieito’s tech-themed production from the stage, the musicians’ artistry saved the day.`\
-https://www.nytimes.com/2026/11/25/arts/music/paris-opera-ring-cycle-calixto-bieito.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
