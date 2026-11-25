@@ -1,3 +1,11 @@
+**Veruschka, One of the World’s First Supermodels, Has Died**\
+`She rocketed to fame in Vogue and other magazines during the Swinging Sixties and had a memorable cameo in Antonioni’s hit film “Blow-Up.” She was 87.`\
+https://www.nytimes.com/2026/11/25/style/veruschka-dead.html
+
+**Section of Pacifica Pier in California Collapses Into Ocean**\
+`A portion of a pier in Pacifica, Calif., collapsed into the ocean on Wednesday amid high tides along the West Coast.`\
+https://www.nytimes.com/video/weather/100000011309085/section-of-pacifica-pier-in-california-collapses-into-ocean.html
+
 **The Macy’s Thanksgiving Day Parade Is Postponed**\
 `Also, scientists fan out across Iowa to test for lead. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/11/25/briefing/macys-thanksgiving-day-parade.html
@@ -181,16 +189,4 @@ https://www.nytimes.com/2026/11/25/upshot/gen-z-elder-care.html
 **How to Make the Perfect Seating Chart**\
 `Experts weigh in on how to make the perfect seating chart.`\
 https://www.nytimes.com/2026/11/25/t-magazine/seating-chart-arrangement-guide.html
-
-**Europe’s Hera Mission Releases Close-Up Images of the Asteroid Hit by a NASA Spacecraft**\
-`A European mission called Hera has just revealed the first close-up look at the aftermath of NASA’s audacious planetary defense test.`\
-https://www.nytimes.com/2026/11/25/science/hera-nasa-photos-dart-asteroid.html
-
-**Reflections on the River of Life**\
-`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
-https://www.nytimes.com/2026/11/25/opinion/old-age.html
-
-**How Our Reporters Navigate Politics at Thanksgiving**\
-`A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
-https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
 

@@ -1,3 +1,11 @@
+**Veruschka, One of the World’s First Supermodels, Has Died**\
+`She rocketed to fame in Vogue and other magazines during the Swinging Sixties and had a memorable cameo in Antonioni’s hit film “Blow-Up.” She was 87.`\
+https://www.nytimes.com/2026/11/25/style/veruschka-dead.html
+
+**Section of Pacifica Pier in California Collapses Into Ocean**\
+`A portion of a pier in Pacifica, Calif., collapsed into the ocean on Wednesday amid high tides along the West Coast.`\
+https://www.nytimes.com/video/weather/100000011309085/section-of-pacifica-pier-in-california-collapses-into-ocean.html
+
 **The Macy’s Thanksgiving Day Parade Is Postponed**\
 `Also, scientists fan out across Iowa to test for lead. Here’s the latest at the end of Wednesday.`\
 https://www.nytimes.com/2026/11/25/briefing/macys-thanksgiving-day-parade.html
