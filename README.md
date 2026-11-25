@@ -1,3 +1,7 @@
+**Footage Shows Army Detonating Toxic Material at Iowa Ammunition Plant**\
+`The army detonated toxic material at an ammunition plant in Iowa on Wednesday. Officials said it will take time to determine whether the explosion released hazardous lead dust.`\
+https://www.nytimes.com/video/us/100000011308100/army-detonation-lead-material-iowa.html
+
 **Iowa Awaits All-Clear as Tests for Lead Continue**\
 `It will take some time for officials to examine the air, water and soil samples for contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-awaits-all-clear-as-tests-for-lead-continue.html
@@ -169,10 +173,6 @@ https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 **Stock Sell-Off Continues as Investors Fret About A.I., Tariffs and Inflation**\
 `Nvidia, Anthropic and other tech companies tumbled as investors also weighed developments in global trade and the path of interest rates.`\
 https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
-
-**Thanksgiving Travel**\
-`Why airport delays are on the rise.`\
-https://www.nytimes.com/2026/11/25/briefing/thanksgiving-travel-delays.html
 
 **Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
