@@ -90,8 +90,8 @@ https://www.nytimes.com/2026/11/25/technology/thanksgiving-ai-doom-family.html
 `Gallaghers is turning 100 next year, and the outsize steaks still deliver heady, dry-aged pleasures.`\
 https://www.nytimes.com/2026/11/25/dining/restaurant-review-gallaghers-nyc.html
 
-**Losses Mount for Yemeni Government as Houthi Militia Advances**\
-`The Iran-backed Houthis in Yemen are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
+**How an Iranian Ally Gained the Upper Hand in Yemen’s War**\
+`The Iran-backed Houthis are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government-losses.html
 
 **With Measles on the Rise, Some Families Are Forgoing Thanksgiving Travel**\
