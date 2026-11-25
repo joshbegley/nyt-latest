@@ -1,3 +1,7 @@
+**U.S. Misrepresented to Court the Views of the House’s Top Lawyer About Omar Search**\
+`The Justice Department apologized for misstating the House general counsel’s position, calling it an inadvertent misinterpretation.`\
+https://www.nytimes.com/2026/11/24/us/politics/house-lawyer-ilhan-omar-search.html
+
 **See How the Army Plans to Blow Up Five Tons of Toxic Lead Compounds in Iowa**\
 `Disposing of an unstable stockpile of lead azide at an Iowa base will be dangerous and complicated. These maps and diagrams break down the process step by step.`\
 https://www.nytimes.com/interactive/2026/11/24/climate/iowa-lead-detonation-explained.html
