@@ -1,3 +1,7 @@
+**Army’s Maps of Iowa Explosion May Underestimate Impact**\
+`The emergency emissions scenario calculated by Army officials did not use a “worst-case scenario,” as required by the Environmental Protection Agency.`\
+https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-underestimated.html
+
 **My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
 `A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
 https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
