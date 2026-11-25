@@ -1,3 +1,11 @@
+**Hungary Threw Open Its Secret Police Files. Let the Finger Pointing Begin.**\
+`The communist-era files have exposed the vast network of informants that kept Hungary in the Soviet orbit. But how reliable are they?`\
+https://www.nytimes.com/2026/11/25/world/europe/hungary-threw-open-its-secret-police-files-let-the-finger-pointing-begin.html
+
+**Quote of the Day: Families Fleeing North Are Facing Separation at the Canadian Border**\
+`Quotation of the Day for Wednesday, November 25, 2026.`\
+https://www.nytimes.com/2026/11/25/pageoneplus/quote-of-the-day-families-fleeing-north-are-facing-separation-at-the-canadian-border.html
+
 **Fuel Leak at Power Plant Near Honolulu Has Local Officials Fuming**\
 `The mayor and the governor have had harsh words in recent days for the plant’s operator, and Gov. Josh Green signed an executive order requiring immediate reporting of any oil spill.`\
 https://www.nytimes.com/2026/11/24/us/h-power-fuel-leak-oahu-hawaii.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/us/politics/spy-agencies-computer-network-bre
 **Houthi Attack on Skyscraper in Saudi Capital Wounds 11, Officials Say**\
 `The people were wounded in the strike on a building in Riyadh, the Saudi authorities said. The Iran-backed militia and Saudi Arabia have been exchanging escalating attacks for weeks.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/saudi-skyscraper-houthi-strike.html
-
-**Smithsonian Boss Defends Autonomy After Report of Trump Overhaul Plan**\
-`Lonnie Bunch wrote a letter intended to calm his staff after an outline of major personnel and programming changes was seen on a White House aide’s computer.`\
-https://www.nytimes.com/2026/11/24/arts/design/smithsonian-letter-lonnie-bunch-white-house.html
-
-**The Mississippi Senate Race Wasn’t Even This Year’s Biggest Upset**\
-`We found the most unlikely winners of the 2026 midterms.`\
-https://www.nytimes.com/2026/11/24/upshot/midterm-elections-upsets-predictions.html
 
