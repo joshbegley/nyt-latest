@@ -1,3 +1,7 @@
+**How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
+`Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
+https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
+
 **Why the Nvidia Rally Fizzled**\
 `Jensen Huang may be running Nvidia again, but investors are losing faith in the artificial intelligence boom the chipmaker has underpinned.`\
 https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
@@ -62,8 +66,8 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 `The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
-**Live Updates: Army Is Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
-`The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
+**Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
+`Officials said they expected “zero release” of the hazardous compounds at an Army ammunition plant, while also warning people in the path of a potential lead dust cloud to take shelter or evacuate.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/realestate/utility-and-beauty-meet-in-an-inte
 **First, Kill the Filibuster**\
 `Don’t wait for 2029 on the assumption that the next president will be a Democrat. Do it now.`\
 https://www.nytimes.com/2026/11/25/opinion/filibuster-democrats-republicans-trump.html
-
-**The Nine Circles of Holiday Travel Hell**\
-`Dante’s “Inferno” depicted a hell meant to punish sinners. Our airports are a hell meant to punish everyone.`\
-https://www.nytimes.com/2026/11/25/opinion/airports-travel-holiday.html
 

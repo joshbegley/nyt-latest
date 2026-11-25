@@ -1,3 +1,11 @@
+**How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
+`Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
+https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
+
+**Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
+`Officials said they expected “zero release” of the hazardous compounds at an Army ammunition plant, while also warning people in the path of a potential lead dust cloud to take shelter or evacuate.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Why the Nvidia Rally Fizzled**\
 `Jensen Huang may be running Nvidia again, but investors are losing faith in the artificial intelligence boom the chipmaker has underpinned.`\
 https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
