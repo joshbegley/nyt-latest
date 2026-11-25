@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/11/25/arts/television/comedy-specials-cunk-on-cinem
 `This mostly painless sequel to “Meet the Parents” flips the dynamics from the original.`\
 https://www.nytimes.com/2026/11/25/movies/focker-in-law-review.html
 
-**‘All of a Sudden’ Review: Ryusuke Hamaguchi’s Exquisite New Drama**\
-`One of the year’s best films meditates on care, connection and how we spend our days.`\
-https://www.nytimes.com/2026/11/25/movies/all-of-a-sudden-review.html
-
