@@ -1,3 +1,7 @@
+**Latino-Owned Coffee Shop Closes After Claims That Founder Works for ICE**\
+`Tasa Coffee Roasters in Chicago permanently closed its doors after workers walked out in protest.`\
+https://www.nytimes.com/2026/11/24/us/tasa-coffee-chicago-closed-ice-owner.html
+
 **Photo Quiz: Guess the Year**\
 `We’ve selected five Thanksgiving-themed pictures from our archives. See if you can figure out when they’re from.`\
 https://www.nytimes.com/interactive/2026/11/24/arts/photo-quiz-game-175-thanksgiving.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-
 **A Lion on the Loose Near Istanbul? Not So Fast.**\
 `Blurry surveillance footage spurred a frantic search — until the Turkish authorities said it was unclear whether the animal was the feline.`\
 https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
-
-**An Adored Manhattan Grocery, and Seinfeld Favorite, May Close Its Doors**\
-`Zingone Bros. is beloved on the Upper West Side. That might not be enough to keep it open.`\
-https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
 
