@@ -1,3 +1,7 @@
+**Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears After Iowa Blast**\
+`It will take time to determine if the detonation of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
 `Senator Chris Van Hollen says his move to replace Senator Chuck Schumer as party leader isn’t about Israel, but his sharply critical stance toward the Jewish state has become a major fault line in the race.`\
 https://www.nytimes.com/2026/11/25/us/politics/van-hollen-schumer-israel-senate.html

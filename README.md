@@ -1,3 +1,7 @@
+**FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
+`Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the  detonation in Iowa.`\
+https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
+
 **Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
 `Senator Chris Van Hollen says his move to replace Senator Chuck Schumer as party leader isn’t about Israel, but his sharply critical stance toward the Jewish state has become a major fault line in the race.`\
 https://www.nytimes.com/2026/11/25/us/politics/van-hollen-schumer-israel-senate.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/opinion/charity-holiday-gift-maternal-health.
 **Mexico Investigates Possible Cartel Links of Prosecutor Who Aided C.I.A.**\
 `The prosecutor recently fled to the United States after Mexico issued a warrant over his involvement with the C.I.A. Now authorities are investigating him for suspected cartel collusion.`\
 https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
-
-**Corrections: Nov. 25, 2026**\
-`Corrections that appeared in print on Wednesday, Nov. 25, 2026.`\
-https://www.nytimes.com/2026/11/25/pageoneplus/corrections-nov-25-2026.html
 
