@@ -1,3 +1,11 @@
+**Thanksgiving Travel**\
+`Why airport delays are on the rise.`\
+https://www.nytimes.com/2026/11/25/briefing/thanksgiving-travel-delays.html
+
+**Live Updates: Army Is Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
+`The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Defending Aden, Yemen’s Holdout Against the Houthis**\
 `The war in Iran has reignited Yemen’s decade-old civil war. Saudi-backed troops are scrambling to defend against advancing Houthi fighters as the wounded are taken to the port city of Aden, the government’s provisional capital.`\
 https://www.nytimes.com/video/world/middleeast/100000011300541/defending-aden-yemens-holdout-against-the-houthis.html
