@@ -1,3 +1,7 @@
+**After Extraordinary Iowa Blast, Officials and Scientists Assess Fallout Risks**\
+`Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
+https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
+
 **Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
 `She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
 https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
