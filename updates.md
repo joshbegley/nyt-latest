@@ -1,3 +1,11 @@
+**Who Are the New Members of Congress?**\
+`There are political veterans and neophytes, a new wave of young lawmakers and a record number of women who will serve in the House.`\
+https://www.nytimes.com/interactive/2026/11/24/us/politics/congress-new-members-democrats.html
+
+**Justice Dept. Apologizes for Making False Statement to Judge in Omar Case**\
+`The acknowledgment came hours after the House’s top lawyer said the department mischaracterized his view on constitutional protections for lawmakers.`\
+https://www.nytimes.com/2026/11/24/us/politics/house-lawyer-ilhan-omar-search.html
+
 **U.S. Misrepresented to Court the Views of the House’s Top Lawyer About Omar Search**\
 `The Justice Department apologized for misstating the House general counsel’s position, calling it an inadvertent misinterpretation.`\
 https://www.nytimes.com/2026/11/24/us/politics/house-lawyer-ilhan-omar-search.html

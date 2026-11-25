@@ -1,5 +1,9 @@
-**U.S. Misrepresented to Court the Views of the House’s Top Lawyer About Omar Search**\
-`The Justice Department apologized for misstating the House general counsel’s position, calling it an inadvertent misinterpretation.`\
+**Who Are the New Members of Congress?**\
+`There are political veterans and neophytes, a new wave of young lawmakers and a record number of women who will serve in the House.`\
+https://www.nytimes.com/interactive/2026/11/24/us/politics/congress-new-members-democrats.html
+
+**Justice Dept. Apologizes for Making False Statement to Judge in Omar Case**\
+`The acknowledgment came hours after the House’s top lawyer said the department mischaracterized his view on constitutional protections for lawmakers.`\
 https://www.nytimes.com/2026/11/24/us/politics/house-lawyer-ilhan-omar-search.html
 
 **See How the Army Plans to Blow Up Five Tons of Toxic Lead Compounds in Iowa**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/us/washington-monument-chicago-bean-pushing.h
 **Crowds Gather to Try to Push City Landmarks**\
 `From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
 https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
-
-**Trump Ballroom and Other Projects Got $300 Million Donation Boost**\
-`The Trump administration declined to say who donated those funds to an account funding presidential projects like the White House ballroom and the triumphal arch.`\
-https://www.nytimes.com/2026/11/24/us/politics/account-park-service-trump-ballroom-donation.html
 
