@@ -1,3 +1,7 @@
+**Rumor About Big Score on Nvidia Stock Surge Is Not Backed by Trading Records**\
+`Two data analytics firms say they have no evidence to support the online claim that insider trading generated a $300 million return.`\
+https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
+
 **Study Hard, Get Ahead?**\
 `The broken promise of upward mobility through education is sparking youth protests around the world.`\
 https://www.nytimes.com/2026/11/25/world/youth-protests-education-tariffs-thanksgiving.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-da
 **Humanity Bests Technology in Paris Opera’s ‘Ring’**\
 `When staff strikes kept parts of Calixto Bieito’s tech-themed production from the stage, the musicians’ artistry saved the day.`\
 https://www.nytimes.com/2026/11/25/arts/music/paris-opera-ring-cycle-calixto-bieito.html
-
-**Welcome Back to the Low-Trust Internet**\
-`The internet has grown to be a reliable platform for everything from communication to commerce and finance. But as A.I. supercharges cyberattacks, are we regressing to an era of “low-trust”? On “The Ezra Klein Show,” the cybersecurity expert Nicole Perlroth and Ezra Klein discuss the return of a more unreliable internet.`\
-https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-trust-internet.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\

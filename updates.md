@@ -1,3 +1,7 @@
+**Rumor About Big Score on Nvidia Stock Surge Is Not Backed by Trading Records**\
+`Two data analytics firms say they have no evidence to support the online claim that insider trading generated a $300 million return.`\
+https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
+
 **Study Hard, Get Ahead?**\
 `The broken promise of upward mobility through education is sparking youth protests around the world.`\
 https://www.nytimes.com/2026/11/25/world/youth-protests-education-tariffs-thanksgiving.html
