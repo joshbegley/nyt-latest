@@ -1,3 +1,7 @@
+**Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
+`The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
+https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
+
 **Ezra Frech Wins a Contentious Season of ‘Dancing With the Stars’**\
 `Harry Shum and Jenna Dewan, who both had experience in dance, were previously voted off despite high scores from judges.`\
 https://www.nytimes.com/2026/11/24/arts/television/ezra-frech-wins-dancing-with-stars.html
