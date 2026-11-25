@@ -1,3 +1,11 @@
+**Angelina Jolie and Brad Pitt Settle Lawsuit That Aired Abuse Allegations**\
+`The battle over a winery disclosed details about what Ms. Jolie said was abusive behavior by Mr. Pitt toward her and their children in 2016.`\
+https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-winery-lawsuit.html
+
+**ICE Arrests Man in Boston Days After He Wins $1 Million Lottery Prize**\
+`Ariel Velasquez-Morales, a native of El Salvador, smiled in a picture with a giant check. The image led immigration agents to him, and he is set for deportation.`\
+https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
+
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `A nor’easter with high winds is expected to pummel New York City on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
