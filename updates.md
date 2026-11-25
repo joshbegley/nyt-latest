@@ -1,3 +1,11 @@
+**Why Aren’t the Midterms Over in Louisiana? Ask the Supreme Court.**\
+`A landmark Supreme Court ruling reshaped the state’s congressional map and set up runoffs for two open seats.`\
+https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-louisiana-ask-the-supreme-court.html
+
+**Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
+`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Stock Sell-Off Continues as Investors Fret About A.I., Tariffs and Inflation**\
 `Nvidia, Anthropic and other tech companies tumbled as investors also weighed developments in global trade and the path of interest rates.`\
 https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
