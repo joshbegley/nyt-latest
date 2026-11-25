@@ -1,3 +1,7 @@
+**Study Hard, Get Ahead?**\
+`The broken promise of upward mobility through education is sparking youth protests around the world.`\
+https://www.nytimes.com/2026/11/25/world/youth-protests-education-tariffs-thanksgiving.html
+
 **Border Barrier Cannot be Removed for Decades, Texas Republicans and D.O.J. Agree**\
 `Just before Democrats take over the state government, Trump administration and outgoing Republican officials in Texas ink legal settlement barring removal of wire for 30 years.`\
 https://www.nytimes.com/2026/11/25/us/politics/texas-border-legal-settlement-trump.html
