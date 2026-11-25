@@ -1,6 +1,10 @@
+**Why the Nvidia Rally Fizzled**\
+`Jensen Huang may be running Nvidia again, but investors are losing faith in the artificial intelligence boom the chipmaker has underpinned.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
+
 **Shelter the Livestock, Farmers Were Told. But Where Do You Hide a Herd?**\
 `In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
-https://www.nytimes.com/2026/11/25/us/shelter-the-livestock-farmers-were-told-but-where-do-you-hide-a-herd.html
+https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 
 **Stock Sell-Off Set to Continue as A.I. Players Fall Again**\
 `Shares of Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also worried about tariffs and interest rates.`\
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/opinion/filibuster-democrats-republicans-trum
 **The Nine Circles of Holiday Travel Hell**\
 `Dante’s “Inferno” depicted a hell meant to punish sinners. Our airports are a hell meant to punish everyone.`\
 https://www.nytimes.com/2026/11/25/opinion/airports-travel-holiday.html
-
-**Book Review: ‘Boss Lincoln,’ by Matthew Pinsker**\
-`A new book by the historian Matthew Pinsker depicts the Great Emancipator as a formidable builder of political power.`\
-https://www.nytimes.com/2026/11/25/books/review/boss-lincoln-matthew-pinsker.html
 
