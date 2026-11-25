@@ -1,3 +1,7 @@
+**Thanksgiving Travel Increases Amid Possible Disruptions**\
+`Thanksgiving travel is underway, and after weeks of major outages, some people are bracing for potential disruptions, including storms on both coasts.`\
+https://www.nytimes.com/video/us/100000011307252/thanksgiving-travel-outage-storms.html
+
 **Plane Crash Near Mississippi’s Horn Island Kills 6**\
 `Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
 https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/arts/design/thelma-golden-steps-down-studio-m
 **National Security vs. the Stock Market**\
 `President Trump swept aside concerns about possible espionage when he lobbied Nvidia’s board to reinstate Jensen Huang as chief executive.`\
 https://www.nytimes.com/2026/11/24/world/nvidia-trump-stocks-china-books.html
-
-**‘The Further Mis-Adventures of Cliff Booth’ Review: Golden-Boy Fumes**\
-`Quentin Tarantino wrote, and David Fincher directed, this movie starring Brad Pitt, which picks up with the stuntman character he played in “Once Upon a Time … in Hollywood.”`\
-https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-booth-review.html
 

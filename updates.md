@@ -1,3 +1,7 @@
+**Thanksgiving Travel Increases Amid Possible Disruptions**\
+`Thanksgiving travel is underway, and after weeks of major outages, some people are bracing for potential disruptions, including storms on both coasts.`\
+https://www.nytimes.com/video/us/100000011307252/thanksgiving-travel-outage-storms.html
+
 **Plane Crash Near Mississippi’s Horn Island Kills 6**\
 `Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
 https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
