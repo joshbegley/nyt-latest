@@ -30,13 +30,13 @@ https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
 `A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
 https://www.nytimes.com/2026/11/25/podcasts/the-daily/democrats-climate-environment-permitting-bill.html
 
-**Today’s Wordle Hints for November 26, 2026**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
-https://www.nytimes.com/2026/11/25/crosswords/wordle-review-1986.html
-
 **How ICE Training Turned Into a ‘Catastrophic Failure,’ and Grocery Stores’ Thanksgiving Gamble**\
 `Plus, the comedian taking on Xi Jinping.`\
 https://www.nytimes.com/2026/11/25/podcasts/the-headlines/ice-training-grocery-stores-thanksgiving.html
+
+**Today’s Wordle Hints for November 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/wordle-review-1986.html
 
 **NYT Strands Hints for November 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
@@ -181,8 +181,4 @@ https://www.nytimes.com/2026/11/25/arts/television/brittany-snow-hunting-wives.h
 **June Crespo’s Sculptures Blend Physical Heft With Bodily Intimacy**\
 `To make her increasingly large and complex works, the artist June Crespo has used steel and concrete alongside used clothing and old magazines.`\
 https://www.nytimes.com/2026/11/25/t-magazine/june-crespo-sculpture.html
-
-**Great New Historical Fiction**\
-`Our critic on six books worth your time.`\
-https://www.nytimes.com/2026/11/25/books/review/new-historical-fiction-books.html
 
