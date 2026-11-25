@@ -1,3 +1,11 @@
+**Small Plane Crashes Off the Mississippi Coast, Killing 6**\
+`Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
+https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
+
+**Puerto Rico’s Jennifer Barreto Wins Miss Universe on Home Turf**\
+`The pageant’s organizers said Costa Rica would host next year, contradicting a rival camp that chose Vietnam as the venue. They are locked in a bitter fight for control of Miss Universe.`\
+https://www.nytimes.com/2026/11/25/us/miss-universe-winner-puerto-rico.html
+
 **Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
 `The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
 https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
