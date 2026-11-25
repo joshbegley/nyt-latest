@@ -1,3 +1,15 @@
+**How the Nvidia Scandal Fits Into a Chinese Spy Campaign**\
+`China’s top civilian spy agency was behind a yearslong campaign to find access to Nvidia’s most advanced computer chips. Julian E. Barnes, a national security correspondent for The New York Times, explains what makes the campaign such a serious threat to American national security.`\
+https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-into-a-chinese-spy-campaign.html
+
+**Fort Hood Shooter Asks Judge to Delay His Execution by Firing Squad**\
+`Nidal Malik Hasan, who killed 13 people at the Army base in 2009, said he wanted to challenge his conviction and death sentence, which is to be carried out next week.`\
+https://www.nytimes.com/2026/11/25/us/nidal-malik-hasan-fort-hood-execution-stay.html
+
+**Deal Signed to Sell Lukoil’s Foreign Assets, but Without Envoys’ Business Associates**\
+`Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the peace negotiators Steve Witkoff and Jared Kushner are no longer part of the buyer group.`\
+https://www.nytimes.com/2026/11/25/us/politics/lukoil-deal.html
+
 **Opposition Makes Progress Toward Ousting Netanyahu, Party Leader Says**\
 `Gadi Eisenkot, a former military chief, has set Dec. 6 as the deadline to form a new Israeli government. His ally, Avigdor Liberman, said Mr. Eisenkot was on track.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/opposition-makes-progress-toward-ousting-netanyahu-party-leader-says.html

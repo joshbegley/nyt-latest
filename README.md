@@ -1,3 +1,7 @@
+**Kilmar Abrego Garcia Arrives in Spain After Voluntarily Leaving U.S.**\
+`Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was wrongfully deported from the United States last year, arrived in Spain after voluntarily leaving the United States.`\
+https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-spain.html
+
 **How the Nvidia Scandal Fits Into a Chinese Spy Campaign**\
 `China’s top civilian spy agency was behind a yearslong campaign to find access to Nvidia’s most advanced computer chips. Julian E. Barnes, a national security correspondent for The New York Times, explains what makes the campaign such a serious threat to American national security.`\
 https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-into-a-chinese-spy-campaign.html
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
 **Watch the Task Force Panel Discussions From the DealBook Summit**\
 `See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
 https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
-
-**Democrats’ New Climate Strategy? Deregulation.**\
-`A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
-https://www.nytimes.com/2026/11/25/podcasts/the-daily/democrats-climate-environment-permitting-bill.html
 
 **Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
