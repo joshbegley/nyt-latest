@@ -1,3 +1,7 @@
+**India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
+`The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
+https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
+
 **Donate This Holiday Season: Build Health International Needs Your Help**\
 `Build Health International provides modern medical facilities in the poorest parts of the world.`\
 https://www.nytimes.com/2026/11/25/opinion/charity-holiday-gift-maternal-health.html
