@@ -1,3 +1,7 @@
+**Don’t Sign Up for Debt This Black Friday**\
+`Before you splurge this Black Friday, watch this. Buy now, pay later plans are everywhere. You know the ones: They show up every time you’re ready to check out. It might be easy to sign up and say yes, but the Times Opinion fellow Tara Jayaram argues you’re just signing up for another loan, and this one’s taking advantage of you.`\
+https://www.nytimes.com/video/opinion/100000011187585/dont-sign-up-for-debt-this-black-friday.html
+
 **After Extraordinary Iowa Blast, Officials and Scientists Assess Fallout Risks**\
 `Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-tr
 **Why Aren’t the Midterms Over in Louisiana? Ask the Supreme Court.**\
 `A landmark Supreme Court ruling reshaped the state’s congressional map and set up runoffs for two open seats.`\
 https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-louisiana-ask-the-supreme-court.html
-
-**Army’s Maps of Iowa Explosion May Underestimate Impact**\
-`The emergency emissions scenario calculated by Army officials did not use a “worst-case scenario,” as required by the Environmental Protection Agency.`\
-https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-underestimated.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
