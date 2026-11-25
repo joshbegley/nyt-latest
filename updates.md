@@ -1,3 +1,7 @@
+**Sullivan Concedes Alaska Senate Race to Peltola**\
+`The Republican conceded five days after the Trump administration gave up on a long-shot lawsuit intended to potentially block certification of the race.`\
+https://www.nytimes.com/2026/11/24/us/politics/dan-sullivan-concedes-alaska-senate-race-mary-peltola.html
+
 **An Explosion Is Coming to Iowa. And Residents Can’t Do a Thing About It.**\
 `Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
 https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
