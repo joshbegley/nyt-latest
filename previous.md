@@ -1,3 +1,7 @@
+**The Local: From Little Falls to Boy Throb**\
+`Also, your turkey spottings.`\
+https://www.nytimes.com/2026/11/25/briefing/boy-throb-zachary-sobania.html
+
 **Mamdani Wins Against Landlords in Rent Freeze Lawsuit**\
 `A Manhattan judge handed a victory to Mayor Zohran Mamdani by dismissing a lawsuit filed by landlords over a rent freeze for rent-stabilized apartments.`\
 https://www.nytimes.com/2026/11/25/nyregion/mamdani-rent-freeze-legal-challenge-apartments.html
@@ -54,8 +58,8 @@ https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-
 `Nidal Malik Hasan, who killed 13 people at the Army base in 2009, said he wanted to challenge his conviction and death sentence, which is to be carried out next week.`\
 https://www.nytimes.com/2026/11/25/us/nidal-malik-hasan-fort-hood-execution-stay.html
 
-**Deal Signed to Sell Lukoil’s Foreign Assets, but Without Envoys’ Business Associates**\
-`Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the peace negotiators Steve Witkoff and Jared Kushner are no longer part of the buyer group.`\
+**Lukoil to Sell Foreign Assets, but Not to Kushner and Witkoff Associates**\
+`Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the two Trump envoys pulled out because of political winds.`\
 https://www.nytimes.com/2026/11/25/us/politics/lukoil-deal.html
 
 **Opposition Makes Progress Toward Ousting Netanyahu, Party Leader Says**\
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
 **How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
 `Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
 https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
-
-**Why the Nvidia Rally Fizzled**\
-`Jensen Huang may be running Nvidia again, but investors are losing faith in the artificial intelligence boom the chipmaker has underpinned.`\
-https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\

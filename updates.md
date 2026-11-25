@@ -1,3 +1,11 @@
+**The Local: From Little Falls to Boy Throb**\
+`Also, your turkey spottings.`\
+https://www.nytimes.com/2026/11/25/briefing/boy-throb-zachary-sobania.html
+
+**Lukoil to Sell Foreign Assets, but Not to Kushner and Witkoff Associates**\
+`Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the two Trump envoys pulled out because of political winds.`\
+https://www.nytimes.com/2026/11/25/us/politics/lukoil-deal.html
+
 **Mamdani Wins Against Landlords in Rent Freeze Lawsuit**\
 `A Manhattan judge handed a victory to Mayor Zohran Mamdani by dismissing a lawsuit filed by landlords over a rent freeze for rent-stabilized apartments.`\
 https://www.nytimes.com/2026/11/25/nyregion/mamdani-rent-freeze-legal-challenge-apartments.html
