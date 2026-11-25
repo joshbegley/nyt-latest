@@ -1,3 +1,7 @@
+**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume of Smoke Into Air**\
+`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Why Aren’t the Midterms Over in Louisiana? Ask the Supreme Court.**\
 `A landmark Supreme Court ruling reshaped the state’s congressional map and set up runoffs for two open seats.`\
 https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-louisiana-ask-the-supreme-court.html
