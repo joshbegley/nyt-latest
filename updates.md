@@ -1,3 +1,7 @@
+**FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
+`Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
+https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
+
 **Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears After Iowa Blast**\
 `It will take time to determine if the detonation of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
