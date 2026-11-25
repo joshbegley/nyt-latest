@@ -1,3 +1,7 @@
+**Stock Sell-Off Set to Continue as A.I. Players Fall Again**\
+`Shares of Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also worried about tariffs and interest rates.`\
+https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
+
 **Thanksgiving Travel**\
 `Why airport delays are on the rise.`\
 https://www.nytimes.com/2026/11/25/briefing/thanksgiving-travel-delays.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/books/review/boss-lincoln-matthew-pinsker.htm
 **Brittany Snow Has Something to Prove**\
 `The “Hunting Wives” star, who began acting as a child and endured years of struggle, is experiencing a career renaissance at 40.`\
 https://www.nytimes.com/2026/11/25/arts/television/brittany-snow-hunting-wives.html
-
-**June Crespo’s Sculptures Blend Physical Heft With Bodily Intimacy**\
-`To make her increasingly large and complex works, the artist June Crespo has used steel and concrete alongside used clothing and old magazines.`\
-https://www.nytimes.com/2026/11/25/t-magazine/june-crespo-sculpture.html
 

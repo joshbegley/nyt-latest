@@ -1,3 +1,7 @@
+**How an Iranian Ally Gained the Upper Hand in Yemen’s War**\
+`The Iran-backed Houthis are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government-losses.html
+
 **Thanksgiving Travel**\
 `Why airport delays are on the rise.`\
 https://www.nytimes.com/2026/11/25/briefing/thanksgiving-travel-delays.html
