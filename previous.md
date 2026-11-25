@@ -83,7 +83,7 @@ https://www.nytimes.com/2026/11/25/crosswords/strands-sidekick-998.html
 https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 
 **2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
-`The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
+`Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\

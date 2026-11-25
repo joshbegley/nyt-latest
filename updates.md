@@ -1,3 +1,7 @@
+**2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
+`Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
+https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
+
 **Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
 `Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario for an area of roughly 150 square miles.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
