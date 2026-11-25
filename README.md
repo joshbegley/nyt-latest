@@ -1,5 +1,5 @@
 **North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
-`The move followed Switzerland’s decision to sanction an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
+`The move followed Switzerland’s decision to impose sanctions on an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
 https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
 
 **Late Night Rips Into Trump for Honoring Rudy Giuliani**\
