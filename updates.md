@@ -1,3 +1,7 @@
+**Gordon Ramsay to Host Revival of BBC’s ‘Top Gear’**\
+`The British car show “Top Gear” paused production three years ago and is returning with a new host in 2028, the BBC said.`\
+https://www.nytimes.com/2026/11/25/arts/television/gordon-ramsay-top-gear-revival.html
+
 **Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `The Macy’s Thanksgiving Day Parade will be postponed until Saturday because of inclement weather. It will be the first time in the parade’s 100-year history that the event will not take place on Thanksgiving Day.`\
 https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postponed.html
