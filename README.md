@@ -1,3 +1,7 @@
+**Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
+`The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
+https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
+
 **NYT Spelling Bee Answers for November 25, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-bo
 **‘The Digital Deficit Has Come Due’**\
 `Why is the internet so prone to outages and attacks right now? The cybersecurity expert Nicole Perlroth explains on “The Ezra Klein Show” that “faulty, flawed, vulnerable software” underlies the modern internet.`\
 https://www.nytimes.com/video/opinion/100000011299692/the-digital-deficit-has-come-due.html
-
-**Huawei Found Guilty of Stealing Trade Secrets in U.S. Trial**\
-`The verdict was a victory for the Justice Department in a long-running case over what federal prosecutors called brazen trade theft by the Chinese telecommunications giant.`\
-https://www.nytimes.com/2026/11/24/nyregion/huawei-guilty-new-york.html
 
