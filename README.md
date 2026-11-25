@@ -1,3 +1,7 @@
+**The Macy’s Thanksgiving Day Parade Is Postponed**\
+`Also, scientists fan out across Iowa to test for lead. Here’s the latest at the end of Wednesday.`\
+https://www.nytimes.com/2026/11/25/briefing/macys-thanksgiving-day-parade.html
+
 **Setting Up the Macy’s Thanksgiving Day Parade is Quite a Process. So Is Undoing it.**\
 `After a long preparation for the 100th anniversary procession, having time to rest will have to wait a few days for the crews.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-parade-preparation-setup.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/opinion/old-age.html
 **How Our Reporters Navigate Politics at Thanksgiving**\
 `A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
 https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
-
-**The U.S. Isn’t in a Recession. Try Telling Many Americans That.**\
-`The freshest measures of growth and hiring show a healthy economy. Struggling Americans aren’t seeing that.`\
-https://www.nytimes.com/2026/11/25/us/economic-growth-recession-pessimism.html
 

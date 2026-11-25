@@ -1,3 +1,7 @@
+**Setting Up the Macy’s Thanksgiving Day Parade is Quite a Process. So Is Undoing it.**\
+`After a long preparation for the 100th anniversary procession, having time to rest will have to wait a few days for the crews.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-parade-preparation-setup.html
+
 **Setting Up the Parade Is Quite a Process. Undoing It Is, Too.**\
 `After a long preparation for the 100th anniversary procession, having time to rest will have to wait a few days for the crews.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-parade-preparation-setup.html
