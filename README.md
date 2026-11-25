@@ -1,3 +1,15 @@
+**Watching the Army’s Toxic Lead Detonation**\
+`In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html
+
+**‘My Duty as a Grandson’: Gen Z Men Are as Likely as Women to Provide Elder Care**\
+`New data shows that young adults are increasingly caring for older relatives.`\
+https://www.nytimes.com/2026/11/25/upshot/gen-z-elder-care.html
+
+**How to Make the Perfect Seating Chart**\
+`Experts weigh in on how to make the perfect seating chart.`\
+https://www.nytimes.com/2026/11/25/t-magazine/seating-chart-arrangement-guide.html
+
 **Europe’s Hera Mission Releases Close-Up Images of the Asteroid Hit by a NASA Spacecraft**\
 `A European mission called Hera has just revealed the first close-up look at the aftermath of NASA’s audacious planetary defense test.`\
 https://www.nytimes.com/2026/11/25/science/hera-nasa-photos-dart-asteroid.html
@@ -161,8 +173,4 @@ https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-i
 **Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
-
-**3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
-`At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
-https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
 
