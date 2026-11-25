@@ -19,7 +19,7 @@ https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-wi
 https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
 
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
-`A nor’easter is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
+`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
 
 **The Good List: 5 Things to Add Delight to Your Day**\
