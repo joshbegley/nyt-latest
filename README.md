@@ -1,3 +1,11 @@
+**Do This to Protect Your Data**\
+`The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
+https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
+
+**Humanity Bests Technology in Paris Opera’s ‘Ring’**\
+`When staff strikes kept parts of Calixto Bieito’s tech-themed production from the stage, the musicians’ artistry saved the day.`\
+https://www.nytimes.com/2026/11/25/arts/music/paris-opera-ring-cycle-calixto-bieito.html
+
 **Welcome Back to the Low-Trust Internet**\
 `The internet has grown to be a reliable platform for everything from communication to commerce and finance. But as A.I. supercharges cyberattacks, are we regressing to an era of “low-trust”? On “The Ezra Klein Show,” the cybersecurity expert Nicole Perlroth and Ezra Klein discuss the return of a more unreliable internet.`\
 https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-trust-internet.html
@@ -165,12 +173,4 @@ https://www.nytimes.com/2026/11/25/business/media/bob-iger-disney-robbie-whelan.
 **Hubert ‘Geese’ Ausbie, Start of the Harlem Globetrotters, Has Died**\
 `Known as the “Clown Prince of Basketball,” he mixed comic antics and high-flying athletic feats. He was 88.`\
 https://www.nytimes.com/2026/11/25/sports/hubert-geese-ausbie-dead.html
-
-**My Partner’s Wife Has Alzheimer’s. Loving Him Means Caring for Her, Too.**\
-`When Deb Copaken met the love of her life, he was navigating his wife’s Alzheimer’s diagnosis. Now, they are all navigating it together.`\
-https://www.nytimes.com/2026/11/25/podcasts/love-caregiving-partners-spouse-alzheimers.html
-
-**With Oil Prices Spiking, New Englanders Brace for a Pricey Winter**\
-`Demand for fuel assistance programs has risen across the region, as residents dial down thermostats and put on another sweater.`\
-https://www.nytimes.com/2026/11/25/realestate/new-england-oil-heating-homeowners.html
 
