@@ -1,3 +1,7 @@
+**Traveling to Bhutan in 2026: Wood-Fired Pizzas and Monks With Cellphones**\
+`The view of the Himalayan country as ancient and immutable is being challenged by young Bhutanese who are opening restaurants and shops, and getting beyond “gross national happiness.” A traveler explores.`\
+https://www.nytimes.com/2026/11/25/travel/bhutan-travel.html
+
 **The Local: From Little Falls to Boy Throb**\
 `Also, your turkey spottings.`\
 https://www.nytimes.com/2026/11/25/briefing/boy-throb-zachary-sobania.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.
 **Trump Administration Unveils New Tariffs for China, EU and More, Citing Unfair Practices**\
 `The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
 https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
-
-**How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
-`Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
-https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
