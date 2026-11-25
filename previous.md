@@ -1,3 +1,7 @@
+**Reflections on the River of Life**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
+https://www.nytimes.com/2026/11/25/opinion/old-age.html
+
 **How Our Reporters Navigate Politics at Thanksgiving**\
 `A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
 https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
 **California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
 `Wednesday’s high tides could break records, forecasters warned.`\
 https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
-
-**India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
-`The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
-https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
 

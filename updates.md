@@ -1,3 +1,7 @@
+**Reflections on the River of Life**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
+https://www.nytimes.com/2026/11/25/opinion/old-age.html
+
 **How Our Reporters Navigate Politics at Thanksgiving**\
 `A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
 https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
