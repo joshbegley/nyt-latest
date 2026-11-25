@@ -1,3 +1,11 @@
+**Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
+`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons. Video by Graham Dickie and Patricia Sulbarán.`\
+https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
+
+**Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`A nor’easter is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
+https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
+
 **Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
 `The blaze killed at least 31 and injured at least 21 near Giza, beside the Nile River, officials said.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/road-fire-near-cairo-kills-dozens-after-petroleum-laden-truck-crashes.html
