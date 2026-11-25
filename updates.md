@@ -1,3 +1,7 @@
+**Trump Administration Pauses Joint Operations With Ecuador**\
+`The administration has halted military operations while it investigates an operation by Ecuadorean forces that killed an accused gang leader.`\
+https://www.nytimes.com/2026/11/24/world/americas/ecuador-us-military-operations-trump.html
+
 **Latino-Owned Coffee Shop Closes After Claims That Founder Works for ICE**\
 `Tasa Coffee Roasters in Chicago permanently closed its doors after workers walked out in protest.`\
 https://www.nytimes.com/2026/11/24/us/tasa-coffee-chicago-closed-ice-owner.html

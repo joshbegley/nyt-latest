@@ -1,3 +1,7 @@
+**Trump Administration Pauses Joint Operations With Ecuador**\
+`The administration has halted military operations while it investigates an operation by Ecuadorean forces that killed an accused gang leader.`\
+https://www.nytimes.com/2026/11/24/world/americas/ecuador-us-military-operations-trump.html
+
 **Latino-Owned Coffee Shop Closes After Claims That Founder Works for ICE**\
 `Tasa Coffee Roasters in Chicago permanently closed its doors after workers walked out in protest.`\
 https://www.nytimes.com/2026/11/24/us/tasa-coffee-chicago-closed-ice-owner.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
 **Why Trump Isn't Worried About Jensen Huang**\
 `Jonathan Swan, a White House reporter for The New York Times, joined “The Daily” to explain why President Trump pushed Nvidia’s board of directors to have Jensen Huang reinstated as chief executive.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-worried-about-jensen-huang.html
-
-**A Lion on the Loose Near Istanbul? Not So Fast.**\
-`Blurry surveillance footage spurred a frantic search — until the Turkish authorities said it was unclear whether the animal was the feline.`\
-https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
 
