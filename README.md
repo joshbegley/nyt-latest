@@ -90,7 +90,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 `Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
-**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume of Smoke Into Air**\
+**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
 `Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
