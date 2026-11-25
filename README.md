@@ -1,3 +1,7 @@
+**Libyan Forces Threaten Retaliation Over Ukraine’s Attack on Russian Ships**\
+`The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
+
 **Trump Administration Unveils New Tariffs for Dozens of Countries, Citing Unfair Practices**\
 `The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
 https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/movies/all-of-a-sudden-review.html
 **The Web May Be Dying. Can Net Art Save It?**\
 `A new exhibition celebrates the possibilities of net art and the vision of the pioneering Whitney Museum curator whose commissions defined the field.`\
 https://www.nytimes.com/2026/11/25/arts/design/artport-whitney-museum-digital-art-ai-paul.html
-
-**Utility and Beauty Meet in an Interior Designer’s Study**\
-`At his weekend home in Bellport, N.Y., Dan Fink has a room dedicated to quiet reflection and filled with his favorite books and objects.`\
-https://www.nytimes.com/2026/11/25/realestate/utility-and-beauty-meet-in-an-interior-designers-study.html
 
