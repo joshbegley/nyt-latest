@@ -1,3 +1,7 @@
+**Thanksgiving Travel**\
+`Why airport delays are on the rise.`\
+https://www.nytimes.com/2026/11/25/briefing/thanksgiving-travel-delays.html
+
 **Defending Aden, Yemen’s Holdout Against the Houthis**\
 `The war in Iran has reignited Yemen’s decade-old civil war. Saudi-backed troops are scrambling to defend against advancing Houthi fighters as the wounded are taken to the port city of Aden, the government’s provisional capital.`\
 https://www.nytimes.com/video/world/middleeast/100000011300541/defending-aden-yemens-holdout-against-the-houthis.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/books/review/new-historical-fiction-books.htm
 **Here’s How Democrats Should Investigate Trump’s Corruption**\
 `By focusing on corruption, Congress can make clear that President Trump and his allies are willing to harm other Americans for their own benefit.`\
 https://www.nytimes.com/2026/11/25/opinion/trump-corruption-investigate-democrats.html
-
-**Visual Tour of NYC’s Holiday Store Windows: Macy’s, Saks and More**\
-`A 50-pound hippopotamus and a bedazzled seven-foot polar bear are among the standouts of this year’s handcrafted department-store displays.`\
-https://www.nytimes.com/2026/11/25/style/nyc-holiday-store-windows.html
 
