@@ -122,7 +122,7 @@ https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
 `Corrections that appeared in print on Wednesday, Nov. 25, 2026.`\
 https://www.nytimes.com/2026/11/25/pageoneplus/corrections-nov-25-2026.html
 
-**How Did This Bunch of New Yorkers End Up Running the Country?**\
+**The Ensemble Cast of a New York Sitcom Is Suddenly Running the Country**\
 `Remember when New York was an island off this nation’s coast?`\
 https://www.nytimes.com/2026/11/25/opinion/nyc-jeffries-schumer-mamdani-aoc-trump.html
 
