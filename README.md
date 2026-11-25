@@ -1,3 +1,7 @@
+**My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
+`A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
+https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
+
 **Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
 `The Federal Reserve is widely expected to raise interest rates next month.`\
 https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/25/movies/hershey-review.html
 **6 Comedy Specials for Thanksgiving**\
 `Check out the newest Philomena Cunk series along with specials from Mandal, Dustin Nickerson and Janelle James.`\
 https://www.nytimes.com/2026/11/25/arts/television/comedy-specials-cunk-on-cinema-janelle-james-kate-berlant.html
-
-**‘Focker In-Law’ Review: Ariana Grande Steals the Show**\
-`This mostly painless sequel to “Meet the Parents” flips the dynamics from the original.`\
-https://www.nytimes.com/2026/11/25/movies/focker-in-law-review.html
 
