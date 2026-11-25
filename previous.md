@@ -1,3 +1,39 @@
+**Can You Make America Healthy Again?**\
+`Lulu Garcia-Navarro, a host of “The Interview,” leads a Task Force debate at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
+
+**How Can We Control A.I. and Still Reap the Benefits?**\
+`A Task Force discussion at the DealBook Summit led by Michael Barbaro, co-host of “The Daily” at The New York Times.`\
+https://www.nytimes.com/2026/11/25/podcasts/artificial-intelligence-agi.html
+
+**Watch the Task Force Panel Discussions From the DealBook Summit**\
+`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
+
+**How Will the ‘Blue Tsunami’ Shape the 2028 Election?**\
+`The New York Times’s Maggie Haberman and Jonathan Swan lead a Task Force conversation at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
+
+**Democrats’ New Climate Strategy? Deregulation.**\
+`A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
+https://www.nytimes.com/2026/11/25/podcasts/the-daily/democrats-climate-environment-permitting-bill.html
+
+**Today’s Wordle Hints for November 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/wordle-review-1986.html
+
+**How ICE Training Turned Into a ‘Catastrophic Failure,’ and Grocery Stores’ Thanksgiving Gamble**\
+`Plus, the comedian taking on Xi Jinping.`\
+https://www.nytimes.com/2026/11/25/podcasts/the-headlines/ice-training-grocery-stores-thanksgiving.html
+
+**NYT Strands Hints for November 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/strands-sidekick-998.html
+
+**NYT Connections Answers for Nov. 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
+
 **2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
 `The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
@@ -157,40 +193,4 @@ https://www.nytimes.com/2026/11/25/arts/music/bradford-cox-atlas-sound-thanatos.
 **Island Paradise of Mauritius Has Sun, Beaches and Too Many Dogs**\
 `Mauritius, a popular tourist destination off southern Africa, has become overrun with strays. With more and more residents chased and attacked, many are fed up.`\
 https://www.nytimes.com/2026/11/25/world/africa/maritius-stray-dogs.html
-
-**Word of the Day: cornucopia**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://www.nytimes.com/2026/11/25/learning/word-of-the-day-cornucopia.html
-
-**Macy’s Is Bringing a Nearly Century-Old Parade Legend Back to Life**\
-`During past Thanksgiving Day parades, Macy’s would release its iconic balloons into the sky and give a reward to anyone who returned them. But one, a blue hippopotamus, was never found. For the parade’s 100th anniversary, Macy’s is celebrating the legendary balloon.`\
-https://www.nytimes.com/video/style/100000011222867/macys-holiday-windows-blue-hippo.html
-
-**10 Questions for Deeper Conversation Around Your Holiday Table**\
-`Forge connections with family and friends (and share a few laughs).`\
-https://www.nytimes.com/2026/11/25/well/questions-holiday-family-friends.html
-
-**How Fitness Experts Make Time to Exercise Over the Holidays**\
-`Try these strategies to end the year feeling strong.`\
-https://www.nytimes.com/2026/11/25/well/move/exercise-workout-holidays.html
-
-**In ‘Blade Runner 2099,’ the Future Is Hot and Sticky**\
-`To bring a sweltering Los Angeles to life in a Prague studio, the series’s designers ditched green screens for analog mechanics, Cold War relics and elbow grease.`\
-https://www.nytimes.com/2026/11/25/arts/in-blade-runner-2099-the-future-is-hot-and-sticky.html
-
-**In Berlin, a ‘Nutcracker’ With a Ragtag Vaudeville Spirit**\
-`“It’s not easy to make a new ‘Nutcracker,’” said Christian Spuck, the director of the Staatsballett Berlin. His new version focuses on the teenage heroine’s dream world.`\
-https://www.nytimes.com/2026/11/25/arts/dance/nutcracker-berlin-christian-spuck.html
-
-**Maury Povich, Now a Podcast Host, Predicted This Media Moment**\
-`Families are messy and entertaining. He showed how compelling dysfunction could be long before it was everywhere.`\
-https://www.nytimes.com/2026/11/25/style/maury-povich-podcast-on-par.html
-
-**From the Front Page: The Iran-Contra Affair Erupts on Nov. 25, 1986**\
-`The Reagan administration disclosed that money from secret arms sales to Iran had been diverted to rebel forces in Nicaragua, and that John Poindexter and Oliver North had left their posts.`\
-https://www.nytimes.com/2026/11/25/learning/from-the-front-page-the-iran-contra-affair-erupts-on-nov-25-1986.html
-
-**Thanksgiving Travel Increases Amid Possible Disruptions**\
-`Thanksgiving travel is underway, and after weeks of major outages, some people are bracing for potential disruptions, including storms on both coasts.`\
-https://www.nytimes.com/video/us/100000011307252/thanksgiving-travel-outage-storms.html
 

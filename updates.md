@@ -1,3 +1,39 @@
+**Can You Make America Healthy Again?**\
+`Lulu Garcia-Navarro, a host of “The Interview,” leads a Task Force debate at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
+
+**How Can We Control A.I. and Still Reap the Benefits?**\
+`A Task Force discussion at the DealBook Summit led by Michael Barbaro, co-host of “The Daily” at The New York Times.`\
+https://www.nytimes.com/2026/11/25/podcasts/artificial-intelligence-agi.html
+
+**Watch the Task Force Panel Discussions From the DealBook Summit**\
+`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
+
+**How Will the ‘Blue Tsunami’ Shape the 2028 Election?**\
+`The New York Times’s Maggie Haberman and Jonathan Swan lead a Task Force conversation at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
+
+**Democrats’ New Climate Strategy? Deregulation.**\
+`A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
+https://www.nytimes.com/2026/11/25/podcasts/the-daily/democrats-climate-environment-permitting-bill.html
+
+**Today’s Wordle Hints for November 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/wordle-review-1986.html
+
+**How ICE Training Turned Into a ‘Catastrophic Failure,’ and Grocery Stores’ Thanksgiving Gamble**\
+`Plus, the comedian taking on Xi Jinping.`\
+https://www.nytimes.com/2026/11/25/podcasts/the-headlines/ice-training-grocery-stores-thanksgiving.html
+
+**NYT Strands Hints for November 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/strands-sidekick-998.html
+
+**NYT Connections Answers for Nov. 26, 2026**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
+https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
+
 **2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
 `The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
