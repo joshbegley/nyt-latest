@@ -1,3 +1,7 @@
+**Kilmar Abrego Garcia Arrives in Spain After Voluntarily Leaving U.S.**\
+`Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was wrongfully deported from the United States last year, arrived in Spain after voluntarily leaving the United States.`\
+https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-spain.html
+
 **How the Nvidia Scandal Fits Into a Chinese Spy Campaign**\
 `China’s top civilian spy agency was behind a yearslong campaign to find access to Nvidia’s most advanced computer chips. Julian E. Barnes, a national security correspondent for The New York Times, explains what makes the campaign such a serious threat to American national security.`\
 https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-into-a-chinese-spy-campaign.html
