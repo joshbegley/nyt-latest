@@ -1,3 +1,7 @@
+**Late Night Rips Into Trump for Honoring Rudy Giuliani**\
+`Seth Meyers congratulated the former New York mayor and Trump ally for “A, receiving the Presidential Medal of Freedom and B, still being alive.”`\
+https://www.nytimes.com/2026/11/25/arts/television/late-night-rips-into-trump-for-honoring-rudy-giuliani.html
+
 **Puerto Rico’s Jennifer Barreto Wins Miss Universe on Home Turf**\
 `The organizers of the pageant said Costa Rica would host next year, contradicting a rival camp that chose Vietnam. They are locked in a bitter fight for control of Miss Universe.`\
 https://www.nytimes.com/2026/11/25/us/miss-universe-winner-puerto-rico.html
