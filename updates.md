@@ -1,3 +1,19 @@
+**Macy’s Thanksgiving Day Parade Postponed Due to Nor’easter**\
+`A nor’easter with high winds is set to pummel New York City on Thursday.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-postponed.html
+
+**The Good List: 5 Things to Add Delight to Your Day**\
+`Birding in Vice City, ridiculous sandwiches and less narcissism.`\
+https://www.nytimes.com/2026/11/25/briefing/gta-sandwiches-daily.html
+
+**Are You Estranged From a Family Member?**\
+`How do you navigate the holidays when you are estranged from family?`\
+https://www.nytimes.com/2026/11/25/opinion/family-holidays-estranged.html
+
+**After Extraordinary Iowa Explosion, Officials and Scientists Assess Fallout Risks**\
+`Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
+https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
+
 **Measles Is Unequivocally Back**\
 `The crisis is much bigger than MAGA.`\
 https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
