@@ -1,3 +1,15 @@
+**My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
+`A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
+https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
+
+**Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
+**With Measles on the Rise, Some Families Are Forgoing Thanksgiving Travel**\
+`With measles cases on the rise, some new parents are choosing not to travel, unwilling to chance airplanes, trains or even drives into areas with high infection rates.`\
+https://www.nytimes.com/2026/11/25/us/measles-cases-thanksgiving.html
+
 **Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
 `The Federal Reserve is widely expected to raise interest rates next month.`\
 https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html

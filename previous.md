@@ -1,3 +1,7 @@
+**My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
+`A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
+https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
+
 **Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
 `The Federal Reserve is widely expected to raise interest rates next month.`\
 https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
@@ -79,7 +83,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
-`Officials said they expected “zero release” of the hazardous compounds at an Army ammunition plant, while also warning people in the path of a potential lead dust cloud to take shelter or evacuate.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -124,7 +128,7 @@ https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government
 
 **With Measles on the Rise, Some Families Are Forgoing Thanksgiving Travel**\
 `With measles cases on the rise, some new parents are choosing not to travel, unwilling to chance airplanes, trains or even drives into areas with high infection rates.`\
-https://www.nytimes.com/2026/11/25/us/this-thanksgiving-some-families-wonder-should-i-stay-home-with-my-baby.html
+https://www.nytimes.com/2026/11/25/us/measles-cases-thanksgiving.html
 
 **How to Use Your Apps With Fewer Taps**\
 `With pop-up menus and widgets, your phone or tablet gives you quick ways to check information and get things done with less effort.`\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/25/movies/hershey-review.html
 **6 Comedy Specials for Thanksgiving**\
 `Check out the newest Philomena Cunk series along with specials from Mandal, Dustin Nickerson and Janelle James.`\
 https://www.nytimes.com/2026/11/25/arts/television/comedy-specials-cunk-on-cinema-janelle-james-kate-berlant.html
-
-**‘Focker In-Law’ Review: Ariana Grande Steals the Show**\
-`This mostly painless sequel to “Meet the Parents” flips the dynamics from the original.`\
-https://www.nytimes.com/2026/11/25/movies/focker-in-law-review.html
 
