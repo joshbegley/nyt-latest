@@ -1,4 +1,4 @@
-**Firm Inflation Upholds Fed’s Plan to Raise Rates Again**\
+**Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
 `The Federal Reserve is widely expected to raise interest rates next month.`\
 https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
 
@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates
 `The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
 
-**Trump Administration Unveils New Tariffs for Dozens of Countries, Citing Unfair Practices**\
+**Trump Administration Unveils New Tariffs for China, EU and More, Citing Unfair Practices**\
 `The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
 https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
 

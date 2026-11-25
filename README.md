@@ -79,7 +79,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
-`Officials said they expected “zero release” of the hazardous compounds at an Army ammunition plant, while also warning people in the path of a potential lead dust cloud to take shelter or evacuate.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -124,7 +124,7 @@ https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government
 
 **With Measles on the Rise, Some Families Are Forgoing Thanksgiving Travel**\
 `With measles cases on the rise, some new parents are choosing not to travel, unwilling to chance airplanes, trains or even drives into areas with high infection rates.`\
-https://www.nytimes.com/2026/11/25/us/this-thanksgiving-some-families-wonder-should-i-stay-home-with-my-baby.html
+https://www.nytimes.com/2026/11/25/us/measles-cases-thanksgiving.html
 
 **How to Use Your Apps With Fewer Taps**\
 `With pop-up menus and widgets, your phone or tablet gives you quick ways to check information and get things done with less effort.`\

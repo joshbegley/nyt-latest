@@ -1,3 +1,11 @@
+**Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
+`The Federal Reserve is widely expected to raise interest rates next month.`\
+https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
+
+**Trump Administration Unveils New Tariffs for China, EU and More, Citing Unfair Practices**\
+`The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
+https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
+
 **Firm Inflation Upholds Fed’s Plan to Raise Rates Again**\
 `The Federal Reserve is widely expected to raise interest rates next month.`\
 https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
