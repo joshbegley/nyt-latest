@@ -1,3 +1,7 @@
+**We’re Investigating a $300 Million Mystery**\
+`A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
+https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
+
 **A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
 `Three data companies say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html

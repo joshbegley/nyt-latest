@@ -3,7 +3,7 @@
 https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
 
 **A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
-`Three data companies say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
+`Three data providers say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
 
 **Study Hard, Get Ahead?**\
@@ -162,7 +162,7 @@ https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-
 `Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
 https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
 
-**Too Many People Are Cutting Off Family Over Politics**\
+**I’m a Therapist. I Wish These Patients Would Not Cut Off Their Family Members.**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
 
