@@ -1,3 +1,15 @@
+**Measles Is Unequivocally Back**\
+`The crisis is much bigger than MAGA.`\
+https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
+
+**A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
+`Three data providers say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
+https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
+
+**I’m a Therapist. I Wish These Patients Would Not Cut Off Their Family Members.**\
+`More than a third of Americans report losing relationships with friends or family because of political differences.`\
+https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
+
 **We’re Investigating a $300 Million Mystery**\
 `A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
 https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html

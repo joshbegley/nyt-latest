@@ -1,9 +1,13 @@
+**Measles Is Unequivocally Back**\
+`The crisis is much bigger than MAGA.`\
+https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
+
 **We’re Investigating a $300 Million Mystery**\
 `A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
 https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
 
 **A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
-`Three data companies say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
+`Three data providers say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
 
 **Study Hard, Get Ahead?**\
@@ -162,7 +166,7 @@ https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-
 `Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
 https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
 
-**Too Many People Are Cutting Off Family Over Politics**\
+**I’m a Therapist. I Wish These Patients Would Not Cut Off Their Family Members.**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
 
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.htm
 **Thanksgiving Storm Is Expected to Hit East Coast With Heavy Rain and Flooding**\
 `The storm, developing offshore, is expected to move inland over North Carolina and grind northeast through Thanksgiving Day.`\
 https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flooding.html
-
-**Do This to Protect Your Data**\
-`The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
-https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
