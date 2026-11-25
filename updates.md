@@ -1,3 +1,7 @@
+**Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
+`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario for an area of roughly 150 square miles.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Army’s Maps of Iowa Explosion May Underestimate Impact**\
 `The emergency emissions scenario calculated by Army officials did not use a “worst-case scenario,” as required by the Environmental Protection Agency.`\
 https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-underestimated.html
