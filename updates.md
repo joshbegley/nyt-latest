@@ -1,3 +1,7 @@
+**Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`A nor’easter with high winds is expected to pummel New York City on Thursday, prompting organizers to delay the event.`\
+https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
+
 **Macy’s Thanksgiving Day Parade Postponed Due to Nor’easter**\
 `A nor’easter with high winds is set to pummel New York City on Thursday.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-postponed.html

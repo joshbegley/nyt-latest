@@ -1,3 +1,11 @@
+**Angelina Jolie and Brad Pitt Settle Lawsuit That Aired Abuse Allegations**\
+`The battle over a winery disclosed details about what Ms. Jolie said was abusive behavior by Mr. Pitt toward her and their children in 2016.`\
+https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-winery-lawsuit.html
+
+**ICE Arrests Man in Boston Days After He Wins $1 Million Lottery Prize**\
+`Ariel Velasquez-Morales, a native of El Salvador, smiled in a picture with a giant check. The image led immigration agents to him, and he is set for deportation.`\
+https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
+
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `A nor’easter with high winds is expected to pummel New York City on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
 **I’m a Therapist. I Wish These Patients Would Not Cut Off Their Family Members.**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
-
-**South African President Wins Reprieve From ‘Farmgate’ Impeachment Investigation**\
-`A court threw out a report suggesting that Cyril Ramaphosa may have tried to conceal the theft of more than half a million dollars of U.S. currency.`\
-https://www.nytimes.com/2026/11/25/world/africa/south-africa-ramaphosa-farmgate.html
-
-**How to Celebrate Thanksgiving as an Expat**\
-`From turkeys delivered on motorbikes to foie gras on the table, many American expatriates have adapted the traditional meal to their environs.`\
-https://www.nytimes.com/2026/11/25/world/asia/friendsgiving-thanksgiving-expats.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
