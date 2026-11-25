@@ -1,3 +1,7 @@
+**California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
+`Wednesday’s high tides could break records, forecasters warned.`\
+https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
+
 **India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
 `The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
 https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
 **He’s Living in the Past. 1978, to Be Exact.**\
 `Tashawn Davis, 29, has turned his apartment into a time capsule. Welcome to Whaffle’s house.`\
 https://www.nytimes.com/2026/11/25/nyregion/whaffle-70s-apartment-nyc.html
-
-**The Street Photographer Who Loved the Macy’s Thanksgiving Day Parade**\
-`Alan Batt, 79, affectionately known as “Battman,” has published a book chronicling a decade of his city scenes.`\
-https://www.nytimes.com/2026/11/25/nyregion/battman-street-photography-macys-thanksgiving-day-parade.html
 

@@ -1,3 +1,7 @@
+**3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
+`At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
+https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
+
 **California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
 `Wednesday’s high tides could break records, forecasters warned.`\
 https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-at
 **NYT Spelling Bee Answers for November 25, 2026**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
-
-**He’s Living in the Past. 1978, to Be Exact.**\
-`Tashawn Davis, 29, has turned his apartment into a time capsule. Welcome to Whaffle’s house.`\
-https://www.nytimes.com/2026/11/25/nyregion/whaffle-70s-apartment-nyc.html
 

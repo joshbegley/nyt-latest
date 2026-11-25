@@ -1,3 +1,7 @@
+**California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
+`Wednesday’s high tides could break records, forecasters warned.`\
+https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
+
 **India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
 `The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
 https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
