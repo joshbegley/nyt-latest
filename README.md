@@ -1,3 +1,7 @@
+**Europe’s Hera Mission Releases Close-Up Images of the Asteroid Hit by a NASA Spacecraft**\
+`A European mission called Hera has just revealed the first close-up look at the aftermath of NASA’s audacious planetary defense test.`\
+https://www.nytimes.com/2026/11/25/science/hera-nasa-photos-dart-asteroid.html
+
 **Reflections on the River of Life**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
 https://www.nytimes.com/2026/11/25/opinion/old-age.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
 `At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
 https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
-
-**California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
-`Wednesday’s high tides could break records, forecasters warned.`\
-https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
 
