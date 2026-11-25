@@ -1,5 +1,5 @@
 **FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
-`Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the  detonation in Iowa.`\
+`Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
 
 **Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
