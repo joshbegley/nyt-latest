@@ -1,3 +1,15 @@
+**Hungary Threw Open Its Secret Police Files. Let the Finger Pointing Begin.**\
+`The communist-era files have exposed the vast network of informants that kept Hungary in the Soviet orbit. But how reliable are they?`\
+https://www.nytimes.com/2026/11/25/world/europe/hungary-threw-open-its-secret-police-files-let-the-finger-pointing-begin.html
+
+**Quote of the Day: Families Fleeing North Are Facing Separation at the Canadian Border**\
+`Quotation of the Day for Wednesday, November 25, 2026.`\
+https://www.nytimes.com/2026/11/25/pageoneplus/quote-of-the-day-families-fleeing-north-are-facing-separation-at-the-canadian-border.html
+
+**Fuel Leak at Power Plant Near Honolulu Has Local Officials Fuming**\
+`The mayor and the governor have had harsh words in recent days for the plant’s operator, and Gov. Josh Green signed an executive order requiring immediate reporting of any oil spill.`\
+https://www.nytimes.com/2026/11/24/us/h-power-fuel-leak-oahu-hawaii.html
+
 **Solomon Islands Enters Security Treaty With Australia, in a Blow to China**\
 `A 2022 Solomon Islands agreement with China had raised concerns it would enable Beijing to establish a military presence on the Pacific island. The new accord precludes such bases.`\
 https://www.nytimes.com/2026/11/24/world/asia/solomon-islands-security-treaty-australia-china.html
