@@ -1,3 +1,7 @@
+**Small Plane Crashes Off the Mississippi Coast, Killing 6**\
+`Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
+https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
+
 **Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
 `The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
 https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
@@ -23,7 +27,7 @@ https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.
 https://www.nytimes.com/2026/11/25/arts/television/late-night-rips-into-trump-for-honoring-rudy-giuliani.html
 
 **Puerto Rico’s Jennifer Barreto Wins Miss Universe on Home Turf**\
-`The organizers of the pageant said Costa Rica would host next year, contradicting a rival camp that chose Vietnam. They are locked in a bitter fight for control of Miss Universe.`\
+`The pageant’s organizers said Costa Rica would host next year, contradicting a rival camp that chose Vietnam as the venue. They are locked in a bitter fight for control of Miss Universe.`\
 https://www.nytimes.com/2026/11/25/us/miss-universe-winner-puerto-rico.html
 
 **Hungary Threw Open Its Secret Police Files. Let the Finger Pointing Begin.**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/world/nvidia-trump-stocks-china-books.html
 **‘The Further Mis-Adventures of Cliff Booth’ Review: Golden-Boy Fumes**\
 `Quentin Tarantino wrote, and David Fincher directed, this movie starring Brad Pitt, which picks up with the stuntman character he played in “Once Upon a Time … in Hollywood.”`\
 https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-booth-review.html
-
-**‘The Digital Deficit Has Come Due’**\
-`Why is the internet so prone to outages and attacks right now? The cybersecurity expert Nicole Perlroth explains on “The Ezra Klein Show” that “faulty, flawed, vulnerable software” underlies the modern internet.`\
-https://www.nytimes.com/video/opinion/100000011299692/the-digital-deficit-has-come-due.html
 
