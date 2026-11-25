@@ -1,3 +1,11 @@
+**How Our Reporters Navigate Politics at Thanksgiving**\
+`A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
+https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
+
+**The U.S. Isn’t in a Recession. Try Telling Many Americans That.**\
+`The freshest measures of growth and hiring show a healthy economy. Struggling Americans aren’t seeing that.`\
+https://www.nytimes.com/2026/11/25/us/economic-growth-recession-pessimism.html
+
 **FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
 `Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
@@ -142,8 +150,8 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 `Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
-**Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears After Iowa Blast**\
-`It will take time to determine if the detonation of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
+**Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
+`It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -157,12 +165,4 @@ https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
 **India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
 `The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
 https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
-
-**Donate This Holiday Season: Build Health International Needs Your Help**\
-`Build Health International provides modern medical facilities in the poorest parts of the world.`\
-https://www.nytimes.com/2026/11/25/opinion/charity-holiday-gift-maternal-health.html
-
-**Mexico Investigates Possible Cartel Links of Prosecutor Who Aided C.I.A.**\
-`The prosecutor recently fled to the United States after Mexico issued a warrant over his involvement with the C.I.A. Now authorities are investigating him for suspected cartel collusion.`\
-https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
 

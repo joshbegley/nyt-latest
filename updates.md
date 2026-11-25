@@ -1,3 +1,15 @@
+**How Our Reporters Navigate Politics at Thanksgiving**\
+`A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
+https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
+
+**The U.S. Isn’t in a Recession. Try Telling Many Americans That.**\
+`The freshest measures of growth and hiring show a healthy economy. Struggling Americans aren’t seeing that.`\
+https://www.nytimes.com/2026/11/25/us/economic-growth-recession-pessimism.html
+
+**Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
+`It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
 `Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
