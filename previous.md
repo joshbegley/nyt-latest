@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘You Don’t Want to Marry Me?**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
+
 **Too Many People Are Cutting Off Family Over Politics**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/opinion/nyc-jeffries-schumer-mamdani-aoc-trum
 **How to Talk to Your Family About A.I. Doom at Thanksgiving**\
 `For people steeped in the world of artificial intelligence, the topic could be a minefield at this year’s dinner.`\
 https://www.nytimes.com/2026/11/25/technology/thanksgiving-ai-doom-family.html
-
-**Restaurant Review: Gallaghers in New York**\
-`Gallaghers is turning 100 next year, and the outsize steaks still deliver heady, dry-aged pleasures.`\
-https://www.nytimes.com/2026/11/25/dining/restaurant-review-gallaghers-nyc.html
 

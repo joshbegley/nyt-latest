@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘You Don’t Want to Marry Me?**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
+
 **Too Many People Are Cutting Off Family Over Politics**\
 `More than a third of Americans report losing relationships with friends or family because of political differences.`\
 https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
