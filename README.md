@@ -1,3 +1,7 @@
+**Measles Is Unequivocally Back**\
+`The crisis is much bigger than MAGA.`\
+https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
+
 **We’re Investigating a $300 Million Mystery**\
 `A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
 https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
@@ -181,10 +185,6 @@ https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.htm
 **Thanksgiving Storm Is Expected to Hit East Coast With Heavy Rain and Flooding**\
 `The storm, developing offshore, is expected to move inland over North Carolina and grind northeast through Thanksgiving Day.`\
 https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-rain-flooding.html
-
-**Do This to Protect Your Data**\
-`The cybersecurity expert Nicole Perlroth explains what you can do to help protect your digital information on “The Ezra Klein Show.” The bottom line? “Just assume that someone is trying to compromise you at all times.”`\
-https://www.nytimes.com/video/opinion/100000011300070/do-this-to-protect-your-data.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
