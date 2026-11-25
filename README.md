@@ -1,10 +1,18 @@
+**Cranberry Butter Swirl**\
+`Holiday cranberry sauce joins forces with the butter dish in this tangy, creamy spread.`\
+https://www.nytimes.com/video/dining/100000011308049/cranberry-butter-swirl.html
+
+**Union Leader Leaves M.T.A. Board After Holding Post from Florida**\
+`Gov. Kathy Hochul had urged John Samuelsen, a transit workers union leader and one of her frequent critics, to resign. Mr. Samuelsen also has a home in Brooklyn.`\
+https://www.nytimes.com/2026/11/25/nyregion/transport-union-resignation-hochul-samuelsen.html
+
 **Footage Shows Army Detonating Toxic Material at Iowa Ammunition Plant**\
 `The army detonated toxic material at an ammunition plant in Iowa on Wednesday. Officials said it will take time to determine whether the explosion released hazardous lead dust.`\
 https://www.nytimes.com/video/us/100000011308100/army-detonation-lead-material-iowa.html
 
 **Iowa Awaits All-Clear as Tests for Lead Continue**\
 `It will take some time for officials to examine the air, water and soil samples for contamination.`\
-https://www.nytimes.com/2026/11/25/us/iowa-awaits-all-clear-as-tests-for-lead-continue.html
+https://www.nytimes.com/2026/11/25/us/iowa-detonation-lead-what-next.html
 
 **Buffalo Cauliflower Dip**\
 `The whole dip — from caramelizing cauliflower to stirring together the creamy hot sauce base and baking on the generous layer of cheese — is made in one pan.`\
@@ -170,11 +178,7 @@ https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
 `In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 
-**Stock Sell-Off Continues as Investors Fret About A.I., Tariffs and Inflation**\
-`Nvidia, Anthropic and other tech companies tumbled as investors also weighed developments in global trade and the path of interest rates.`\
-https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
-
-**Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
+**With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
