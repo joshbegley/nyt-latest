@@ -1,3 +1,7 @@
+**Puerto Rico’s Jennifer Barreto Wins Miss Universe on Home Turf**\
+`The organizers of the pageant said Costa Rica would host next year, contradicting a rival camp that chose Vietnam. They are locked in a bitter fight for control of Miss Universe.`\
+https://www.nytimes.com/2026/11/25/us/miss-universe-winner-puerto-rico.html
+
 **Hungary Threw Open Its Secret Police Files. Let the Finger Pointing Begin.**\
 `The communist-era files have exposed the vast network of informants that kept Hungary in the Soviet orbit. But how reliable are they?`\
 https://www.nytimes.com/2026/11/25/world/europe/hungary-threw-open-its-secret-police-files-let-the-finger-pointing-begin.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/world/middleeast/iraq-prime-minister-kurdista
 **U.S. Spy Agencies Suffer Breach of Some Unclassified Information**\
 `The intrusion affecting the C.I.A. and the Office of the Director of National Intelligence comes amid heightened concerns about cybersecurity.`\
 https://www.nytimes.com/2026/11/24/us/politics/spy-agencies-computer-network-breaches.html
-
-**Houthi Attack on Skyscraper in Saudi Capital Wounds 11, Officials Say**\
-`The people were wounded in the strike on a building in Riyadh, the Saudi authorities said. The Iran-backed militia and Saudi Arabia have been exchanging escalating attacks for weeks.`\
-https://www.nytimes.com/2026/11/24/world/middleeast/saudi-skyscraper-houthi-strike.html
 
