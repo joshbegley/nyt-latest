@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/25/world/europe/hungary-threw-open-its-secret-po
 `Quotation of the Day for Wednesday, November 25, 2026.`\
 https://www.nytimes.com/2026/11/25/pageoneplus/quote-of-the-day-families-fleeing-north-are-facing-separation-at-the-canadian-border.html
 
-**Fuel Leak at Power Plant Near Honolulu Has Local Officials Fuming**\
+**Fuel Leak at Power Plant Near Honolulu Angers Local Officials**\
 `The mayor and the governor have had harsh words in recent days for the plant’s operator, and Gov. Josh Green signed an executive order requiring immediate reporting of any oil spill.`\
 https://www.nytimes.com/2026/11/24/us/h-power-fuel-leak-oahu-hawaii.html
 
