@@ -1,3 +1,7 @@
+**A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
+`Three data companies say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
+https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
+
 **Rumor About Big Score on Nvidia Stock Surge Is Not Backed by Trading Records**\
 `Two data analytics firms say they have no evidence to support the online claim that insider trading generated a $300 million return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
