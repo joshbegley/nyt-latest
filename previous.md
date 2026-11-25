@@ -1,3 +1,11 @@
+**South African President Wins Reprieve From ‘Farmgate’ Impeachment Investigation**\
+`A court threw out a report suggesting that Cyril Ramaphosa may have tried to conceal the theft of more than half a million dollars of U.S. currency.`\
+https://www.nytimes.com/2026/11/25/world/africa/south-africa-ramaphosa-farmgate.html
+
+**How to Celebrate Thanksgiving as an Expat**\
+`From turkeys delivered on motorbikes to foie gras on the table, many American expatriates have adapted the traditional meal to their environs.`\
+https://www.nytimes.com/2026/11/25/world/asia/friendsgiving-thanksgiving-expats.html
+
 **Anthropic’s Stock Debut Could Hurt Tech Start-Ups**\
 `As the share price drops, it could act as a brake on Silicon Valley’s frenzied investing in younger companies.`\
 https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.html
@@ -161,12 +169,4 @@ https://www.nytimes.com/2026/11/25/us/measles-cases-thanksgiving.html
 **How to Use Your Apps With Fewer Taps**\
 `With pop-up menus and widgets, your phone or tablet gives you quick ways to check information and get things done with less effort.`\
 https://www.nytimes.com/2026/11/25/technology/personaltech/apps-widgets.html
-
-**How Opera Props Became Mashed Potatoes: A Holiday Week Tale**\
-`In the opera “Jenufa” at the Met, a lot of potatoes are peeled onstage. What was to be done with them?`\
-https://www.nytimes.com/2026/11/25/nyregion/how-opera-props-became-mashed-potatoes-a-holiday-week-tale.html
-
-**Trapped on the Tarmac: 3-Hour Flight Delays Spike Under Trump**\
-`Long delays have risen to levels not seen in more than 15 years, with no enforcement in sight.`\
-https://www.nytimes.com/2026/11/25/upshot/tarmac-delays-flights-trump.html
 

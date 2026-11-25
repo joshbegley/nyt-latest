@@ -1,3 +1,11 @@
+**Too Many People Are Cutting Off Family Over Politics**\
+`More than a third of Americans report losing relationships with friends or family because of political differences.`\
+https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
+
+**Bizarre Material May Herald the Future of Computer Chips**\
+`Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
+https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
+
 **South African President Wins Reprieve From ‘Farmgate’ Impeachment Investigation**\
 `A court threw out a report suggesting that Cyril Ramaphosa may have tried to conceal the theft of more than half a million dollars of U.S. currency.`\
 https://www.nytimes.com/2026/11/25/world/africa/south-africa-ramaphosa-farmgate.html
@@ -161,12 +169,4 @@ https://www.nytimes.com/2026/11/25/dining/restaurant-review-gallaghers-nyc.html
 **How an Iranian Ally Gained the Upper Hand in Yemen’s War**\
 `The Iran-backed Houthis are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government-losses.html
-
-**With Measles on the Rise, Some Families Are Forgoing Thanksgiving Travel**\
-`With measles cases on the rise, some new parents are choosing not to travel, unwilling to chance airplanes, trains or even drives into areas with high infection rates.`\
-https://www.nytimes.com/2026/11/25/us/measles-cases-thanksgiving.html
-
-**How to Use Your Apps With Fewer Taps**\
-`With pop-up menus and widgets, your phone or tablet gives you quick ways to check information and get things done with less effort.`\
-https://www.nytimes.com/2026/11/25/technology/personaltech/apps-widgets.html
 

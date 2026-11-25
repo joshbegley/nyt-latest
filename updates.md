@@ -1,3 +1,11 @@
+**South African President Wins Reprieve From ‘Farmgate’ Impeachment Investigation**\
+`A court threw out a report suggesting that Cyril Ramaphosa may have tried to conceal the theft of more than half a million dollars of U.S. currency.`\
+https://www.nytimes.com/2026/11/25/world/africa/south-africa-ramaphosa-farmgate.html
+
+**How to Celebrate Thanksgiving as an Expat**\
+`From turkeys delivered on motorbikes to foie gras on the table, many American expatriates have adapted the traditional meal to their environs.`\
+https://www.nytimes.com/2026/11/25/world/asia/friendsgiving-thanksgiving-expats.html
+
 **Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
 `Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, but it will take time to determine whether it released hazardous lead dust.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
