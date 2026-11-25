@@ -1,3 +1,7 @@
+**North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
+`The move followed Switzerland’s decision to impose sanctions on an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
+https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
+
 **Fuel Leak at Power Plant Near Honolulu Angers Local Officials**\
 `The mayor and the governor have had harsh words in recent days for the plant’s operator, and Gov. Josh Green signed an executive order requiring immediate reporting of any oil spill.`\
 https://www.nytimes.com/2026/11/24/us/h-power-fuel-leak-oahu-hawaii.html
