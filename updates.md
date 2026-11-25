@@ -1,3 +1,11 @@
+**C.I.A. Waterboarded More Detainees Than It Admitted, F.B.I. Interview Suggests**\
+`The apparent disclosure was included in files released in response to a New York Times lawsuit. The release also shed light on C.I.A. officials’ fears about possible prosecutions.`\
+https://www.nytimes.com/2026/11/25/us/politics/cia-waterboarding.html
+
+**Watching the Army’s Toxic Lead Detonation**\
+`In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa.`\
+https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html
+
 **Watching the Army’s Toxic Lead Detonation**\
 `In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html

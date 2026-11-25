@@ -1,5 +1,9 @@
+**C.I.A. Waterboarded More Detainees Than It Admitted, F.B.I. Interview Suggests**\
+`The apparent disclosure was included in files released in response to a New York Times lawsuit. The release also shed light on C.I.A. officials’ fears about possible prosecutions.`\
+https://www.nytimes.com/2026/11/25/us/politics/cia-waterboarding.html
+
 **Watching the Army’s Toxic Lead Detonation**\
-`In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa`\
+`In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html
 
 **‘My Duty as a Grandson’: Gen Z Men Are as Likely as Women to Provide Elder Care**\
@@ -138,13 +142,13 @@ https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
 `A Task Force discussion at the DealBook Summit led by Michael Barbaro, co-host of “The Daily” at The New York Times.`\
 https://www.nytimes.com/2026/11/25/podcasts/artificial-intelligence-agi.html
 
-**Watch the Task Force Panel Discussions From the DealBook Summit**\
-`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
-https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
-
 **How Will the ‘Blue Tsunami’ Shape the 2028 Election?**\
 `The New York Times’s Maggie Haberman and Jonathan Swan lead a Task Force conversation at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
+
+**Watch the Task Force Panel Discussions From the DealBook Summit**\
+`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
 
 **Democrats’ New Climate Strategy? Deregulation.**\
 `A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
@@ -165,10 +169,6 @@ https://www.nytimes.com/2026/11/25/crosswords/strands-sidekick-998.html
 **NYT Connections Answers for Nov. 26, 2026**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Nov. 26, 2026.`\
 https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
-
-**2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
-`Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
-https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Detonation Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
