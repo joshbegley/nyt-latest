@@ -1,3 +1,7 @@
+**Deadly Truck Fire in Egypt Kills Dozens, Officials Say**\
+`A fire near Cairo, Egypt, killed dozens and injured several after a truck carrying petroleum products crashed and ignited on Wednesday, officials said.`\
+https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
+
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed

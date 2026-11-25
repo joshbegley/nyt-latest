@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`The Macy’s Thanksgiving Day Parade will be postponed until Saturday because of inclement weather. It will be the first time in the parade’s 100-year history that the event will not take place on Thanksgiving Day.`\
+https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postponed.html
+
 **Deadly Truck Fire in Egypt Kills Dozens, Officials Say**\
 `A fire near Cairo, Egypt, killed dozens and injured several after a truck carrying petroleum products crashed and ignited on Wednesday, officials said.`\
 https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
 **Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
 `Senator Chris Van Hollen says his move to replace Senator Chuck Schumer as party leader isn’t about Israel, but his sharply critical stance toward the Jewish state has become a major fault line in the race.`\
 https://www.nytimes.com/2026/11/25/us/politics/van-hollen-schumer-israel-senate.html
-
-**Corporate Oversight Revs Up as Washington Turns Blue Again**\
-`After two years of deregulation, congressional committees led by Democrats will shine the spotlight back on corporate America.`\
-https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
 
