@@ -1,3 +1,7 @@
+**Shelter the Livestock, Farmers Were Told. But Where Do You Hide a Herd?**\
+`In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
+https://www.nytimes.com/2026/11/25/us/shelter-the-livestock-farmers-were-told-but-where-do-you-hide-a-herd.html
+
 **Stock Sell-Off Set to Continue as A.I. Players Fall Again**\
 `Shares of Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also worried about tariffs and interest rates.`\
 https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/opinion/airports-travel-holiday.html
 **Book Review: ‘Boss Lincoln,’ by Matthew Pinsker**\
 `A new book by the historian Matthew Pinsker depicts the Great Emancipator as a formidable builder of political power.`\
 https://www.nytimes.com/2026/11/25/books/review/boss-lincoln-matthew-pinsker.html
-
-**Brittany Snow Has Something to Prove**\
-`The “Hunting Wives” star, who began acting as a child and endured years of struggle, is experiencing a career renaissance at 40.`\
-https://www.nytimes.com/2026/11/25/arts/television/brittany-snow-hunting-wives.html
 
