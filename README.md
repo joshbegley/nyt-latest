@@ -1,3 +1,7 @@
+**Reflections on the River of Life**\
+`Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
+https://www.nytimes.com/2026/11/25/opinion/old-age.html
+
 **How Our Reporters Navigate Politics at Thanksgiving**\
 `A holiday gathering can be joyous. And fraught. Here’s how six reporters deal with their own dinner-table discourse. (And when they switch the topic to serving spoons or animal sex.)`\
 https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversation.html
@@ -118,13 +122,13 @@ https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
 `A Task Force discussion at the DealBook Summit led by Michael Barbaro, co-host of “The Daily” at The New York Times.`\
 https://www.nytimes.com/2026/11/25/podcasts/artificial-intelligence-agi.html
 
-**Watch the Task Force Panel Discussions From the DealBook Summit**\
-`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
-https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
-
 **How Will the ‘Blue Tsunami’ Shape the 2028 Election?**\
 `The New York Times’s Maggie Haberman and Jonathan Swan lead a Task Force conversation at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
+
+**Watch the Task Force Panel Discussions From the DealBook Summit**\
+`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
 
 **Democrats’ New Climate Strategy? Deregulation.**\
 `A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
 **California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
 `Wednesday’s high tides could break records, forecasters warned.`\
 https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
-
-**India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
-`The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
-https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
 
