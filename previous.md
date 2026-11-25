@@ -1,3 +1,11 @@
+**Solomon Islands Enters Security Treaty With Australia, in a Blow to China**\
+`A 2022 Solomon Islands agreement with China had raised concerns it would enable Beijing to establish a military presence on the Pacific island. The new accord precludes such bases.`\
+https://www.nytimes.com/2026/11/24/world/asia/solomon-islands-security-treaty-australia-china.html
+
+**Ezra Frech Wins a Contentious Season of ‘Dancing With the Stars’**\
+`Harry Shum and Jenna Dewan, who both had experience in dance, were previously voted off despite high scores from judges.`\
+https://www.nytimes.com/2026/11/24/arts/television/ezra-frech-wins-dancing-with-stars.html
+
 **Martha Firestone Ford, Owner of Detroit Lions, Dies at 101**\
 `Mrs. Ford, who took over the team after the 2014 death of her husband, William Clay Ford Sr., was one of a handful of female owners in the N.F.L.`\
 https://www.nytimes.com/2026/11/24/business/martha-firestone-ford-dead.html
@@ -90,8 +98,8 @@ https://www.nytimes.com/2026/11/24/arts/pierre-bellocq-dead.html
 `Also, Jensen Huang apologizes to Nvidia employees. Here’s the latest at the end of Tuesday.`\
 https://www.nytimes.com/2026/11/24/briefing/army-iowa-old-explosives.html
 
-**Abrego Garcia Will Voluntarily Leave U.S., Ending 20-Month Legal Ordeal**\
-`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, is leaving for Spain. He had faced the prospect that the Trump administration might deport him to Liberia.`\
+**Abrego Garcia Voluntarily Leaves U.S., Ending 20-Month Legal Fight**\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, has left for Spain. He faced the prospect that the Trump administration might deport him to Liberia.`\
 https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
 
 **Maps: Tracking the Iowa Ammunition Plant Detonation**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/24/upshot/midterm-elections-upsets-predictions.h
 **A Playlist of Thanksgiving Sides**\
 `The J.B.s, Kacey Musgraves, the Cranberries and more salute the rock stars of the dinner table.`\
 https://www.nytimes.com/2026/11/24/arts/music/amplifier-playlist-thanksgiving-cranberries-jbs.html
-
-**Army Addresses Concerns Over Detonating Dangerous Explosives in Iowa**\
-`On Wednesday, the Army plans to detonate a cache of dangerous explosives. The lead azide is degrading and cannot be moved. The Army reassured the public on Tuesday that it had taken the appropriate safety measures to mitigate the effects of the blast.`\
-https://www.nytimes.com/video/us/100000011305294/iowa-lead-azide-detonation-safety-concerns.html
-
-**Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
-`The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
-https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
 

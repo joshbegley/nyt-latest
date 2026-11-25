@@ -1,3 +1,15 @@
+**Solomon Islands Enters Security Treaty With Australia, in a Blow to China**\
+`A 2022 Solomon Islands agreement with China had raised concerns it would enable Beijing to establish a military presence on the Pacific island. The new accord precludes such bases.`\
+https://www.nytimes.com/2026/11/24/world/asia/solomon-islands-security-treaty-australia-china.html
+
+**Ezra Frech Wins a Contentious Season of ‘Dancing With the Stars’**\
+`Harry Shum and Jenna Dewan, who both had experience in dance, were previously voted off despite high scores from judges.`\
+https://www.nytimes.com/2026/11/24/arts/television/ezra-frech-wins-dancing-with-stars.html
+
+**Abrego Garcia Voluntarily Leaves U.S., Ending 20-Month Legal Fight**\
+`Kilmar Armando Abrego Garcia, who was wrongfully deported last year, has left for Spain. He faced the prospect that the Trump administration might deport him to Liberia.`\
+https://www.nytimes.com/2026/11/24/us/politics/abrego-garcia-leave-deportation.html
+
 **Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
 `The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
 https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
