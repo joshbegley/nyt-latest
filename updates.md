@@ -1,3 +1,27 @@
+**Buffalo Cauliflower Dip**\
+`The whole dip — from caramelizing cauliflower to stirring together the creamy hot sauce base and baking on the generous layer of cheese — is made in one pan.`\
+https://www.nytimes.com/video/dining/100000011307923/buffalo-cauliflower-dip.html
+
+**Cranberry Grilled Cheese**\
+`Somehow, there is always leftover cranberry sauce after all of the other Thanksgiving leftovers have disappeared. The classic grilled cheese sandwich comes to the rescue, welcoming any cranberry sauce you have on hand into its warm, melty embrace.`\
+https://www.nytimes.com/video/dining/100000011308097/cranberry-grilled-cheese.html
+
+**Turkey Stuffing Meatballs**\
+`The meatballs come together much faster and easier than roasting a stuffed turkey, which makes them an easy win for when you have all the Thanksgiving leftovers except for turkey.`\
+https://www.nytimes.com/video/dining/100000011308062/turkey-stuffing-meatballs.html
+
+**Roasted Sweet Potatoes With Spicy Green Sauce**\
+`With their rich, velvety flesh and naturally creamy texture, sweet potatoes thrive when paired with bold, contrasting seasonings. Here, they are dusted in a warming blend of cinnamon and cumin before roasting and served alongside an herbaceous and spicy cilantro sauce, which cuts through the comforting sweetness.`\
+https://www.nytimes.com/video/dining/100000011308004/roasted-sweet-potatoes-with-spicy-green-sauce.html
+
+**Chocolate Tahini Mousse Cake**\
+`This elegant dessert consists of a tender, black chocolate cake topped with a maple-tahini mousse and enveloped in a glossy ganache.`\
+https://www.nytimes.com/video/dining/100000011307995/chocolate-tahini-mousse-cake.html
+
+**Baked Brie and Caramelized Vegetable Pie**\
+`A vegetarian centerpiece, this caramelized vegetable pie cuddles creamy, earthy molten cheese with a bevy of autumnal vegetables: roasted butternut squash, seared mushrooms, herbed brussels sprouts and tangy red onions, and enrobes the whole mixture in store-bought puff pastry.`\
+https://www.nytimes.com/video/dining/100000011307945/baked-brie-and-caramelized-vegetable-pie.html
+
 **Kilmar Abrego Garcia Arrives in Spain After Voluntarily Leaving U.S.**\
 `Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was wrongfully deported from the United States last year, arrived in Spain after voluntarily leaving the United States.`\
 https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-spain.html
