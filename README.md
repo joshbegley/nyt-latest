@@ -1,7 +1,3 @@
-**Ezra Frech Wins a Contentious Season of ‘Dancing With the Stars’**\
-`Harry Shum and Jenna Dewan, who both had experience in dance, were previously voted off despite high scores from judges.`\
-https://www.nytimes.com/2026/11/24/arts/television/ezra-frech-wins-dancing-with-stars.html
-
 **Martha Firestone Ford, Owner of Detroit Lions, Dies at 101**\
 `Mrs. Ford, who took over the team after the 2014 death of her husband, William Clay Ford Sr., was one of a handful of female owners in the N.F.L.`\
 https://www.nytimes.com/2026/11/24/business/martha-firestone-ford-dead.html
@@ -197,4 +193,8 @@ https://www.nytimes.com/2026/11/24/arts/music/amplifier-playlist-thanksgiving-cr
 **Army Addresses Concerns Over Detonating Dangerous Explosives in Iowa**\
 `On Wednesday, the Army plans to detonate a cache of dangerous explosives. The lead azide is degrading and cannot be moved. The Army reassured the public on Tuesday that it had taken the appropriate safety measures to mitigate the effects of the blast.`\
 https://www.nytimes.com/video/us/100000011305294/iowa-lead-azide-detonation-safety-concerns.html
+
+**Putting Socially Conscious Investments in 401(k) Plans Could Get Harder**\
+`The Labor Department has, once again, proposed a rule that may discourage workplace retirement plans from adding investment options based on environmental and social considerations.`\
+https://www.nytimes.com/2026/11/24/your-money/401k-esg-rules.html
 
