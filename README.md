@@ -1,3 +1,7 @@
+**India and U.S. Artist Nick Cave Win Venice Biennale’s Top Prizes**\
+`The Visitor’s Lion prizes for best pavilion and best artist were determined by the public this year rather than a jury. But it’s unclear whether the winners secured the most votes.`\
+https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-nick-cave-india.html
+
 **Donate This Holiday Season: Build Health International Needs Your Help**\
 `Build Health International provides modern medical facilities in the poorest parts of the world.`\
 https://www.nytimes.com/2026/11/25/opinion/charity-holiday-gift-maternal-health.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/25/nyregion/whaffle-70s-apartment-nyc.html
 **The Street Photographer Who Loved the Macy’s Thanksgiving Day Parade**\
 `Alan Batt, 79, affectionately known as “Battman,” has published a book chronicling a decade of his city scenes.`\
 https://www.nytimes.com/2026/11/25/nyregion/battman-street-photography-macys-thanksgiving-day-parade.html
-
-**North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
-`The move followed Switzerland’s decision to impose sanctions on an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
-https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
 
