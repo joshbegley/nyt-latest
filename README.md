@@ -1,3 +1,7 @@
+**Setting Up the Parade Is Quite a Process. Undoing It Is, Too.**\
+`After a long preparation for the 100th anniversary procession, having time to rest will have to wait a few days for the crews.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-parade-preparation-setup.html
+
 **Gordon Ramsay to Host Revival of BBC’s ‘Top Gear’**\
 `The British car show “Top Gear” paused production three years ago and is returning with a new host in 2028, the BBC said.`\
 https://www.nytimes.com/2026/11/25/arts/television/gordon-ramsay-top-gear-revival.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/insider/thanksgiving-dinner-politics-conversa
 **The U.S. Isn’t in a Recession. Try Telling Many Americans That.**\
 `The freshest measures of growth and hiring show a healthy economy. Struggling Americans aren’t seeing that.`\
 https://www.nytimes.com/2026/11/25/us/economic-growth-recession-pessimism.html
-
-**FEMA’s Hotline Did Not Offer Promised Help for Iowa Residents**\
-`Agents who answered the phone line, announced at a news conference and in alerts, were not able to offer information about responding to the detonation in Iowa.`\
-https://www.nytimes.com/2026/11/25/us/iowa-detonation-fema-hotline.html
 
