@@ -1,3 +1,7 @@
+**Welcome Back to the Low-Trust Internet**\
+`The internet has grown to be a reliable platform for everything from communication to commerce and finance. But as A.I. supercharges cyberattacks, are we regressing to an era of “low-trust”? On “The Ezra Klein Show,” the cybersecurity expert Nicole Perlroth and Ezra Klein discuss the return of a more unreliable internet.`\
+https://www.nytimes.com/video/opinion/100000011299694/welcome-back-to-the-low-trust-internet.html
+
 **Why Aren’t the Midterms Over in Louisiana? Ask the Supreme Court.**\
 `A landmark Supreme Court ruling reshaped the state’s congressional map and set up runoffs for two open seats.`\
 https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-louisiana-ask-the-supreme-court.html
@@ -169,8 +173,4 @@ https://www.nytimes.com/2026/11/25/podcasts/love-caregiving-partners-spouse-alzh
 **With Oil Prices Spiking, New Englanders Brace for a Pricey Winter**\
 `Demand for fuel assistance programs has risen across the region, as residents dial down thermostats and put on another sweater.`\
 https://www.nytimes.com/2026/11/25/realestate/new-england-oil-heating-homeowners.html
-
-**‘Way of the Warrior Kid’ Review: Dispensing Martial Wisdom**\
-`A thoughtful best-selling book for boys suffers from blunt-force drama in an adaptation starring Chris Pratt and Linda Cardellini.`\
-https://www.nytimes.com/2026/11/25/movies/way-of-the-warrior-kid-review.html
 

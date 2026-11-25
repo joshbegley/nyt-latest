@@ -1,3 +1,7 @@
+**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
+`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume of Smoke Into Air**\
 `Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
