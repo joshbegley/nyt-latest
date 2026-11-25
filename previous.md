@@ -1,3 +1,7 @@
+**2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
+`The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
+https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
+
 **Live Updates: Army Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
 `The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/learning/from-the-front-page-the-iran-contra-
 **Thanksgiving Travel Increases Amid Possible Disruptions**\
 `Thanksgiving travel is underway, and after weeks of major outages, some people are bracing for potential disruptions, including storms on both coasts.`\
 https://www.nytimes.com/video/us/100000011307252/thanksgiving-travel-outage-storms.html
-
-**Plane Crash Near Mississippi’s Horn Island Kills 6**\
-`Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
-https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
 

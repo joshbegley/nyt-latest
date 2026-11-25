@@ -1,3 +1,7 @@
+**2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
+`The men, Mirgen Doku, 34, and Arilen Ndoci, 32, were accused of intent to steal and of trespass, the police said, after reports of suspicious activity at the Sandringham Estate in eastern England.`\
+https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
+
 **Live Updates: Army Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
 `The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
