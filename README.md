@@ -1,3 +1,7 @@
+**Photo Quiz: Guess the Year**\
+`We’ve selected five Thanksgiving-themed pictures from our archives. See if you can figure out when they’re from.`\
+https://www.nytimes.com/interactive/2026/11/24/arts/photo-quiz-game-175-thanksgiving.html
+
 **Sullivan Concedes Alaska Senate Race to Peltola**\
 `The Republican conceded five days after the Trump administration gave up on a long-shot lawsuit intended to potentially block certification of the race.`\
 https://www.nytimes.com/2026/11/24/us/politics/dan-sullivan-concedes-alaska-senate-race-mary-peltola.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/world/middleeast/turkey-istanbul-lion.html
 **An Adored Manhattan Grocery, and Seinfeld Favorite, May Close Its Doors**\
 `Zingone Bros. is beloved on the Upper West Side. That might not be enough to keep it open.`\
 https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manhattan.html
-
-**Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
-`Freezing temperatures threaten to make the chemicals even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
-https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
 
