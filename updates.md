@@ -1,3 +1,7 @@
+**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
+`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, but it will take time to determine whether it released hazardous lead dust.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **Anthropic’s Stock Debut Could Hurt Tech Start-Ups**\
 `As the share price drops, it could act as a brake on Silicon Valley’s frenzied investing in younger companies.`\
 https://www.nytimes.com/2026/11/25/technology/anthropic-stock-tech-start-ups.html
