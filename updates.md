@@ -1,3 +1,7 @@
+**Officials Brief Congressional Staff on Intelligence Surrounding Nvidia Affair**\
+`After President Trump said Jensen Huang was not a security threat, U.S. intelligence agencies told aides to lawmakers there was no evidence the woman at the heart of the scandal took directions from the Chinese spy agency.`\
+https://www.nytimes.com/2026/11/24/us/politics/intelligence-nvidia-affair-congressional-briefing.html
+
 **Student Who Lost Eye During ‘No Kings’ Protest Sues Federal Government**\
 `Tucker Collins, 19, was documenting a protest in downtown Los Angeles when, according to the lawsuit, he was shot in the eye with a projectile by a federal agent.`\
 https://www.nytimes.com/2026/11/24/us/los-angeles-no-kings-protest-lawsuit.html
