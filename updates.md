@@ -1,3 +1,7 @@
+**Traveling to Bhutan in 2026: Wood-Fired Pizzas and Monks With Cellphones**\
+`The view of the Himalayan country as ancient and immutable is being challenged by young Bhutanese who are opening restaurants and shops, and getting beyond “gross national happiness.” A traveler explores.`\
+https://www.nytimes.com/2026/11/25/travel/bhutan-travel.html
+
 **The Local: From Little Falls to Boy Throb**\
 `Also, your turkey spottings.`\
 https://www.nytimes.com/2026/11/25/briefing/boy-throb-zachary-sobania.html
