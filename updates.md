@@ -1,3 +1,7 @@
+**Libyan Forces Threaten Retaliation Over Ukraine’s Attack on Russian Ships**\
+`The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
+
 **Trump Administration Unveils New Tariffs for Dozens of Countries, Citing Unfair Practices**\
 `The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
 https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html

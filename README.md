@@ -1,3 +1,7 @@
+**Firm Inflation Upholds Fed’s Plan to Raise Rates Again**\
+`The Federal Reserve is widely expected to raise interest rates next month.`\
+https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
+
 **Libyan Forces Threaten Retaliation Over Ukraine’s Attack on Russian Ships**\
 `The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
@@ -18,8 +22,8 @@ https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
 `In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 
-**Stock Sell-Off Set to Continue as A.I. Players Fall Again**\
-`Shares of Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also worried about tariffs and interest rates.`\
+**Stock Sell-Off Set to Continue as Investors Fret About A.I., Tariffs and Inflation**\
+`Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also weighed developments in global trade and the path of interest rates.`\
 https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
 
 **Thanksgiving Travel**\
@@ -94,7 +98,7 @@ https://www.nytimes.com/2026/11/25/arts/design/venice-biennale-visitors-lions-ni
 `Build Health International provides modern medical facilities in the poorest parts of the world.`\
 https://www.nytimes.com/2026/11/25/opinion/charity-holiday-gift-maternal-health.html
 
-**Mexico Investigates Prosecutor Who Aided the C.I.A. Over Cartel Collusion**\
+**Mexico Investigates Possible Cartel Links of Prosecutor Who Aided C.I.A.**\
 `The prosecutor recently fled to the United States after Mexico issued a warrant over his involvement with the C.I.A. Now authorities are investigating him for suspected cartel collusion.`\
 https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
 
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/movies/focker-in-law-review.html
 **‘All of a Sudden’ Review: Ryusuke Hamaguchi’s Exquisite New Drama**\
 `One of the year’s best films meditates on care, connection and how we spend our days.`\
 https://www.nytimes.com/2026/11/25/movies/all-of-a-sudden-review.html
-
-**The Web May Be Dying. Can Net Art Save It?**\
-`A new exhibition celebrates the possibilities of net art and the vision of the pioneering Whitney Museum curator whose commissions defined the field.`\
-https://www.nytimes.com/2026/11/25/arts/design/artport-whitney-museum-digital-art-ai-paul.html
 
