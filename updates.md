@@ -1,3 +1,7 @@
+**Corporate Oversight Revs Up as Washington Turns Blue Again**\
+`After two years of deregulation, congressional committees led by Democrats will shine the spotlight back on corporate America.`\
+https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
+
 **Tiny Love Stories: ‘You Don’t Want to Marry Me?**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html

@@ -1,3 +1,7 @@
+**Corporate Oversight Revs Up as Washington Turns Blue Again**\
+`After two years of deregulation, congressional committees led by Democrats will shine the spotlight back on corporate America.`\
+https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
+
 **Tiny Love Stories: ‘You Don’t Want to Marry Me?**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/pageoneplus/corrections-nov-25-2026.html
 **The Ensemble Cast of a New York Sitcom Is Suddenly Running the Country**\
 `Remember when New York was an island off this nation’s coast?`\
 https://www.nytimes.com/2026/11/25/opinion/nyc-jeffries-schumer-mamdani-aoc-trump.html
-
-**How to Talk to Your Family About A.I. Doom at Thanksgiving**\
-`For people steeped in the world of artificial intelligence, the topic could be a minefield at this year’s dinner.`\
-https://www.nytimes.com/2026/11/25/technology/thanksgiving-ai-doom-family.html
 
