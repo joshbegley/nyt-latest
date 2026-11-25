@@ -1,3 +1,7 @@
+**Mamdani Wins Against Landlords in Rent Freeze Lawsuit**\
+`A Manhattan judge handed a victory to Mayor Zohran Mamdani by dismissing a lawsuit filed by landlords over a rent freeze for rent-stabilized apartments.`\
+https://www.nytimes.com/2026/11/25/nyregion/mamdani-rent-freeze-legal-challenge-apartments.html
+
 **Cranberry Butter Swirl**\
 `Holiday cranberry sauce joins forces with the butter dish in this tangy, creamy spread.`\
 https://www.nytimes.com/video/dining/100000011308049/cranberry-butter-swirl.html
@@ -173,10 +177,6 @@ https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-on
 **Why the Nvidia Rally Fizzled**\
 `Jensen Huang may be running Nvidia again, but investors are losing faith in the artificial intelligence boom the chipmaker has underpinned.`\
 https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
-
-**Shelter the Livestock, Farmers Were Told. But Where Do You Hide a Herd?**\
-`In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
-https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
