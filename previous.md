@@ -1,3 +1,7 @@
+**See How the Army Plans to Blow Up Five Tons of Toxic Lead Compounds in Iowa**\
+`Disposing of an unstable stockpile of lead azide at an Iowa base will be dangerous and complicated. These maps and diagrams break down the process step by step.`\
+https://www.nytimes.com/interactive/2026/11/24/climate/iowa-lead-detonation-explained.html
+
 **Trump Administration Pauses Joint Operations With Ecuador**\
 `The administration has halted military operations while it investigates an operation by Ecuadorean forces that killed an accused gang leader.`\
 https://www.nytimes.com/2026/11/24/world/americas/ecuador-us-military-operations-trump.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/us/politics/account-park-service-trump-ballro
 **A Cooking Show Wunderkind Grows Up and Slings Ramen**\
 `Josh Reisner draws on various Asian cuisines at Kuroneko, Joe Campanale opens Quello and more restaurant news.`\
 https://www.nytimes.com/2026/11/24/dining/nyc-restaurant-news.html
-
-**Why Trump Isn't Worried About Jensen Huang**\
-`Jonathan Swan, a White House reporter for The New York Times, joined “The Daily” to explain why President Trump pushed Nvidia’s board of directors to have Jensen Huang reinstated as chief executive.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011305978/why-trump-isnt-worried-about-jensen-huang.html
 

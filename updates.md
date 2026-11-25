@@ -1,3 +1,7 @@
+**See How the Army Plans to Blow Up Five Tons of Toxic Lead Compounds in Iowa**\
+`Disposing of an unstable stockpile of lead azide at an Iowa base will be dangerous and complicated. These maps and diagrams break down the process step by step.`\
+https://www.nytimes.com/interactive/2026/11/24/climate/iowa-lead-detonation-explained.html
+
 **Trump Administration Pauses Joint Operations With Ecuador**\
 `The administration has halted military operations while it investigates an operation by Ecuadorean forces that killed an accused gang leader.`\
 https://www.nytimes.com/2026/11/24/world/americas/ecuador-us-military-operations-trump.html
