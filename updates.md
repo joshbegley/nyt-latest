@@ -1,3 +1,11 @@
+**Student Who Lost Eye During ‘No Kings’ Protest Sues Federal Government**\
+`Tucker Collins, 19, was documenting a protest in downtown Los Angeles when, according to the lawsuit, he was shot in the eye with a projectile by a federal agent.`\
+https://www.nytimes.com/2026/11/24/us/los-angeles-no-kings-protest-lawsuit.html
+
+**NYT Crossword Answers for Nov. 25, 2026**\
+`Peter Gordon chooses brains over brawn.`\
+https://www.nytimes.com/2026/11/24/crosswords/daily-puzzle-2026-11-25.html
+
 **Thomas Markle Indicted in US on Charges of Possession of Child Sexual Abuse Materials**\
 `Mr. Markle, 82, was indicted by a grand jury in Los Angeles and is expected to be arraigned in the coming weeks, prosecutors said.`\
 https://www.nytimes.com/2026/11/24/world/europe/thomas-markle-indicted.html
