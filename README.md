@@ -1,8 +1,12 @@
+**Van Hollen’s Challenge to Schumer Highlights Democratic Rift on Israel**\
+`Senator Chris Van Hollen says his move to replace Senator Chuck Schumer as party leader isn’t about Israel, but his sharply critical stance toward the Jewish state has become a major fault line in the race.`\
+https://www.nytimes.com/2026/11/25/us/politics/van-hollen-schumer-israel-senate.html
+
 **Corporate Oversight Revs Up as Washington Turns Blue Again**\
 `After two years of deregulation, congressional committees led by Democrats will shine the spotlight back on corporate America.`\
 https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
 
-**Tiny Love Stories: ‘You Don’t Want to Marry Me?**\
+**Tiny Love Stories: ‘You Don’t Want to Marry Me?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
 
@@ -102,13 +106,13 @@ https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
 `A Task Force discussion at the DealBook Summit led by Michael Barbaro, co-host of “The Daily” at The New York Times.`\
 https://www.nytimes.com/2026/11/25/podcasts/artificial-intelligence-agi.html
 
-**Watch the Task Force Panel Discussions From the DealBook Summit**\
-`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
-https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
-
 **How Will the ‘Blue Tsunami’ Shape the 2028 Election?**\
 `The New York Times’s Maggie Haberman and Jonathan Swan lead a Task Force conversation at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/blue-tsunami-2028-election.html
+
+**Watch the Task Force Panel Discussions From the DealBook Summit**\
+`See the full conversations, led by journalists from The Times, about the impact of the midterm elections, what to expect next in the A.I. revolution, how to make America healthier and the future of work and purpose.`\
+https://www.nytimes.com/2026/11/25/business/dealbook/watch-task-force-dealbook-summit.html
 
 **Democrats’ New Climate Strategy? Deregulation.**\
 `A new bill aims to overhaul federal environmental laws to make it easier to build things like gas pipelines and wind farms.`\
@@ -134,8 +138,8 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 `Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
-**Iowa Blast Live Updates: Army Detonates Toxic Material, Sending Plume Into Air**\
-`Officials said initial indications were that the blast at an Army ammunition plant had gone better than expected, but it will take time to determine whether it released hazardous lead dust.`\
+**Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears After Iowa Blast**\
+`It will take time to determine if the detonation of volatile material spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -161,8 +165,4 @@ https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
 **Corrections: Nov. 25, 2026**\
 `Corrections that appeared in print on Wednesday, Nov. 25, 2026.`\
 https://www.nytimes.com/2026/11/25/pageoneplus/corrections-nov-25-2026.html
-
-**The Ensemble Cast of a New York Sitcom Is Suddenly Running the Country**\
-`Remember when New York was an island off this nation’s coast?`\
-https://www.nytimes.com/2026/11/25/opinion/nyc-jeffries-schumer-mamdani-aoc-trump.html
 
