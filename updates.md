@@ -1,3 +1,7 @@
+**Ezra Frech Wins a Contentious Season of ‘Dancing With the Stars’**\
+`Harry Shum and Jenna Dewan, who both had experience in dance, were previously voted off despite high scores from judges.`\
+https://www.nytimes.com/2026/11/24/arts/television/ezra-frech-wins-dancing-with-stars.html
+
 **Martha Firestone Ford, Owner of Detroit Lions, Dies at 101**\
 `Mrs. Ford, who took over the team after the 2014 death of her husband, William Clay Ford Sr., was one of a handful of female owners in the N.F.L.`\
 https://www.nytimes.com/2026/11/24/business/martha-firestone-ford-dead.html
