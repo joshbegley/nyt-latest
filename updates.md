@@ -1,3 +1,7 @@
+**Stock Sell-Off Continues as Investors Fret About A.I., Tariffs and Inflation**\
+`Nvidia, Anthropic and other tech companies tumbled as investors also weighed developments in global trade and the path of interest rates.`\
+https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
+
 **2 Men Charged After Break-In at Prince William and Kate’s Country Home**\
 `Prosecutors said the two men, who appeared in court on Wednesday, had climbed a drainpipe to break into the royals’ country retreat in Norfolk.`\
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html

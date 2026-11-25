@@ -30,8 +30,8 @@ https://www.nytimes.com/2026/11/25/business/dealbook/nvidia-huang-ai-rally.html
 `In Mount Pleasant, Iowa, a farmer turned activist spends the evening before a toxic detonation with her cattle.`\
 https://www.nytimes.com/2026/11/25/us/iowa-detonation-cattle-farmer.html
 
-**Stock Sell-Off Set to Continue as Investors Fret About A.I., Tariffs and Inflation**\
-`Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also weighed developments in global trade and the path of interest rates.`\
+**Stock Sell-Off Continues as Investors Fret About A.I., Tariffs and Inflation**\
+`Nvidia, Anthropic and other tech companies tumbled as investors also weighed developments in global trade and the path of interest rates.`\
 https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
 
 **Thanksgiving Travel**\
