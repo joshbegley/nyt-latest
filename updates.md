@@ -1,3 +1,7 @@
+**Opposition Makes Progress Toward Ousting Netanyahu, Party Leader Says**\
+`Gadi Eisenkot, a former military chief, has set Dec. 6 as the deadline to form a new Israeli government. His ally, Avigdor Liberman, said Mr. Eisenkot was on track.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/opposition-makes-progress-toward-ousting-netanyahu-party-leader-says.html
+
 **C.I.A. Waterboarded More Detainees Than It Admitted, F.B.I. Interview Suggests**\
 `The apparent disclosure was included in files released in response to a New York Times lawsuit. The release also shed light on C.I.A. officials’ fears about possible prosecutions.`\
 https://www.nytimes.com/2026/11/25/us/politics/cia-waterboarding.html
