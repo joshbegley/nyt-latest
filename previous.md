@@ -166,7 +166,3 @@ https://www.nytimes.com/2026/11/25/technology/thanksgiving-ai-doom-family.html
 `Gallaghers is turning 100 next year, and the outsize steaks still deliver heady, dry-aged pleasures.`\
 https://www.nytimes.com/2026/11/25/dining/restaurant-review-gallaghers-nyc.html
 
-**How an Iranian Ally Gained the Upper Hand in Yemen’s War**\
-`The Iran-backed Houthis are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
-https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government-losses.html
-
