@@ -1,3 +1,7 @@
+**Don’t Sign Up for Debt This Black Friday**\
+`Before you splurge this Black Friday, watch this. Buy now, pay later plans are everywhere. You know the ones: They show up every time you’re ready to check out. It might be easy to sign up and say yes, but the Times Opinion fellow Tara Jayaram argues you’re just signing up for another loan, and this one’s taking advantage of you.`\
+https://www.nytimes.com/video/opinion/100000011187585/dont-sign-up-for-debt-this-black-friday.html
+
 **After Extraordinary Iowa Blast, Officials and Scientists Assess Fallout Risks**\
 `Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
