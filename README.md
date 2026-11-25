@@ -1,3 +1,7 @@
+**North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
+`The move followed Switzerland’s decision to sanction an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
+https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
+
 **Late Night Rips Into Trump for Honoring Rudy Giuliani**\
 `Seth Meyers congratulated the former New York mayor and Trump ally for “A, receiving the Presidential Medal of Freedom and B, still being alive.”`\
 https://www.nytimes.com/2026/11/25/arts/television/late-night-rips-into-trump-for-honoring-rudy-giuliani.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
 **Some Critics of Jensen Huang’s Reinstatement Suggest Double Standard**\
 `After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
 https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
-
-**Iraq’s Prime Minister Aims to Wrest More Power from Kurdistan Region**\
-`Ali al-Zaidi, who just scored a symbolic victory against a powerful Iran-backed militia, has now moved to assert control over Kurdish border crossings and oil resources.`\
-https://www.nytimes.com/2026/11/24/world/middleeast/iraq-prime-minister-kurdistan-control.html
 
