@@ -1,3 +1,7 @@
+**Trump Administration Unveils New Tariffs for Dozens of Countries, Citing Unfair Practices**\
+`The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
+https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
+
 **How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
 `Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
 https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
@@ -177,8 +181,4 @@ https://www.nytimes.com/2026/11/25/arts/design/artport-whitney-museum-digital-ar
 **Utility and Beauty Meet in an Interior Designer’s Study**\
 `At his weekend home in Bellport, N.Y., Dan Fink has a room dedicated to quiet reflection and filled with his favorite books and objects.`\
 https://www.nytimes.com/2026/11/25/realestate/utility-and-beauty-meet-in-an-interior-designers-study.html
-
-**First, Kill the Filibuster**\
-`Don’t wait for 2029 on the assumption that the next president will be a Democrat. Do it now.`\
-https://www.nytimes.com/2026/11/25/opinion/filibuster-democrats-republicans-trump.html
 

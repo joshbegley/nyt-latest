@@ -1,3 +1,7 @@
+**Trump Administration Unveils New Tariffs for Dozens of Countries, Citing Unfair Practices**\
+`The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
+https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
+
 **How ‘The Lord of the Rings: The Rings of Power’ Shot Its Signature Scene**\
 `Charlie Vickers, Simon Pegg and others discuss the creation of Tolkien’s all-powerful ring. They knew they had to get it right, but how do you make metallurgy dramatic?`\
 https://www.nytimes.com/2026/11/25/arts/television/the-rings-of-power-how-the-one-ring.html
