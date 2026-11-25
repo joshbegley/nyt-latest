@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Live Updates: With Lead Tests Underway, Army Seeks to Ease Fears After Iowa Blast**\
-`It will take time to determine if the detonation of volatile material spread toxic dust across a rural area, though early indications were encouraging.`\
+`It will take time to determine if the detonation of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
