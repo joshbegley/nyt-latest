@@ -1,3 +1,7 @@
+**Europe’s Hera Mission Releases Close-Up Images of the Asteroid Hit by a NASA Spacecraft**\
+`A European mission called Hera has just revealed the first close-up look at the aftermath of NASA’s audacious planetary defense test.`\
+https://www.nytimes.com/2026/11/25/science/hera-nasa-photos-dart-asteroid.html
+
 **Reflections on the River of Life**\
 `Readers respond to an Opinion guest essay by Roger Rosenblatt. Also: A few extra pounds; fears of a national breakdown.`\
 https://www.nytimes.com/2026/11/25/opinion/old-age.html
