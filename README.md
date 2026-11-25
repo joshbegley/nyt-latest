@@ -1,3 +1,7 @@
+**Thomas Markle Indicted in US on Charges of Possession of Child Sexual Abuse Materials**\
+`Mr. Markle, 82, was indicted by a grand jury in Los Angeles and is expected to be arraigned in the coming weeks, prosecutors said.`\
+https://www.nytimes.com/2026/11/24/world/europe/thomas-markle-indicted.html
+
 **Who Are the New Members of Congress?**\
 `There are political veterans and neophytes, a new wave of young lawmakers and a record number of women who will serve in the House.`\
 https://www.nytimes.com/interactive/2026/11/24/us/politics/congress-new-members-democrats.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/technology/jensen-huang-apology-nvidia-ceo.ht
 **Unstoppable Crowds Are Meeting Up to Push Immovable Objects**\
 `In Chicago, St. Louis, New York and Washington dreamers and pranksters have gotten together recently aiming to shift massive landmarks.`\
 https://www.nytimes.com/2026/11/24/us/washington-monument-chicago-bean-pushing.html
-
-**Crowds Gather to Try to Push City Landmarks**\
-`From Chicago to Washington, D.C., crowds are meeting up to “push” city landmarks. While none of the structures have been moved, participants said that they enjoy the shared challenge.`\
-https://www.nytimes.com/video/us/100000011305197/chicago-st-louis-washington-dc-push.html
 
