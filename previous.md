@@ -1,3 +1,7 @@
+**Live Updates: Army Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
+`The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
 `At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
 https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/video/us/100000011307252/thanksgiving-travel-outage-stor
 **Plane Crash Near Mississippi’s Horn Island Kills 6**\
 `Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
 https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
-
-**Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
-`The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
-https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
-
-**NYT Spelling Bee Answers for November 25, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
 

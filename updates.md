@@ -1,3 +1,7 @@
+**Live Updates: Army Set to Blow Up Nearly Five Tons of Toxic Material in Iowa**\
+`The plan to destroy chemicals at an ammunition plant on Wednesday raised fears that it could spread a plume of lead dust as far as 100 miles away.`\
+https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
+
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
 `At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
 https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
