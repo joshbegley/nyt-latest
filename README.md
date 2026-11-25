@@ -174,7 +174,3 @@ https://www.nytimes.com/2026/11/25/realestate/new-england-oil-heating-homeowners
 `A thoughtful best-selling book for boys suffers from blunt-force drama in an adaptation starring Chris Pratt and Linda Cardellini.`\
 https://www.nytimes.com/2026/11/25/movies/way-of-the-warrior-kid-review.html
 
-**‘Hexed’ Review: Disney’s Witchy New Princess**\
-`Disney unleashes a new witchy princess in a mother-daughter adventure tale that could use some decluttering.`\
-https://www.nytimes.com/2026/11/25/movies/hexed-review-disney.html
-
