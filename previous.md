@@ -1,3 +1,19 @@
+**Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
+`The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
+https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
+
+**NYT Spelling Bee Answers for November 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
+
+**He’s Living in the Past. 1978, to Be Exact.**\
+`Tashawn Davis, 29, has turned his apartment into a time capsule. Welcome to Whaffle’s house.`\
+https://www.nytimes.com/2026/11/25/nyregion/whaffle-70s-apartment-nyc.html
+
+**The Street Photographer Who Loved the Macy’s Thanksgiving Day Parade**\
+`Alan Batt, 79, affectionately known as “Battman,” has published a book chronicling a decade of his city scenes.`\
+https://www.nytimes.com/2026/11/25/nyregion/battman-street-photography-macys-thanksgiving-day-parade.html
+
 **North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
 `The move followed Switzerland’s decision to impose sanctions on an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
 https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/24/movies/the-further-mis-adventures-of-cliff-bo
 **‘The Digital Deficit Has Come Due’**\
 `Why is the internet so prone to outages and attacks right now? The cybersecurity expert Nicole Perlroth explains on “The Ezra Klein Show” that “faulty, flawed, vulnerable software” underlies the modern internet.`\
 https://www.nytimes.com/video/opinion/100000011299692/the-digital-deficit-has-come-due.html
-
-**Huawei Found Guilty of Stealing Trade Secrets in U.S. Trial**\
-`The verdict was a victory for the Justice Department in a long-running case over what federal prosecutors called brazen trade theft by the Chinese telecommunications giant.`\
-https://www.nytimes.com/2026/11/24/nyregion/huawei-guilty-new-york.html
-
-**Iowa’s Toxic Explosion**\
-`The Army is scheduled blow up thousands of pounds of explosives that could spread toxic lead dust for miles.`\
-https://www.nytimes.com/2026/11/24/climate/iowas-toxic-explosion.html
-
-**Winter Travel Ideas: Family Vacations in Southeast Asia, San Francisco and More**\
-`Readers wrote in with their winter travel quandaries. Here are our ideas for them.`\
-https://www.nytimes.com/2026/11/24/t-magazine/winter-holiday-travel-ideas.html
-
-**Some Critics of Jensen Huang’s Reinstatement Suggest Double Standard**\
-`After Nvidia welcomed back its chief executive, some questioned whether the same grace would be extended to a woman.`\
-https://www.nytimes.com/2026/11/24/style/jensen-huang-nvidia-women-executives.html
 

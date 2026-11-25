@@ -1,3 +1,19 @@
+**Colombia’s Leader Blames ‘Terrorist Attack’ for Power Outages**\
+`The blackouts follow a string of violent episodes attributed to Colombia’s armed traffickers, as the country’s new president cracks down on the groups.`\
+https://www.nytimes.com/2026/11/25/world/americas/colombia-blackout-terrorist-attack.html
+
+**NYT Spelling Bee Answers for November 25, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/25/crosswords/spelling-bee-forum.html
+
+**He’s Living in the Past. 1978, to Be Exact.**\
+`Tashawn Davis, 29, has turned his apartment into a time capsule. Welcome to Whaffle’s house.`\
+https://www.nytimes.com/2026/11/25/nyregion/whaffle-70s-apartment-nyc.html
+
+**The Street Photographer Who Loved the Macy’s Thanksgiving Day Parade**\
+`Alan Batt, 79, affectionately known as “Battman,” has published a book chronicling a decade of his city scenes.`\
+https://www.nytimes.com/2026/11/25/nyregion/battman-street-photography-macys-thanksgiving-day-parade.html
+
 **North Korea Kicks Out Swiss Diplomats in Spat Linked to Ukraine War**\
 `The move followed Switzerland’s decision to impose sanctions on an international youth camp in North Korea, which is accused of hosting Ukrainian children for indoctrination.`\
 https://www.nytimes.com/2026/11/25/world/asia/north-korea-switzerland-diplomats.html
