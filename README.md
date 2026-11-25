@@ -1,4 +1,4 @@
-**Small Plane Crashes Off the Mississippi Coast, Killing 6**\
+**Plane Crash Near Mississippi’s Horn Island Kills 6**\
 `Divers found the remains of the six people inside the downed plane near Horn Island, the Coast Guard said.`\
 https://www.nytimes.com/2026/11/25/us/mississippi-plane-crash-horn-island.html
 
