@@ -178,7 +178,3 @@ https://www.nytimes.com/2026/11/25/opinion/airports-travel-holiday.html
 `A new book by the historian Matthew Pinsker depicts the Great Emancipator as a formidable builder of political power.`\
 https://www.nytimes.com/2026/11/25/books/review/boss-lincoln-matthew-pinsker.html
 
-**Brittany Snow Has Something to Prove**\
-`The “Hunting Wives” star, who began acting as a child and endured years of struggle, is experiencing a career renaissance at 40.`\
-https://www.nytimes.com/2026/11/25/arts/television/brittany-snow-hunting-wives.html
-

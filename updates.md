@@ -1,3 +1,7 @@
+**Stock Sell-Off Set to Continue as A.I. Players Fall Again**\
+`Shares of Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also worried about tariffs and interest rates.`\
+https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
+
 **How an Iranian Ally Gained the Upper Hand in Yemen’s War**\
 `The Iran-backed Houthis are on a winning streak, securing strategic territory as they fight Saudi Arabia and its Yemeni allies in an asymmetrical war of attrition.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/yemen-houthis-war-government-losses.html
