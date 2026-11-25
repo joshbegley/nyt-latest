@@ -1,3 +1,15 @@
+**Firm Inflation Upholds Fed’s Plan to Raise Rates Again**\
+`The Federal Reserve is widely expected to raise interest rates next month.`\
+https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
+
+**Stock Sell-Off Set to Continue as Investors Fret About A.I., Tariffs and Inflation**\
+`Nvidia, Anthropic and other tech companies tumbled in premarket trading, continuing their slide from the previous session, as investors also weighed developments in global trade and the path of interest rates.`\
+https://www.nytimes.com/2026/11/25/business/stocks-sp500-nvidia-ai.html
+
+**Mexico Investigates Possible Cartel Links of Prosecutor Who Aided C.I.A.**\
+`The prosecutor recently fled to the United States after Mexico issued a warrant over his involvement with the C.I.A. Now authorities are investigating him for suspected cartel collusion.`\
+https://www.nytimes.com/2026/11/25/world/americas/mexico-prosecutor-cia-us.html
+
 **Libyan Forces Threaten Retaliation Over Ukraine’s Attack on Russian Ships**\
 `The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
