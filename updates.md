@@ -1,3 +1,7 @@
+**My Partner’s Wife Has Alzheimer’s**\
+`When Deb Copaken met the love of her life, he was navigating the Alzheimer’s diagnosis his wife, Bridget, had received. Now, the three of them live together, and Deb visits Bridget daily to care for her.`\
+https://www.nytimes.com/video/podcasts/100000011308382/my-partners-wife-has-alzheimers.html
+
 **Veruschka Was a Supermodel Before the Term Was Invented**\
 `Her look made her a celebrity before models were known as celebrities.`\
 https://www.nytimes.com/2026/11/25/style/veruschka-supermodel-obituary.html
