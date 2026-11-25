@@ -1,3 +1,11 @@
+**Footage Shows Army Detonating Toxic Material at Iowa Ammunition Plant**\
+`The army detonated toxic material at an ammunition plant in Iowa on Wednesday. Officials said it will take time to determine whether the explosion released hazardous lead dust.`\
+https://www.nytimes.com/video/us/100000011308100/army-detonation-lead-material-iowa.html
+
+**Opposition Makes Progress Toward Ousting Netanyahu, Party Leader Says**\
+`Gadi Eisenkot, a former military chief, has set Dec. 6 as the deadline to form a new Israeli government. His ally, Avigdor Liberman, said Mr. Eisenkot was on track.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/israel-opposition-netanyahu-new-government.html
+
 **Iowa Awaits All-Clear as Tests for Lead Continue**\
 `It will take some time for officials to examine the air, water and soil samples for contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-awaits-all-clear-as-tests-for-lead-continue.html
