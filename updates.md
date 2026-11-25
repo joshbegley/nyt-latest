@@ -1,3 +1,7 @@
+**3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
+`At least 23 workers are believed to have been stuck inside the illegal mine since Monday, after its narrow shaft flooded.`\
+https://www.nytimes.com/2026/11/25/world/asia/indonesia-miners-trapped.html
+
 **California’s Tides Are in ‘Uncharted Territory’ as Water Surges Higher**\
 `Wednesday’s high tides could break records, forecasters warned.`\
 https://www.nytimes.com/2026/11/25/weather/california-king-tides-sf-la.html
