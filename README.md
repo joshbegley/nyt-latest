@@ -1,3 +1,7 @@
+**Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
+`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons. Video by Graham Dickie and Patricia Sulbarán.`\
+https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
+
 **Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
 `The blaze killed at least 31 and injured at least 21 near Giza, beside the Nile River, officials said.`\
 https://www.nytimes.com/2026/11/25/world/middleeast/road-fire-near-cairo-kills-dozens-after-petroleum-laden-truck-crashes.html
@@ -15,7 +19,7 @@ https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-wi
 https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
 
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
-`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
+`A nor’easter is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
 
 **The Good List: 5 Things to Add Delight to Your Day**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
 **Tiny Love Stories: ‘You Don’t Want to Marry Me?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
-
-**With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
-`It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
-https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 

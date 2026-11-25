@@ -1,3 +1,19 @@
+**Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
+`The blaze killed at least 31 and injured at least 21 near Giza, beside the Nile River, officials said.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/road-fire-near-cairo-kills-dozens-after-petroleum-laden-truck-crashes.html
+
+**A Man in Denver Has Been Throwing Eggs at Waymo Vehicles**\
+`The man, who drove a Toyota Corolla from a fleet leased to Lyft drivers, used orange cones to trap the self-driving vehicles before pelting them with eggs, the police said. No charges have been filed.`\
+https://www.nytimes.com/2026/11/25/us/waymo-denver-egg-throwing.html
+
+**Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
+https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
+
+**We Are Watching Pandemic Backlash on Tape Delay**\
+`The measles crisis is much bigger than MAGA.`\
+https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
+
 **Angelina Jolie and Brad Pitt Settle Lawsuit That Aired Abuse Allegations**\
 `The battle over a winery disclosed details about what Ms. Jolie said was abusive behavior by Mr. Pitt toward her and their children in 2016.`\
 https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-winery-lawsuit.html
