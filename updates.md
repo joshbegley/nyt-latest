@@ -1,3 +1,7 @@
+**Iowa Awaits All-Clear as Tests for Lead Continue**\
+`It will take some time for officials to examine the air, water and soil samples for contamination.`\
+https://www.nytimes.com/2026/11/25/us/iowa-awaits-all-clear-as-tests-for-lead-continue.html
+
 **Buffalo Cauliflower Dip**\
 `The whole dip — from caramelizing cauliflower to stirring together the creamy hot sauce base and baking on the generous layer of cheese — is made in one pan.`\
 https://www.nytimes.com/video/dining/100000011307923/buffalo-cauliflower-dip.html
