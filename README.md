@@ -1,3 +1,7 @@
+**After Extraordinary Iowa Blast, Officials and Scientists Assess Fallout Risks**\
+`Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
+https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
+
 **Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
 `She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
 https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
@@ -177,10 +181,6 @@ https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-lo
 **Army’s Maps of Iowa Explosion May Underestimate Impact**\
 `The emergency emissions scenario calculated by Army officials did not use a “worst-case scenario,” as required by the Environmental Protection Agency.`\
 https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-underestimated.html
-
-**My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
-`A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
-https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\

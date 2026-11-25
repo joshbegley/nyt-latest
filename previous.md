@@ -1,3 +1,19 @@
+**Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
+`She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
+https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
+
+**Judges in Israel Suggest Dropping Key Corruption Case Against Netanyahu**\
+`Prime Minister Benjamin Netanyahu is accused of bribery, fraud and breach of trust in a long-running trial that has divided the country. He denies all wrongdoing.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/judges-israel-corruption-case-netanyahu.html
+
+**Sept. 11 Defendants Get New Opening to Challenge Death Penalty**\
+`At issue is a clause in a plea deal involving Khalid Shaikh Mohammed, the man accused of being the mastermind of the plot, and two other defendants.`\
+https://www.nytimes.com/2026/11/25/us/politics/death-penalty-sept-11-case-guantanamo.html
+
+**My Balloon Training for the Macy’s Thanksgiving Day Parade**\
+`For the 100th parade, our host flew one of its icons.`\
+https://www.nytimes.com/2026/11/25/podcasts/the-daily/dont-let-go-my-balloon-training-for-the-macys-thanksgiving-day-parade.html
+
 **Traveling to Bhutan in 2026: Wood-Fired Pizzas and Monks With Cellphones**\
 `The view of the Himalayan country as ancient and immutable is being challenged by young Bhutanese who are opening restaurants and shops, and getting beyond “gross national happiness.” A traveler explores.`\
 https://www.nytimes.com/2026/11/25/travel/bhutan-travel.html
@@ -165,18 +181,6 @@ https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-undere
 **My 4-Year-Old Son Is Often Mistaken for a Girl. Help!**\
 `A mother is unsure how best to gently correct strangers who misgender her son without making them feel guilty about their mistake.`\
 https://www.nytimes.com/2026/11/25/style/son-mistaken-for-girl-how-to-respond.html
-
-**Another Hot Inflation Reading Keeps Fed on Track to Raise Rates Again**\
-`The Federal Reserve is widely expected to raise interest rates next month.`\
-https://www.nytimes.com/2026/11/25/business/economy/inflation-pce-interest-rates.html
-
-**Libyan Forces Threaten Retaliation Over Ukraine’s Attack on Russian Ships**\
-`The Ukrainian drone strike off Libya’s coast killed two Libyan naval officers, according to the forces controlling the country’s east.`\
-https://www.nytimes.com/2026/11/25/world/middleeast/libya-ukraine-russia-haftar.html
-
-**Trump Administration Unveils New Tariffs for China, EU and More, Citing Unfair Practices**\
-`The latest escalation came as the administration confronts continued legal obstacles and new scrutiny from an incoming Democratic-led Congress.`\
-https://www.nytimes.com/2026/11/25/business/trump-tariffs-trade.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
