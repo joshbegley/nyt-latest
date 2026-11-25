@@ -1,3 +1,11 @@
+**Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
+`The blaze killed at least 31 and injured at least 21 near Giza, beside the Nile River, officials said.`\
+https://www.nytimes.com/2026/11/25/world/middleeast/road-fire-near-cairo-kills-dozens-after-petroleum-laden-truck-crashes.html
+
+**A Man in Denver Has Been Throwing Eggs at Waymo Vehicles**\
+`The man, who drove a Toyota Corolla from a fleet leased to Lyft drivers, used orange cones to trap the self-driving vehicles before pelting them with eggs, the police said. No charges have been filed.`\
+https://www.nytimes.com/2026/11/25/us/waymo-denver-egg-throwing.html
+
 **Angelina Jolie and Brad Pitt Settle Lawsuit That Aired Abuse Allegations**\
 `The battle over a winery disclosed details about what Ms. Jolie said was abusive behavior by Mr. Pitt toward her and their children in 2016.`\
 https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-winery-lawsuit.html
@@ -7,7 +15,7 @@ https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-wi
 https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
 
 **Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
-`A storm with high winds and rain is expected to pummel New York City on Thursday, prompting organizers to delay the event.`\
+`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
 
 **The Good List: 5 Things to Add Delight to Your Day**\
@@ -18,8 +26,8 @@ https://www.nytimes.com/2026/11/25/briefing/gta-sandwiches-daily.html
 `How do you navigate the holidays when you are estranged from family?`\
 https://www.nytimes.com/2026/11/25/opinion/family-holidays-estranged.html
 
-**Measles Is Unequivocally Back**\
-`The crisis is much bigger than MAGA.`\
+**We Are Watching Pandemic Backlash on Tape Delay**\
+`The measles crisis is much bigger than MAGA.`\
 https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
 
 **We’re Investigating a $300 Million Mystery**\
@@ -181,14 +189,6 @@ https://www.nytimes.com/2026/11/25/business/corporate-america-democrats.html
 **Tiny Love Stories: ‘You Don’t Want to Marry Me?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://www.nytimes.com/2026/11/25/style/tiny-modern-love-stories-you-dont-want-to-marry-me.html
-
-**Bizarre Material May Herald the Future of Computer Chips**\
-`Unlike copper, newly described “nanoribbons” conduct electricity better as they shrink. If refined, the material could usher in a supercharged generation of microchips.`\
-https://www.nytimes.com/2026/11/25/science/chips-wires-copper-niobium.html
-
-**I’m a Therapist. I Wish These Patients Would Not Cut Off Their Family Members.**\
-`More than a third of Americans report losing relationships with friends or family because of political differences.`\
-https://www.nytimes.com/2026/11/25/opinion/politics-family-midterms-voting-holidays.html
 
 **With Lead Tests Underway After Iowa Detonation, Army Seeks to Ease Fears**\
 `It will take time to determine if the explosion of volatile material at an ammunition plant spread toxic dust across a rural area, though early indications were encouraging.`\
