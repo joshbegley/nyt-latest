@@ -186,7 +186,3 @@ https://www.nytimes.com/2026/11/25/t-magazine/june-crespo-sculpture.html
 `Our critic on six books worth your time.`\
 https://www.nytimes.com/2026/11/25/books/review/new-historical-fiction-books.html
 
-**Here’s How Democrats Should Investigate Trump’s Corruption**\
-`By focusing on corruption, Congress can make clear that President Trump and his allies are willing to harm other Americans for their own benefit.`\
-https://www.nytimes.com/2026/11/25/opinion/trump-corruption-investigate-democrats.html
-
