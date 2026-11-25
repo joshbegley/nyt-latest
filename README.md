@@ -1,3 +1,7 @@
+**Africa C.D.C. Chief Faces Turmoil Over Management Amid Ebola Crisis**\
+`Scrutiny has fallen on Dr. Jean Kaseya, the director general of the Africa Centers for Disease Control and Prevention, after reports of staff intimidation and mismanagement of funds.`\
+https://www.nytimes.com/2026/11/25/world/africa/acdc-kaseya-staff-ebola.html
+
 **My Partner’s Wife Has Alzheimer’s**\
 `When Deb Copaken met the love of her life, he was navigating the Alzheimer’s diagnosis his wife, Bridget, had received. Now, the three of them live together, and Deb visits Bridget daily to care for her.`\
 https://www.nytimes.com/video/podcasts/100000011308382/my-partners-wife-has-alzheimers.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/world/middleeast/israel-opposition-netanyahu-
 **C.I.A. Waterboarded More Detainees Than It Admitted, F.B.I. Interview Suggests**\
 `The apparent disclosure was included in files released in response to a New York Times lawsuit. The release also shed light on C.I.A. officials’ fears about possible prosecutions.`\
 https://www.nytimes.com/2026/11/25/us/politics/cia-waterboarding.html
-
-**Watching the Army’s Toxic Lead Detonation**\
-`In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa.`\
-https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html
 
