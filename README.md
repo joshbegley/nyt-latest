@@ -1,3 +1,7 @@
+**Sullivan Concedes Alaska Senate Race to Peltola**\
+`The Republican conceded five days after the Trump administration gave up on a long-shot lawsuit intended to potentially block certification of the race.`\
+https://www.nytimes.com/2026/11/24/us/politics/dan-sullivan-concedes-alaska-senate-race-mary-peltola.html
+
 **An Explosion Is Coming to Iowa. And Residents Can’t Do a Thing About It.**\
 `Residents of Middletown, which adjoins an Army facility where dangerous chemicals will be detonated Wednesday, are taping up their doors and getting ready to flee.`\
 https://www.nytimes.com/2026/11/24/us/iowa-ammunition-plant-lead-explosion-middletown.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/24/nyregion/zingones-market-upper-west-wise-manh
 **Army’s Iowa Ammunition Plant Explosion on Schedule for Wednesday Morning**\
 `Freezing temperatures threaten to make the chemicals even more unstable, while winds could carry a toxic lead plume up to 100 miles away.`\
 https://www.nytimes.com/2026/11/24/climate/iowa-army-ammunition-plant-explostion.html
-
-**Donald Bauchner, Who Created the Scent Called Tea Rose, Has Died**\
-`Donald Bauchner brought essential oils out of head shops and into department stores, accidentally creating a blockbuster fragrance. He was 85.`\
-https://www.nytimes.com/2026/11/24/style/donald-bauchner-dead.html
 
