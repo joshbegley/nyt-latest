@@ -1,3 +1,7 @@
+**The Future of Work and Purpose**\
+`Jodi Kantor, an investigative reporter at The New York Times, leads a Task Force discussion at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/future-work-purpose.html
+
 **Can You Make America Healthy Again?**\
 `Lulu Garcia-Navarro, a host of “The Interview,” leads a Task Force debate at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html

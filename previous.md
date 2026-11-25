@@ -1,3 +1,7 @@
+**The Future of Work and Purpose**\
+`Jodi Kantor, an investigative reporter at The New York Times, leads a Task Force discussion at the DealBook Summit.`\
+https://www.nytimes.com/2026/11/25/podcasts/future-work-purpose.html
+
 **Can You Make America Healthy Again?**\
 `Lulu Garcia-Navarro, a host of “The Interview,” leads a Task Force debate at the DealBook Summit.`\
 https://www.nytimes.com/2026/11/25/podcasts/america-health-care.html
@@ -185,12 +189,4 @@ https://www.nytimes.com/2026/11/25/style/nyc-holiday-store-windows.html
 **Which $1.3 Million Home Would You Choose?**\
 `This week’s properties are in Orlando, Fla., High Falls, N.Y., and Pasadena, Calif.`\
 https://www.nytimes.com/2026/11/25/realestate/which-1-3-million-home-would-you-choose.html
-
-**Bradford Cox Wants to Be Redeemed**\
-`The polarizing frontman of Deerhunter and Atlas Sound largely disappeared for seven years. He just released a surprise album inspired by mercy and the death of a close friend.`\
-https://www.nytimes.com/2026/11/25/arts/music/bradford-cox-atlas-sound-thanatos.html
-
-**Island Paradise of Mauritius Has Sun, Beaches and Too Many Dogs**\
-`Mauritius, a popular tourist destination off southern Africa, has become overrun with strays. With more and more residents chased and attacked, many are fed up.`\
-https://www.nytimes.com/2026/11/25/world/africa/maritius-stray-dogs.html
 
