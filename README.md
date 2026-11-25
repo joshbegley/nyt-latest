@@ -1,3 +1,7 @@
+**My Partner’s Wife Has Alzheimer’s**\
+`When Deb Copaken met the love of her life, he was navigating the Alzheimer’s diagnosis his wife, Bridget, had received. Now, the three of them live together, and Deb visits Bridget daily to care for her.`\
+https://www.nytimes.com/video/podcasts/100000011308382/my-partners-wife-has-alzheimers.html
+
 **Veruschka Was a Supermodel Before the Term Was Invented**\
 `Her look made her a celebrity before models were known as celebrities.`\
 https://www.nytimes.com/2026/11/25/style/veruschka-supermodel-obituary.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/us/politics/cia-waterboarding.html
 **Watching the Army’s Toxic Lead Detonation**\
 `In this episode of “The Call,” the host Natalie Kitroeff, calls our Climate reporter Quinn Glabicki at the scene of the Army’s toxic lead detonation in Middletown, Iowa.`\
 https://www.nytimes.com/video/podcasts/the-daily/100000011308314/watching-the-armys-toxic-lead-detonation.html
-
-**‘My Duty as a Grandson’: Gen Z Men Are as Likely as Women to Provide Elder Care**\
-`New data shows that young adults are increasingly caring for older relatives.`\
-https://www.nytimes.com/2026/11/25/upshot/gen-z-elder-care.html
 

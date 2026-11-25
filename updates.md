@@ -1,3 +1,7 @@
+**Veruschka Was a Supermodel Before the Term Was Invented**\
+`Her look made her a celebrity before models were known as celebrities.`\
+https://www.nytimes.com/2026/11/25/style/veruschka-supermodel-obituary.html
+
 **Veruschka, One of the World’s First Supermodels, Has Died**\
 `She rocketed to fame in Vogue and other magazines during the Swinging Sixties and had a memorable cameo in Antonioni’s hit film “Blow-Up.” She was 87.`\
 https://www.nytimes.com/2026/11/25/style/veruschka-dead.html
