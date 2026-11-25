@@ -1,3 +1,7 @@
+**Martha Firestone Ford, Owner of Detroit Lions, Dies at 101**\
+`Mrs. Ford, who took over the team after the 2014 death of her husband, William Clay Ford Sr., was one of a handful of female owners in the N.F.L.`\
+https://www.nytimes.com/2026/11/24/business/martha-firestone-ford-dead.html
+
 **Officials Brief Congressional Staff on Intelligence Surrounding Nvidia Affair**\
 `After President Trump said Jensen Huang was not a security threat, U.S. intelligence agencies told aides to lawmakers there was no evidence the woman at the heart of the scandal took directions from the Chinese spy agency.`\
 https://www.nytimes.com/2026/11/24/us/politics/intelligence-nvidia-affair-congressional-briefing.html
