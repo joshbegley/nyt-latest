@@ -1,3 +1,7 @@
+**Why Aren’t the Midterms Over in Louisiana? Ask the Supreme Court.**\
+`A landmark Supreme Court ruling reshaped the state’s congressional map and set up runoffs for two open seats.`\
+https://www.nytimes.com/2026/11/25/us/politics/why-arent-the-midterms-over-in-louisiana-ask-the-supreme-court.html
+
 **Army’s Maps of Iowa Explosion May Underestimate Impact**\
 `The emergency emissions scenario calculated by Army officials did not use a “worst-case scenario,” as required by the Environmental Protection Agency.`\
 https://www.nytimes.com/2026/11/25/us/army-detonation-emissions-maps-risk-underestimated.html
@@ -87,7 +91,7 @@ https://www.nytimes.com/2026/11/25/crosswords/connections-companion-1264.html
 https://www.nytimes.com/2026/11/25/world/europe/prince-william-kate-home-break-in-charged.html
 
 **Iowa Blast Live Updates: Detonation of Toxic Material Risks a Dangerous Plume**\
-`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario for an area of roughly 150 square miles.`\
+`Officials said they expected “zero release” of hazardous lead dust at an Army ammunition plant, but their models underestimate the worst-case scenario.`\
 https://www.nytimes.com/live/2026/11/25/us/iowa-detonation-ammunition-news
 
 **3 Dead and Many More Trapped in Indonesian Mine After Heavy Rainfall**\
@@ -173,8 +177,4 @@ https://www.nytimes.com/2026/11/25/movies/way-of-the-warrior-kid-review.html
 **‘Hexed’ Review: Disney’s Witchy New Princess**\
 `Disney unleashes a new witchy princess in a mother-daughter adventure tale that could use some decluttering.`\
 https://www.nytimes.com/2026/11/25/movies/hexed-review-disney.html
-
-**‘Hershey’ Review: A Vanilla Movie About Chocolate**\
-`The origin story of the famous candy bar gets the corporate biopic treatment in this saccharine rags-to-riches narrative.`\
-https://www.nytimes.com/2026/11/25/movies/hershey-review.html
 
