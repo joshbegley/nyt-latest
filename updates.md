@@ -1,3 +1,11 @@
+**Latino-Owned Coffee Shop Closes After Claims That Founder Works for ICE**\
+`Tasa Coffee Roasters in Chicago permanently closed its doors after workers walked out in protest.`\
+https://www.nytimes.com/2026/11/24/us/tasa-coffee-chicago-closed-ice-owner.html
+
+**Photo Quiz: Guess the Year**\
+`We’ve selected five Thanksgiving-themed pictures from our archives. See if you can figure out when they’re from.`\
+https://www.nytimes.com/interactive/2026/11/24/arts/photo-quiz-game-175-thanksgiving.html
+
 **Sullivan Concedes Alaska Senate Race to Peltola**\
 `The Republican conceded five days after the Trump administration gave up on a long-shot lawsuit intended to potentially block certification of the race.`\
 https://www.nytimes.com/2026/11/24/us/politics/dan-sullivan-concedes-alaska-senate-race-mary-peltola.html
