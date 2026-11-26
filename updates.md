@@ -1,3 +1,7 @@
+**A City Fears the Loss of Its Pier After a Section Collapsed Into the Sea**\
+`The famed pier in Pacifica, Calif., had long been crumbling. This week, a portion of it succumbed to fierce waves and toppled into the sea.`\
+https://www.nytimes.com/2026/11/26/us/pacifica-pier-collapse-el-nino-king-tides.html
+
 **One Dead After Shooting Mars High School Football Tradition**\
 `The authorities said that Joaquin J. Morris, 18, was killed in a shooting that interrupted a longtime sporting event that dates to the 1930s in the New Jersey suburbs.`\
 https://www.nytimes.com/2026/11/26/nyregion/teaneck-shooting-football-game-turkey-bowl.html
