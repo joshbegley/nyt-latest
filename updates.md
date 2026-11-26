@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Upends Plans and Adds Costs for Marching Bands**\
+`Nine marching bands were set to perform in the Macy’s Thanksgiving Day Parade. The decision to move the event to Saturday posed new logistical challenges for them.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-marching-bands.html
+
 **Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
 `A preliminary injunction halted an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
 https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html

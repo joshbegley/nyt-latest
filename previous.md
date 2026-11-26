@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Upends Plans and Adds Costs for Marching Bands**\
+`Nine marching bands were set to perform in the Macy’s Thanksgiving Day Parade. The decision to move the event to Saturday posed new logistical challenges for them.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-marching-bands.html
+
 **For Macy’s Thanksgiving Day Parade, Drying Out Balloons is a Lengthy Process**\
 `Workers spent hours drying out clothes and other showpieces two years ago during a rainy holiday parade.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-costumes-balloons.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011307995/chocolate-tahini-mousse-cak
 **Baked Brie and Caramelized Vegetable Pie**\
 `A vegetarian centerpiece, this caramelized vegetable pie cuddles creamy, earthy molten cheese with a bevy of autumnal vegetables: roasted butternut squash, seared mushrooms, herbed brussels sprouts and tangy red onions, and enrobes the whole mixture in store-bought puff pastry.`\
 https://www.nytimes.com/video/dining/100000011307945/baked-brie-and-caramelized-vegetable-pie.html
-
-**Kilmar Abrego Garcia Arrives in Spain After Voluntarily Leaving U.S.**\
-`Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was wrongfully deported from the United States last year, arrived in Spain after voluntarily leaving the United States.`\
-https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-spain.html
 
