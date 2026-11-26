@@ -1,3 +1,7 @@
+**Trump Rejoiced in the Market’s Nvidia Surge. It Didn’t Last Long.**\
+`The retreat of the stock market in recent days shows how President Trump’s push to reinstall the company’s chief executive has collided with the realities of his other policies.`\
+https://www.nytimes.com/2026/11/25/us/politics/trump-nvidia-stock-market.html
+
 **Andy Taylor, Duran Duran’s ‘Live-Wire’ Guitarist, Dies at 65**\
 `He helped define the sound, and the look, of the 1980s with MTV-ready hits like “Rio” and “Hungry Like the Wolf.”`\
 https://www.nytimes.com/2026/11/25/arts/music/andy-taylor-duran-duran-dead.html
