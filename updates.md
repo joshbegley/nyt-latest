@@ -1,3 +1,19 @@
+**Trump’s Latest Tariffs Revive Focus on Pressuring China**\
+`President Trump sent a message to trading partners across Asia, many of which depend on trade and investment from both the United States and China, that he is ready to escalate tariffs.`\
+https://www.nytimes.com/2026/11/26/business/trump-tariffs-asia.html
+
+**Ways to Say ‘We’re Sorry’ to Canada**\
+`Readers respond to “Welcome Back, America! It’s Your Turn to Be Sorry,” an Opinion guest essay by Chrystia Freeland. Also: My old typewriters.`\
+https://www.nytimes.com/2026/11/26/opinion/us-canada-sorry.html
+
+**Cheers to Thanksgiving!**\
+`No matter what befalls, there will probably be plenty of good food to eat. If you have fun cooking and sharing it, you’ve won the day.`\
+https://www.nytimes.com/2026/11/26/dining/cheers-to-thanksgiving.html
+
+**More Than a Dozen Dead in Indonesia After Gold Mine Flood**\
+`More than a dozen people in Indonesia have died and more than a dozen others were believed to be trapped after heavy rainfall flooded an unauthorized gold mine, the local police said.`\
+https://www.nytimes.com/video/world/asia/100000011310312/indonesia-gold-mine-flood.html
+
 **Venice Biennale Names Its First Arab Curator: Hoor Al-Qasimi**\
 `The director of the Sharjah Biennial in the United Arab Emirates, she will organize the 62nd edition of the world’s oldest and best-attended contemporary art exhibition in 2028.`\
 https://www.nytimes.com/2026/11/26/arts/design/venice-biennale-2028-curator-hoor-al-qasimi.html
