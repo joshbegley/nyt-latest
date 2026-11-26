@@ -1,3 +1,7 @@
+**For Macy’s Thanksgiving Day Parade, Drying Out Balloons is a Lengthy Process**\
+`Workers spent hours drying out clothes and other showpieces two years ago during a rainy holiday parade.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-costumes-balloons.html
+
 **Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
 `A preliminary injunction halts an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
 https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html
