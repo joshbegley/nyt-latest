@@ -1,3 +1,143 @@
+**Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
+`It isn’t always easy to keep New York City’s Thanksgiving parade on track. Here’s a look back at notable moments and mishaps.`\
+https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-parade-history-timeline.html
+
+**It’s Time to Celebrate Soup**\
+`Warm and hearty recipes, plus a new home décor shop in Los Angeles, illustrated fashion books and more.`\
+https://www.nytimes.com/2026/11/26/t-magazine/its-time-to-celebrate-soup.html
+
+**‘Pumpkin Pie Is Disgusting’ and Other Unpopular Opinions**\
+`We give thanks. Lots of thanks. Really.`\
+https://www.nytimes.com/2026/11/26/opinion/thanksgiving-america-education-disabilities.html
+
+**Donate This Holiday Season: CURE Epilepsy Needs Your Help**\
+`Unlikely friends, a common cause.`\
+https://www.nytimes.com/2026/11/26/opinion/charity-holiday-gift-epilepsy.html
+
+**The E.R. Closed at 5 P.M. A Dying Woman Showed Up 11 Minutes Too Late.**\
+`In rural British Columbia, Courtney McCowan died after paramedics tried to help her in a hospital’s parking lot.`\
+https://www.nytimes.com/2026/11/26/world/canada/port-hardy-woman-dies-outside-er.html
+
+**El Salvador’s Nayib Bukele Elates Haiti With Fight Against Gangs**\
+`The president of El Salvador has widespread support among Haitians, who are tired of violence and hope he can be the one to finally end it.`\
+https://www.nytimes.com/2026/11/26/world/americas/nayib-bukele-salvador-haiti.html
+
+**A Beloved Deli, a Stolen Van and the Neighborhood That Got It Back**\
+`At one throwback of a shop in Philadelphia, an owner gave thanks to the regulars who refused to stand by after a recent theft.`\
+https://www.nytimes.com/2026/11/26/us/deli-owner-van-stolen-philadelphia.html
+
+**The N.F.L. Player Who Left Football for Math**\
+`John Urschel left the game in part because of health risks. Now he’s scoring points in a new profession, but A.I. looms as a different kind of career hazard.`\
+https://www.nytimes.com/2026/11/26/science/john-urschel-ai-nfl-math.html
+
+**36 Hours in Penang, Malaysia: Things to Do and See**\
+`A new wave of creatives, chefs and hoteliers are drawing inspiration from the region’s multiculturalism.`\
+https://www.nytimes.com/interactive/2026/11/26/travel/things-to-do-penang.html
+
+**How Birds With GPS and Audio Sensors Track Hidden Fishing Boats**\
+`Researchers are using seabirds equipped with GPS and audio gear to detect vessels that operate with no tracking signals and to assess the environmental hazards they pose.`\
+https://www.nytimes.com/2026/11/26/climate/seabirds-tracking-hidden-fishing-boats.html
+
+**How a Thanksgiving Tradition Connects to Presidential Powers**\
+`As President Trump pardons turkeys for Thanksgiving, our chief White House correspondent Peter Baker takes a look back at the history of the tradition and the presidential power of the pardon.`\
+https://www.nytimes.com/video/us/politics/100000011304420/trump-president-turkey-pardon-thanksgiving.html
+
+**‘The Body’ Came Back From the Dead and Became a Hit**\
+`Quinn Shephard discusses the origins of her teen horror drama and how making it changed her relationship with faith.`\
+https://www.nytimes.com/2026/11/26/arts/television/quinn-shephard-interview-the-body-netflix.html
+
+**Trumpism Was Temporary. This Is How We Can Move On.**\
+`Voluntary alliances are more powerful than those imposed by powerful leaders.`\
+https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
+
+**At the Barclays Center, Fans Can Experience Some of the Finest Wines in the World**\
+`Few sports arenas emphasize wine like Barclays, which offers grand cru Burgundy, Champagne and much more, sponsors events and has a wine club.`\
+https://www.nytimes.com/2026/11/26/dining/drinks/wine-basketball-barclays-center.html
+
+**Bipartisan Desire to Regulate A.I. Faces Obstacles in Congress**\
+`Members of both parties say they want to tackle artificial intelligence policy, but the slow pace of legislating and turf battles could stand in the way.`\
+https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.html
+
+**To Many, Turkeys Are Dinner. To These Artists, They’re the Perfect Muse.**\
+`Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
+https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
+
+**Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
+`An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
+https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
+
+**Our Favorite Kids’ Books for Holiday Gifts**\
+`Need the perfect holiday gift? Try one of these recent releases.`\
+https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
+
+**After Cyberattacks and Bomb Threats Hit Europe, Survivalism Goes Mainstream**\
+`More governments in Europe are telling citizens to prepare for emergencies. After unexpected disruptions, many are listening.`\
+https://www.nytimes.com/2026/11/26/world/europe/europe-preppers-survivalists-cyberattacks-threats.html
+
+**Storage Unit Costs Are Rarely Worth Paying**\
+`A quarter of Americans use off-site storage, but professional organizers warn against it.`\
+https://www.nytimes.com/2026/11/26/realestate/storage-unit-costs.html
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a four-bedroom house in Ridgefield, Conn., and a two-bedroom co-op in Eastchester, N.Y.`\
+https://www.nytimes.com/2026/11/26/realestate/housing-market-near-nyc.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Greenwich Village, Beekman and on the Grand Concourse.`\
+https://www.nytimes.com/2026/11/26/realestate/housing-market-nyc.html
+
+**The Next Fed Leader Should Be a Bot**\
+`A computer can run America’s central bank better than humans can.`\
+https://www.nytimes.com/2026/11/26/opinion/federal-reserve-artifical-intelligence.html
+
+**Five Homegrown Talents Move Onstage at Art Basel Miami Beach**\
+`For South Florida’s local artists, the annual fair, beginning Dec. 2, can be a mixed blessing. Here are five of Miami’s most promising, deserving of the spotlight.`\
+https://www.nytimes.com/2026/11/26/arts/design/five-homegrown-talents-move-onstage-at-art-basel-miami-beach.html
+
+**How ‘The Nutcracker’ Angels Create Perfect Formations**\
+`The young performers in “George Balanchine’s The Nutcracker” may make the choreography look effortless, but mastering it is no easy feat. The young Angels spend weeks rehearsing and perfecting each movement to bring the holiday show to life.`\
+https://www.nytimes.com/video/arts/dance/100000011292841/nutcracker-angels-ballet-holidays.html
+
+**Trump Lost My Brother!**\
+`Two miracles: my brother’s health and his disillusionment.`\
+https://www.nytimes.com/2026/11/26/opinion/trump-maureen-dowd-brother.html
+
+**‘Avengers’ and ‘Dune’ Have Hollywood Dreaming of a December Windfall**\
+`“Avengers: Doomsday” and “Dune: Part Three” are expected to open to at least $350 million in ticket sales. Some forecasts approach $500 million.`\
+https://www.nytimes.com/2026/11/26/business/media/avengers-infinity-vision-dune.html
+
+**A Cree Painter Upends Vermeer at the Frick**\
+`The painter Kent Monkman digs into the mysteries of Vermeer’s “Officer and Laughing Girl” for his irreverent reinterpretation — and institutional critique.`\
+https://www.nytimes.com/2026/11/26/arts/design/kent-monkman-cree-painter-vermeer-frick.html
+
+**‘Who Is Still Alive’ Review: Memories of Gaza From Those Who Escaped**\
+`Nine Palestinians who fled to Egypt during the war gather to share stories of their homeland in this mournful documentary.`\
+https://www.nytimes.com/2026/11/26/movies/who-is-still-alive-review.html
+
+**Jewelry in Every Color of the Rainbow**\
+`For this holiday season, consider glittering accessories that are red-hot — and blue and green and gold.`\
+https://www.nytimes.com/2026/11/26/t-magazine/high-jewelry-rainbow.html
+
+**The New Itty-Bitty Fiat Is a Nifty Fit for the City**\
+`The Topolino is so small it’s street-legal only on roads with low speed limits. The electric motor is tiny, and the range is limited. But there’s still lots to like.`\
+https://www.nytimes.com/2026/11/26/business/fiat-topolino-electric-review.html
+
+**The Giant Batteries Revolutionizing America’s Power Supply**\
+`It is time for America to hoard electricity and unleash it on the economy.`\
+https://www.nytimes.com/2026/11/26/opinion/electricity-batteries-commodity-economy.html
+
+**Trump Tried to Cripple Huawei. Now It Is Central to China’s A.I. Push.**\
+`As China’s access to Nvidia’s advanced chips shrinks, Huawei is becoming increasingly indispensable to Beijing despite a wide technological gap with its American rival.`\
+https://www.nytimes.com/2026/11/26/business/huawei-trump-china-ai.html
+
+**Like Nicole Kidman, They’re the Stars of an Oft-Memed AMC Ad**\
+`A collaboration with Coca-Cola hit screens in 2024 and has made microcelebrities of its little-known performers.`\
+https://www.nytimes.com/2026/11/26/movies/amc-theaters-coke-light-speed-ad.html
+
+**Jess Sims, of Peloton and ESPN, Likes to Feel the Burn**\
+`For this former schoolteacher, running a Peloton workout and reporting on college football for ESPN are all in a weekend’s work.`\
+https://www.nytimes.com/2026/11/26/style/jess-sims-peloton-college-gameday.html
+
 **Will This $252 Million ‘Museum City’ Be a Boon, or a Boondoggle?**\
 `Built inside a former Brussels car showroom with help from the Centre Pompidou, the Kanal arts center is finally opening after years of controversy.`\
 https://www.nytimes.com/2026/11/26/arts/design/kanal-centre-pompidou-brussels.html
@@ -57,140 +197,4 @@ https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
 **Seth Meyers Drags Jensen Huang’s Daily 90-Minute Therapy Sessions**\
 `“You’re in therapy for an hour and a half every day? Well, now everything’s falling into place — you’d have to sell secrets to China to afford that much therapy,” Meyers said.`\
 https://www.nytimes.com/2026/11/26/arts/television/late-night-meyers-huang-therapy-fallon.html
-
-**Hong Kong Grieves Fire Victims Under Watchful Eye of Authorities**\
-`The city’s residents quietly mourned the 168 lives lost in a high-rise complex blaze a year ago, as officials warned against using the disaster to sow division.`\
-https://www.nytimes.com/2026/11/26/world/asia/hong-kong-fire-wang-fuk-court-anniversary.html
-
-**Thanksgiving Highlights Rising Hunger Across New York Amid SNAP Cuts**\
-`With the affordability crisis and cuts to food stamps, pantries are seeing more clients and some people say they can’t afford groceries in their neighborhoods.`\
-https://www.nytimes.com/2026/11/26/nyregion/food-insecurity-snap-thanksgiving.html
-
-**NYT Spelling Bee Answers for November 26, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/26/crosswords/spelling-bee-forum.html
-
-**I Worry the Spanish Are Nostalgic for Franco**\
-`The elections this week in Spain may usher in a new era of right wing governance.`\
-https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
-
-**Flights at Miami Airport Are Disrupted After FedEx Jet Overshoots Runway**\
-`The plane overran a runway after landing at Miami International Airport on Wednesday, and stopped near a fence. FedEx said there were no injuries.`\
-https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
-
-**Quote of the Day: How to Get a Giant Parade Off the Ground**\
-`Quotation of the Day for Thursday, November 26, 2026.`\
-https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
-
-**London Banning Noise and Capping Fares for Its Pedicabs**\
-`Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
-https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
-
-**They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
-`After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
-https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
-
-**Was Japan Prime Minister Takaichi Snubbed at China’s Big Summit?**\
-`Images show the differences between the welcomes afforded to Sanae Takaichi and other world leaders in Shenzhen, as some officials in Japan cry foul.`\
-https://www.nytimes.com/2026/11/26/world/asia/japan-china-takaichi-snubbed.html
-
-**Can Roof Tiles Reduce Indoor Heat? India Is Finding Out.**\
-`As temperatures soar, researchers are experimenting with ways to make life more comfortable for the most vulnerable.`\
-https://www.nytimes.com/2026/11/26/world/asia/india-extreme-heat-housing-roof-tiles.html
-
-**The Unbearable Heat of Delhi’s Summer Nights**\
-`Residents of India’s dense capital tried switching off fridges and leaving doors open all night to cope with rising temperatures, which affect their sleep, health and ability to work.`\
-https://www.nytimes.com/2026/11/26/world/asia/the-unbearable-heat-of-delhis-summer-nights.html
-
-**In China, the ‘Female Gaze’ Is Driving a New Entertainment Boom**\
-`From male dancers to handsome hiking companions, a thriving entertainment industry is catering to female fantasies and testing the limits of Beijing’s tolerance.`\
-https://www.nytimes.com/2026/11/26/business/china-women-spending-entertainment.html
-
-**From the Front Page: Terrorist Attacks Begin in Mumbai on Nov. 26, 2008**\
-`The coordinated assaults targeted hotels, a train station and other sites popular with tourists, killing more than 160 people in India.`\
-https://www.nytimes.com/2026/11/26/learning/from-the-front-page-terrorist-attacks-begin-in-mumbai-on-nov-26-2008.html
-
-**Along Each Coast, Weather Puts a Damper on Thanksgiving**\
-`Disrupted parades and a canceled turkey trot are among the concerns making for a dispirited holiday.`\
-https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-parade.html
-
-**NYT Crossword Answers for Nov. 26, 2026**\
-`Sam Koperwas and Jeff Chen’s puzzle speaks with its mouth full.`\
-https://www.nytimes.com/2026/11/25/crosswords/daily-puzzle-2026-11-26.html
-
-**‘The Lowdown’ Season 2 Episode 8 Recap: A Good Life, a True Life**\
-`In a stunning season finale, Lee wins, loses, makes some new friends and says some goodbyes.`\
-https://www.nytimes.com/2026/11/25/arts/television/the-lowdown-season-finale-recap.html
-
-**The Thanksgiving Parade on Saturday. Can They Do That?**\
-`After more than a century of tradition, the Macy’s Thanksgiving Day Parade is suddenly flexible. Sure, this is fine.`\
-https://www.nytimes.com/2026/11/25/nyregion/thanksgiving-parade-new-york-postponed.html
-
-**Macy’s Thanksgiving Day Parade Sours Holiday Plans for Tourists**\
-`With a powerful storm bearing down on New York, the parade was postponed to Saturday, by which time many of the city’s visitors planned to be elsewhere.`\
-https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-tourists.html
-
-**Macy’s Thanksgiving Day Parade Upends Plans and Adds Costs for Marching Bands**\
-`Nine marching bands were set to perform in the Macy’s Thanksgiving Day Parade. The decision to move the event to Saturday posed new logistical challenges for them.`\
-https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-marching-bands.html
-
-**For Macy’s Thanksgiving Day Parade, Drying Out Balloons is a Lengthy Process**\
-`Workers spent hours drying out clothes and other showpieces two years ago during a rainy holiday parade.`\
-https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-costumes-balloons.html
-
-**Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
-`A preliminary injunction halted an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
-https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html
-
-**Trump Rejoiced in the Market’s Nvidia Surge. It Didn’t Last Long.**\
-`The retreat of the stock market in recent days shows how President Trump’s push to reinstall the company’s chief executive has collided with the realities of his other policies.`\
-https://www.nytimes.com/2026/11/25/us/politics/trump-nvidia-stock-market.html
-
-**Andy Taylor, Duran Duran’s ‘Live-Wire’ Guitarist, Dies at 65**\
-`He helped define the sound, and the look, of the 1980s with MTV-ready hits like “Rio” and “Hungry Like the Wolf.”`\
-https://www.nytimes.com/2026/11/25/arts/music/andy-taylor-duran-duran-dead.html
-
-**Africa C.D.C. Chief Faces Turmoil Over Management Amid Ebola Crisis**\
-`Scrutiny has fallen on Dr. Jean Kaseya, the director general of the Africa Centers for Disease Control and Prevention, after reports of staff intimidation and mismanagement of funds.`\
-https://www.nytimes.com/2026/11/25/world/africa/acdc-kaseya-staff-ebola.html
-
-**My Partner’s Wife Has Alzheimer’s**\
-`When Deb Copaken met the love of her life, he was navigating the Alzheimer’s diagnosis his wife, Bridget, had received. Now, the three of them live together, and Deb visits Bridget daily to care for her.`\
-https://www.nytimes.com/video/podcasts/100000011308382/my-partners-wife-has-alzheimers.html
-
-**Veruschka Was a Supermodel Before the Term Was Invented**\
-`Her look made her a celebrity before models were known as celebrities.`\
-https://www.nytimes.com/2026/11/25/style/veruschka-supermodel-obituary.html
-
-**Veruschka, One of the World’s First Supermodels, Has Died**\
-`She rocketed to fame in Vogue and other magazines during the Swinging Sixties and had a memorable cameo in Antonioni’s hit film “Blow-Up.” She was 87.`\
-https://www.nytimes.com/2026/11/25/style/veruschka-dead.html
-
-**Section of Pacifica Pier in California Collapses Into Ocean**\
-`A portion of a pier in Pacifica, Calif., collapsed into the ocean on Wednesday amid high tides along the West Coast.`\
-https://www.nytimes.com/video/weather/100000011309085/section-of-pacifica-pier-in-california-collapses-into-ocean.html
-
-**The Macy’s Thanksgiving Day Parade Is Postponed**\
-`Also, scientists fan out across Iowa to test for lead. Here’s the latest at the end of Wednesday.`\
-https://www.nytimes.com/2026/11/25/briefing/macys-thanksgiving-day-parade.html
-
-**Setting Up the Macy’s Thanksgiving Day Parade is Quite a Process. So Is Undoing it.**\
-`After a long preparation for the 100th anniversary procession, having time to rest will have to wait a few days for the crews.`\
-https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-parade-preparation-setup.html
-
-**Gordon Ramsay to Host Revival of BBC’s ‘Top Gear’**\
-`The British car show “Top Gear” paused production three years ago and is returning with a new host in 2028, the BBC said.`\
-https://www.nytimes.com/2026/11/25/arts/television/gordon-ramsay-top-gear-revival.html
-
-**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
-`The Macy’s Thanksgiving Day Parade will be postponed until Saturday because of inclement weather. It will be the first time in the parade’s 100-year history that the event will not take place on Thanksgiving Day.`\
-https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postponed.html
-
-**Deadly Truck Fire in Egypt Kills Dozens, Officials Say**\
-`A fire near Cairo, Egypt, killed dozens and injured several after a truck carrying petroleum products crashed and ignited on Wednesday, officials said.`\
-https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
-
-**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
-`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
-https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
 
