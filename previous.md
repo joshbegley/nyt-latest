@@ -1,3 +1,7 @@
+**Along Each Coast, Weather Puts a Damper on Thanksgiving**\
+`Disrupted parades and a canceled turkey trot are among the concerns making for a dispirited holiday.`\
+https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-parade.html
+
 **NYT Crossword Answers for Nov. 26, 2026**\
 `Sam Koperwas and Jeff Chen’s puzzle speaks with its mouth full.`\
 https://www.nytimes.com/2026/11/25/crosswords/daily-puzzle-2026-11-26.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/11/25/us/iowa-detonation-lead-what-next.html
 **Buffalo Cauliflower Dip**\
 `The whole dip — from caramelizing cauliflower to stirring together the creamy hot sauce base and baking on the generous layer of cheese — is made in one pan.`\
 https://www.nytimes.com/video/dining/100000011307923/buffalo-cauliflower-dip.html
-
-**Cranberry Grilled Cheese**\
-`Somehow, there is always leftover cranberry sauce after all of the other Thanksgiving leftovers have disappeared. The classic grilled cheese sandwich comes to the rescue, welcoming any cranberry sauce you have on hand into its warm, melty embrace.`\
-https://www.nytimes.com/video/dining/100000011308097/cranberry-grilled-cheese.html
 

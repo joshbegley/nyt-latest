@@ -1,3 +1,7 @@
+**Along Each Coast, Weather Puts a Damper on Thanksgiving**\
+`Disrupted parades and a canceled turkey trot are among the concerns making for a dispirited holiday.`\
+https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-parade.html
+
 **Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
 `For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons.`\
 https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
