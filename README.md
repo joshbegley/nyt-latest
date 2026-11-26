@@ -23,7 +23,7 @@ https://www.nytimes.com/2026/11/26/crosswords/strands-sidekick-999.html
 https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 
 **Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
-`The drop was largely driven by fewer people arriving from outside Europe. It reflects government action to restrict immigration after a public backlash.`\
+`The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
 **Live Updates: Thanksgiving Storm Threatens the East Coast**\
