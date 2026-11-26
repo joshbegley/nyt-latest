@@ -1,3 +1,7 @@
+**In Praise of My Typewriter**\
+`The A.I. projects editor at The New York Times uses chatbots every day. But when it’s time to write, he reaches for an Olivetti Lettera 22 from the 1950s.`\
+https://www.nytimes.com/2026/11/26/world/ai-typewriter-russia-brazil-mirumi.html
+
 **Marching Illini Band Performs in Times Square**\
 `The Marching Illini of the University of Illinois Urbana-Champaign held a scheduled pep rally in Times Square, hours after the Macy’s Thanksgiving Day Parade was postponed.`\
 https://www.nytimes.com/video/us/100000011310731/nyc-metro-marching-band-macys-parade.html
@@ -182,15 +186,11 @@ https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.htm
 `Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
 https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
 
-**Our Favorite Kids’ Books for Holiday Gifts**\
-`Need the perfect holiday gift? Try one of these recent releases.`\
-https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
-
 **Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
 `An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
 https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
 
-**After Cyberattacks and Bomb Threats Hit Europe, Survivalism Goes Mainstream**\
-`More governments in Europe are telling citizens to prepare for emergencies. After unexpected disruptions, many are listening.`\
-https://www.nytimes.com/2026/11/26/world/europe/europe-preppers-survivalists-cyberattacks-threats.html
+**Our Favorite Kids’ Books for Holiday Gifts**\
+`Need the perfect holiday gift? Try one of these recent releases.`\
+https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
 

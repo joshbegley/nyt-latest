@@ -1,3 +1,7 @@
+**In Praise of My Typewriter**\
+`The A.I. projects editor at The New York Times uses chatbots every day. But when it’s time to write, he reaches for an Olivetti Lettera 22 from the 1950s.`\
+https://www.nytimes.com/2026/11/26/world/ai-typewriter-russia-brazil-mirumi.html
+
 **Trumpism Was a Glitch. The World Must Move On.**\
 `Voluntary alliances are more powerful than those imposed by powerful leaders.`\
 https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
