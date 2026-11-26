@@ -1,3 +1,7 @@
+**Thanksgiving Is Back on the Menu for Francesca Hong, the Failed Wisconsin Governor Candidate**\
+`Francesca Hong, who took heat over a social media post condemning the holiday during her run for the Democratic nomination, now has regrets — and is laughing it all off.`\
+https://www.nytimes.com/2026/11/26/us/politics/thanksgiving-wisconsin-governor-francesca-hong.html
+
 **New Yorkers and Tourists Try to Salvage a Parade Day Postponed by Rain**\
 `Wind and rain grounded the beloved balloons that typically dominate the Thanksgiving skies, leaving the streets along the parade route mostly deserted on Thursday.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-day-parade-empty-streets.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/dining/drinks/wine-basketball-barclays-center
 **Bipartisan Desire to Regulate A.I. Faces Obstacles in Congress**\
 `Members of both parties say they want to tackle artificial intelligence policy, but the slow pace of legislating and turf battles could stand in the way.`\
 https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.html
-
-**To Many, Turkeys Are Dinner. To These Artists, They’re the Perfect Muse.**\
-`Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
-https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
 
