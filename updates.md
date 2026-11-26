@@ -1,3 +1,7 @@
+**Giving Thanks**\
+`Everything is going to be all right.`\
+https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
+
 **Today’s Wordle Hints for November 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
 https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
