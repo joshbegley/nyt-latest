@@ -1,3 +1,7 @@
+**Hoor Al-Qasimi to Be First Arab Curator of Venice Biennale**\
+`The director of the Sharjah Biennial in the United Arab Emirates, she will organize the 62nd edition of the world’s oldest and best-attended contemporary art exhibition in 2028.`\
+https://www.nytimes.com/2026/11/26/arts/design/venice-biennale-2028-curator-hoor-al-qasimi.html
+
 **Nvidia Halts Sales to Southeast Asia as U.S. Tightens China Restrictions**\
 `The shipping halt, which hit four countries, follows a new U.S. rule that would require licenses for companies in the countries to buy advanced A.I. chips.`\
 https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/arts/dance/new-york-city-ballet-the-nutcracke
 **Holiday Gift Ideas: From Movie Favorites to Table Salt**\
 `Sarah and Philip Andelman put their creative backgrounds to work in recommending gifts for this holiday season.`\
 https://www.nytimes.com/2026/11/26/fashion/gifts-sarah-and-philip-andelman-paris.html
-
-**Art Could Be on Your Shopping List**\
-`Experts say it might be hard to choose the right drawing or textile, but the memories would be well worth the effort.`\
-https://www.nytimes.com/2026/11/26/fashion/gifts-artworks.html
 
