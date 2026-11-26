@@ -1,3 +1,7 @@
+**Trump Rejoiced in the Market’s Nvidia Surge. It Didn’t Last Long.**\
+`The retreat of the stock market in recent days shows how President Trump’s push to reinstall the company’s chief executive has collided with the realities of his other policies.`\
+https://www.nytimes.com/2026/11/25/us/politics/trump-nvidia-stock-market.html
+
 **Andy Taylor, Duran Duran’s ‘Live-Wire’ Guitarist, Dies at 65**\
 `He helped define the sound, and the look, of the 1980s with MTV-ready hits like “Rio” and “Hungry Like the Wolf.”`\
 https://www.nytimes.com/2026/11/25/arts/music/andy-taylor-duran-duran-dead.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-
 **Fort Hood Shooter Asks Judge to Delay His Execution by Firing Squad**\
 `Nidal Malik Hasan, who killed 13 people at the Army base in 2009, said he wanted to challenge his conviction and death sentence, which is to be carried out next week.`\
 https://www.nytimes.com/2026/11/25/us/nidal-malik-hasan-fort-hood-execution-stay.html
-
-**Lukoil to Sell Foreign Assets, but Not to Kushner and Witkoff Associates**\
-`Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the two Trump envoys pulled out because of political winds.`\
-https://www.nytimes.com/2026/11/25/us/politics/lukoil-deal.html
 
