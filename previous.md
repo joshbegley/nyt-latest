@@ -1,3 +1,7 @@
+**Flights at Miami Airport Are Disrupted After FedEx Jet Overshoots Runway**\
+`The plane overran a runway after landing at Miami International Airport on Wednesday, and stopped near a fence. FedEx said there were no injuries.`\
+https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
+
 **Quote of the Day: How to Get a Giant Parade Off the Ground**\
 `Quotation of the Day for Thursday, November 26, 2026.`\
 https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/us/politics/death-penalty-sept-11-case-guanta
 **My Balloon Training for the Macy’s Thanksgiving Day Parade**\
 `For the 100th parade, our host flew one of its icons.`\
 https://www.nytimes.com/2026/11/25/podcasts/the-daily/dont-let-go-my-balloon-training-for-the-macys-thanksgiving-day-parade.html
-
-**Traveling to Bhutan in 2026: Wood-Fired Pizzas and Monks With Cellphones**\
-`The view of the Himalayan country as ancient and immutable is being challenged by young Bhutanese who are opening restaurants and shops, and getting beyond “gross national happiness.” A traveler explores.`\
-https://www.nytimes.com/2026/11/25/travel/bhutan-travel.html
 
