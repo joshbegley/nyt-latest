@@ -1,3 +1,7 @@
+**Marching Illini Band Performs in Times Square**\
+`The Marching Illini of the University of Illinois Urbana-Champaign held a scheduled pep rally in Times Square, hours after the Macy’s Thanksgiving Day Parade was postponed.`\
+https://www.nytimes.com/video/us/100000011310731/nyc-metro-marching-band-macys-parade.html
+
 **Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
 `Nearly 1,500 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
 https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html
