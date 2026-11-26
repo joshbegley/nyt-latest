@@ -1,3 +1,11 @@
+**Jensen Huang Is Back, and So Is His Plaque at Denny’s**\
+`The chain said it had restored a plaque honoring Mr. Huang above a booth in San Jose, Calif., after he was reinstated at Nvidia, the company he is said to have co-founded while eating there.`\
+https://www.nytimes.com/2026/11/26/business/dennys-jensen-huang-nvidia-plaque.html
+
+**European Central Bank Chooses Pablo Hernández de Cos as Next President**\
+`The early exit of Christine Lagarde as president of the European Central Bank, and two looming vacancies on the board, will make way for new leadership at the institution.`\
+https://www.nytimes.com/2026/11/26/business/ecb-pablo-hernandez-de-cos.html
+
 **The Army Knew Much Earlier of the Explosive Risk in Iowa, Evidence Suggests**\
 `Efforts to get rid of unstable explosives at an Iowa plant began more than a year ago but weren’t completed at that time, setting the stage for Wednesday’s controversial blast.`\
 https://www.nytimes.com/2026/11/26/us/iowa-lead-ammunition-stockpile-history.html
