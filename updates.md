@@ -1,3 +1,7 @@
+**Trumpism Was a Glitch. The World Must Move On.**\
+`Voluntary alliances are more powerful than those imposed by powerful leaders.`\
+https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
+
 **Marching Illini Band Performs in Times Square**\
 `The Marching Illini of the University of Illinois Urbana-Champaign held a scheduled pep rally in Times Square, hours after the Macy’s Thanksgiving Day Parade was postponed.`\
 https://www.nytimes.com/video/us/100000011310731/nyc-metro-marching-band-macys-parade.html
