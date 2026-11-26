@@ -1,3 +1,11 @@
+**Families Grappling With Loss a Year After Hong Kong Fire**\
+`Families are grieving a year after a fire that killed 168 people at the Wang Fuk Court housing complex in Hong Kong.`\
+https://www.nytimes.com/video/world/asia/100000011309957/hk-fire-anniversary.html
+
+**Andy Taylor, Duran Duran’s Guitarist, Dies at 65**\
+`The British guitarist helped define the sound of the 1980s with hits like “Hungry Like the Wolf” and “Girls on Film.”`\
+https://www.nytimes.com/video/obituaries/100000011309835/andy-taylor-duran-duran-dead.html
+
 **Attack Blamed on ISIS Kills 2 Syrian Security Force Members**\
 `The assault on a security headquarters in the northeastern city of Hasakah was carried out by four militants who local officials linked to the Islamic State.`\
 https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
