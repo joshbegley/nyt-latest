@@ -1,3 +1,7 @@
+**The Army Knew Much Earlier of the Explosive Risk in Iowa, Evidence Suggests**\
+`Efforts to get rid of unstable explosives at an Iowa plant began more than a year ago but weren’t completed at that time, setting the stage for Wednesday’s controversial blast.`\
+https://www.nytimes.com/2026/11/26/us/iowa-lead-ammunition-stockpile-history.html
+
 **Trump Administration’s Cuts to SNAP Threaten Free School Meals**\
 `The Trump administration’s cuts and proposed regulatory changes to the Supplemental Nutrition Assistance Program would have consequences for school lunch and breakfast.`\
 https://www.nytimes.com/2026/11/26/us/politics/snap-food-stamps-school-meals.html
