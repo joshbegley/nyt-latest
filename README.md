@@ -1,3 +1,11 @@
+**Trump Administration’s Cuts to SNAP Threaten Free School Meals**\
+`The Trump administration’s cuts and proposed regulatory changes to the Supplemental Nutrition Assistance Program would have consequences for school lunch and breakfast.`\
+https://www.nytimes.com/2026/11/26/us/politics/snap-food-stamps-school-meals.html
+
+**Why the Georgia Tech Couple Became Another Viral TV Moment**\
+`A young couple’s argument captured by an ESPN college football broadcast was the latest social media frenzy set off by a roving camera during a live event.`\
+https://www.nytimes.com/2026/11/26/arts/television/georgia-tech-couple-fan-camera-ethics.html
+
 **Who Picked This Gift? My A.I. Holiday Shopper.**\
 `From virtual agents on A.I. platforms to store helpers like Walmart’s Sparky, consumers are using the technology to save money and time.`\
 https://www.nytimes.com/2026/11/26/business/holiday-shopping-ai-agents.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/26/arts/design/kent-monkman-cree-painter-vermeer
 **‘Who Is Still Alive’ Review: Memories of Gaza From Those Who Escaped**\
 `Nine Palestinians who fled to Egypt during the war gather to share stories of their homeland in this mournful documentary.`\
 https://www.nytimes.com/2026/11/26/movies/who-is-still-alive-review.html
-
-**Jewelry in Every Color of the Rainbow**\
-`For this holiday season, consider glittering accessories that are red-hot — and blue and green and gold.`\
-https://www.nytimes.com/2026/11/26/t-magazine/high-jewelry-rainbow.html
-
-**The Fiat Topolino Is a Nifty Fit for the City: Review**\
-`The Topolino is so small it’s street-legal only on roads with low speed limits. The electric motor is tiny, and the range is limited. But there’s still lots to like.`\
-https://www.nytimes.com/2026/11/26/business/fiat-topolino-electric-review.html
 
