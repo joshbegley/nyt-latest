@@ -1,3 +1,7 @@
+**A City Fears the Loss of Its Pier After a Section Collapsed Into the Sea**\
+`The famed pier in Pacifica, Calif., had long been crumbling. This week, a portion of it succumbed to fierce waves and toppled into the sea.`\
+https://www.nytimes.com/2026/11/26/us/pacifica-pier-collapse-el-nino-king-tides.html
+
 **One Dead After Shooting Mars High School Football Tradition**\
 `The authorities said that Joaquin J. Morris, 18, was killed in a shooting that interrupted a longtime sporting event that dates to the 1930s in the New Jersey suburbs.`\
 https://www.nytimes.com/2026/11/26/nyregion/teaneck-shooting-football-game-turkey-bowl.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/climate/seabirds-tracking-hidden-fishing-boat
 **How a Thanksgiving Tradition Connects to Presidential Powers**\
 `As President Trump pardons turkeys for Thanksgiving, our chief White House correspondent Peter Baker takes a look back at the history of the tradition and the presidential power of the pardon.`\
 https://www.nytimes.com/video/us/politics/100000011304420/trump-president-turkey-pardon-thanksgiving.html
-
-**‘The Body’ Came Back From the Dead and Became a Hit**\
-`Quinn Shephard discusses the origins of her teen horror drama and how making it changed her relationship with faith.`\
-https://www.nytimes.com/2026/11/26/arts/television/quinn-shephard-interview-the-body-netflix.html
 
