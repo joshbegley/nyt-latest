@@ -1,3 +1,7 @@
+**Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
+`A preliminary injunction halts an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
+https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html
+
 **Trump Rejoiced in the Market’s Nvidia Surge. It Didn’t Last Long.**\
 `The retreat of the stock market in recent days shows how President Trump’s push to reinstall the company’s chief executive has collided with the realities of his other policies.`\
 https://www.nytimes.com/2026/11/25/us/politics/trump-nvidia-stock-market.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-s
 **How the Nvidia Scandal Fits Into a Chinese Spy Campaign**\
 `China’s top civilian spy agency was behind a yearslong campaign to find access to Nvidia’s most advanced computer chips. Julian E. Barnes, a national security correspondent for The New York Times, explains what makes the campaign such a serious threat to American national security.`\
 https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-into-a-chinese-spy-campaign.html
-
-**Fort Hood Shooter Asks Judge to Delay His Execution by Firing Squad**\
-`Nidal Malik Hasan, who killed 13 people at the Army base in 2009, said he wanted to challenge his conviction and death sentence, which is to be carried out next week.`\
-https://www.nytimes.com/2026/11/25/us/nidal-malik-hasan-fort-hood-execution-stay.html
 

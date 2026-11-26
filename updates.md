@@ -1,3 +1,7 @@
+**Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
+`A preliminary injunction halts an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
+https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html
+
 **Trump Rejoiced in the Market’s Nvidia Surge. It Didn’t Last Long.**\
 `The retreat of the stock market in recent days shows how President Trump’s push to reinstall the company’s chief executive has collided with the realities of his other policies.`\
 https://www.nytimes.com/2026/11/25/us/politics/trump-nvidia-stock-market.html
