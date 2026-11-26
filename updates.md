@@ -1,3 +1,7 @@
+**Doug Ford Says He’d Use a Gun to Protect His Family**\
+`Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
+https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
+
 **Thanksgiving Is Back on the Menu for Francesca Hong, the Failed Wisconsin Governor Candidate**\
 `Francesca Hong, who took heat over a social media post condemning the holiday during her run for the Democratic nomination, now has regrets — and is laughing it all off.`\
 https://www.nytimes.com/2026/11/26/us/politics/thanksgiving-wisconsin-governor-francesca-hong.html
