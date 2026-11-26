@@ -1,3 +1,35 @@
+**Quote of the Day: How to Get a Giant Parade Off the Ground**\
+`Quotation of the Day for Thursday, November 26, 2026.`\
+https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
+
+**London Banning Noise and Capping Fares for Its Pedicabs**\
+`Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
+https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
+
+**They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
+`After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
+https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
+
+**Was Japan Prime Minister Takaichi Snubbed at China’s Big Summit?**\
+`Images show the differences between the welcomes afforded to Sanae Takaichi and other world leaders in Shenzhen, as some officials in Japan cry foul.`\
+https://www.nytimes.com/2026/11/26/world/asia/japan-china-takaichi-snubbed.html
+
+**Can Roof Tiles Reduce Indoor Heat? India Is Finding Out.**\
+`As temperatures soar, researchers are experimenting with ways to make life more comfortable for the most vulnerable.`\
+https://www.nytimes.com/2026/11/26/world/asia/india-extreme-heat-housing-roof-tiles.html
+
+**The Unbearable Heat of Delhi’s Summer Nights**\
+`Residents of India’s dense capital tried switching off fridges and leaving doors open all night to cope with rising temperatures, which affect their sleep, health and ability to work.`\
+https://www.nytimes.com/2026/11/26/world/asia/the-unbearable-heat-of-delhis-summer-nights.html
+
+**In China, the ‘Female Gaze’ Is Driving a New Entertainment Boom**\
+`From male dancers to handsome hiking companions, a thriving entertainment industry is catering to female fantasies and testing the limits of Beijing’s tolerance.`\
+https://www.nytimes.com/2026/11/26/business/china-women-spending-entertainment.html
+
+**From the Front Page: Terrorist Attacks Begin in Mumbai on Nov. 26, 2008**\
+`The coordinated assaults targeted hotels, a train station and other sites popular with tourists, killing more than 160 people in India.`\
+https://www.nytimes.com/2026/11/26/learning/from-the-front-page-terrorist-attacks-begin-in-mumbai-on-nov-26-2008.html
+
 **Along Each Coast, Weather Puts a Damper on Thanksgiving**\
 `Disrupted parades and a canceled turkey trot are among the concerns making for a dispirited holiday.`\
 https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-parade.html

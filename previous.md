@@ -1,3 +1,35 @@
+**Quote of the Day: How to Get a Giant Parade Off the Ground**\
+`Quotation of the Day for Thursday, November 26, 2026.`\
+https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
+
+**London Banning Noise and Capping Fares for Its Pedicabs**\
+`Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
+https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
+
+**They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
+`After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
+https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
+
+**Was Japan Prime Minister Takaichi Snubbed at China’s Big Summit?**\
+`Images show the differences between the welcomes afforded to Sanae Takaichi and other world leaders in Shenzhen, as some officials in Japan cry foul.`\
+https://www.nytimes.com/2026/11/26/world/asia/japan-china-takaichi-snubbed.html
+
+**Can Roof Tiles Reduce Indoor Heat? India Is Finding Out.**\
+`As temperatures soar, researchers are experimenting with ways to make life more comfortable for the most vulnerable.`\
+https://www.nytimes.com/2026/11/26/world/asia/india-extreme-heat-housing-roof-tiles.html
+
+**The Unbearable Heat of Delhi’s Summer Nights**\
+`Residents of India’s dense capital tried switching off fridges and leaving doors open all night to cope with rising temperatures, which affect their sleep, health and ability to work.`\
+https://www.nytimes.com/2026/11/26/world/asia/the-unbearable-heat-of-delhis-summer-nights.html
+
+**In China, the ‘Female Gaze’ Is Driving a New Entertainment Boom**\
+`From male dancers to handsome hiking companions, a thriving entertainment industry is catering to female fantasies and testing the limits of Beijing’s tolerance.`\
+https://www.nytimes.com/2026/11/26/business/china-women-spending-entertainment.html
+
+**From the Front Page: Terrorist Attacks Begin in Mumbai on Nov. 26, 2008**\
+`The coordinated assaults targeted hotels, a train station and other sites popular with tourists, killing more than 160 people in India.`\
+https://www.nytimes.com/2026/11/26/learning/from-the-front-page-terrorist-attacks-begin-in-mumbai-on-nov-26-2008.html
+
 **Along Each Coast, Weather Puts a Damper on Thanksgiving**\
 `Disrupted parades and a canceled turkey trot are among the concerns making for a dispirited holiday.`\
 https://www.nytimes.com/2026/11/25/weather/thanksgiving-weather-storm-parade.html
@@ -157,32 +189,4 @@ https://www.nytimes.com/2026/11/25/podcasts/the-daily/dont-let-go-my-balloon-tra
 **Traveling to Bhutan in 2026: Wood-Fired Pizzas and Monks With Cellphones**\
 `The view of the Himalayan country as ancient and immutable is being challenged by young Bhutanese who are opening restaurants and shops, and getting beyond “gross national happiness.” A traveler explores.`\
 https://www.nytimes.com/2026/11/25/travel/bhutan-travel.html
-
-**The Local: From Little Falls to Boy Throb**\
-`Also, your turkey spottings.`\
-https://www.nytimes.com/2026/11/25/briefing/boy-throb-zachary-sobania.html
-
-**Mamdani Wins Against Landlords in Rent Freeze Lawsuit**\
-`A Manhattan judge handed a victory to Mayor Zohran Mamdani by dismissing a lawsuit filed by landlords over a rent freeze for rent-stabilized apartments.`\
-https://www.nytimes.com/2026/11/25/nyregion/mamdani-rent-freeze-legal-challenge-apartments.html
-
-**Cranberry Butter Swirl**\
-`Holiday cranberry sauce joins forces with the butter dish in this tangy, creamy spread.`\
-https://www.nytimes.com/video/dining/100000011308049/cranberry-butter-swirl.html
-
-**Union Leader Leaves M.T.A. Board After Holding Post from Florida**\
-`Gov. Kathy Hochul had urged John Samuelsen, a transit workers union leader and one of her frequent critics, to resign. Mr. Samuelsen also has a home in Brooklyn.`\
-https://www.nytimes.com/2026/11/25/nyregion/transport-union-resignation-hochul-samuelsen.html
-
-**Footage Shows Army Detonating Toxic Material at Iowa Ammunition Plant**\
-`The army detonated toxic material at an ammunition plant in Iowa on Wednesday. Officials said it will take time to determine whether the explosion released hazardous lead dust.`\
-https://www.nytimes.com/video/us/100000011308100/army-detonation-lead-material-iowa.html
-
-**Iowa Awaits All-Clear as Tests for Lead Continue**\
-`It will take some time for officials to examine the air, water and soil samples for contamination.`\
-https://www.nytimes.com/2026/11/25/us/iowa-detonation-lead-what-next.html
-
-**Buffalo Cauliflower Dip**\
-`The whole dip — from caramelizing cauliflower to stirring together the creamy hot sauce base and baking on the generous layer of cheese — is made in one pan.`\
-https://www.nytimes.com/video/dining/100000011307923/buffalo-cauliflower-dip.html
 
