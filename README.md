@@ -75,7 +75,7 @@ https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postp
 https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
 
 **Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
-`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons. Video by Graham Dickie and Patricia Sulbarán.`\
+`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons.`\
 https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
 
 **Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
