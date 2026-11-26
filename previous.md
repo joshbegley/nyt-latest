@@ -1,3 +1,7 @@
+**The Thanksgiving Parade on Saturday. Can They Do That?**\
+`After more than a century of tradition, the Macy’s Thanksgiving Day Parade is suddenly flexible. Sure, this is fine.`\
+https://www.nytimes.com/2026/11/25/nyregion/thanksgiving-parade-new-york-postponed.html
+
 **Macy’s Thanksgiving Day Parade Sours Holiday Plans for Tourists**\
 `With a powerful storm bearing down on New York, the parade was postponed to Saturday, by which time many of the city’s visitors planned to be elsewhere.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-tourists.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011308062/turkey-stuffing-meatballs.h
 **Roasted Sweet Potatoes With Spicy Green Sauce**\
 `With their rich, velvety flesh and naturally creamy texture, sweet potatoes thrive when paired with bold, contrasting seasonings. Here, they are dusted in a warming blend of cinnamon and cumin before roasting and served alongside an herbaceous and spicy cilantro sauce, which cuts through the comforting sweetness.`\
 https://www.nytimes.com/video/dining/100000011308004/roasted-sweet-potatoes-with-spicy-green-sauce.html
-
-**Chocolate Tahini Mousse Cake**\
-`This elegant dessert consists of a tender, black chocolate cake topped with a maple-tahini mousse and enveloped in a glossy ganache.`\
-https://www.nytimes.com/video/dining/100000011307995/chocolate-tahini-mousse-cake.html
 

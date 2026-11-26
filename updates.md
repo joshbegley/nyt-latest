@@ -1,3 +1,7 @@
+**The Thanksgiving Parade on Saturday. Can They Do That?**\
+`After more than a century of tradition, the Macy’s Thanksgiving Day Parade is suddenly flexible. Sure, this is fine.`\
+https://www.nytimes.com/2026/11/25/nyregion/thanksgiving-parade-new-york-postponed.html
+
 **Macy’s Thanksgiving Day Parade Sours Holiday Plans for Tourists**\
 `With a powerful storm bearing down on New York, the parade was postponed to Saturday, by which time many of the city’s visitors planned to be elsewhere.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-tourists.html
