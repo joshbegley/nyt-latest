@@ -1,3 +1,43 @@
+**Will This $252 Million ‘Museum City’ Be a Boon, or a Boondoggle?**\
+`Built inside a former Brussels car showroom with help from the Centre Pompidou, the Kanal arts center is finally opening after years of controversy.`\
+https://www.nytimes.com/2026/11/26/arts/design/kanal-centre-pompidou-brussels.html
+
+**Our Favorite Books for a Last-Minute Holiday Gift**\
+`Need the perfect holiday gift? Try one of these 2026 releases.`\
+https://www.nytimes.com/2026/11/26/books/books-holiday-gift-guide.html
+
+**What Would Gen Z Like to Receive This Holiday Season?**\
+`A mother of three checks with tastemakers — and her own children — to come up with some suggestions.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-gen-z.html
+
+**In ‘The Nutcracker,’ Magic and Math Make Angels**\
+`These young dancers use precise counting and spacing to bring formations to life at New York City Ballet.`\
+https://www.nytimes.com/2026/11/26/arts/dance/new-york-city-ballet-the-nutcracker-angels-choreography.html
+
+**Holiday Gift Ideas: From Movie Favorites to Table Salt**\
+`Sarah and Philip Andelman put their creative backgrounds to work in recommending gifts for this holiday season.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-sarah-and-philip-andelman-paris.html
+
+**Art Could Be on Your Shopping List**\
+`Experts say it might be hard to choose the right drawing or textile, but the memories would be well worth the effort.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-artworks.html
+
+**His Life Was Meat. Then Came the Alpha-Gal Tick Bite.**\
+`Derek Luhowiak, a farm-to-table butcher and chef, is trying to hold on to his livelihood while dealing with alpha-gal syndrome.`\
+https://www.nytimes.com/2026/11/26/style/butcher-chef-alpha-gal-syndrome.html
+
+**Nate Bargatze’s 5 Favorite Places in Nashville**\
+`The highest-grossing stand-up comedian in America, a Nashville native, shares the spots in and around Music City that put a smile on his face.`\
+https://www.nytimes.com/2026/11/26/travel/nate-bargatze-nashville-things-to-do.html
+
+**Lured by High Salaries, Some Brazilians Were Duped Into Fighting for Russia**\
+`Dozens of Brazilians were sent to the front lines with little training, and the high salaries they were promised, they say, turned out to be illusory.`\
+https://www.nytimes.com/2026/11/26/world/americas/brazil-recruiting-russia-army.html
+
+**Brazilian Duped Into Fighting for Russia: ‘War Is Hell’**\
+`Dozens of Brazilians have joined the Russian army, some say lured by a pair of recruiters promising money and adventure. Here is one soldier’s story.`\
+https://www.nytimes.com/2026/11/26/world/americas/brazil-soldier-ukraine-war.html
+
 **Thanksgiving Parade Balloons Are Deflated in New York**\
 `After the Macy’s Thanksgiving Day Parade was postponed because of a powerful storm, crews worked through the night to deflate balloons before the bad weather arrived.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-parade-balloons-thanksgiving.html
