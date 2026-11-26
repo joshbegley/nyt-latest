@@ -1,3 +1,7 @@
+**Democrats Confront a Familiar Question: How Are You Going to Pay for That?**\
+`Many Democratic plans are unlikely to become law under President Trump. But the party is still grappling with the difficult budget math of its agenda.`\
+https://www.nytimes.com/2026/11/26/business/democrats-congress-agenda-taxes-spending.html
+
 **Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusation**\
 `The actress Charlotte Arnould has accused the French movie star of raping her in 2018. He has denied any wrongdoing in the case.`\
 https://www.nytimes.com/2026/11/26/world/europe/france-depardieu-rape-trial.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/business/huawei-trump-china-ai.html
 **Like Nicole Kidman, They’re the Stars of an Oft-Memed AMC Ad**\
 `A collaboration with Coca-Cola hit screens in 2024 and has made microcelebrities of its little-known performers.`\
 https://www.nytimes.com/2026/11/26/movies/amc-theaters-coke-light-speed-ad.html
-
-**Jess Sims, of Peloton and ESPN, Likes to Feel the Burn**\
-`For this former schoolteacher, running a Peloton workout and reporting on college football for ESPN are all in a weekend’s work.`\
-https://www.nytimes.com/2026/11/26/style/jess-sims-peloton-college-gameday.html
 
