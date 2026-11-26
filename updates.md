@@ -1,3 +1,15 @@
+**NYT Crossword Answers for Nov. 26, 2026**\
+`Sam Koperwas and Jeff Chen’s puzzle speaks with its mouth full.`\
+https://www.nytimes.com/2026/11/25/crosswords/daily-puzzle-2026-11-26.html
+
+**‘The Lowdown’ Season 2 Episode 8 Recap: A Good Life, a True Life**\
+`In a stunning season finale, Lee wins, loses, makes some new friends and says some goodbyes.`\
+https://www.nytimes.com/2026/11/25/arts/television/the-lowdown-season-finale-recap.html
+
+**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+`A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
+https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
+
 **The Thanksgiving Parade on Saturday. Can They Do That?**\
 `After more than a century of tradition, the Macy’s Thanksgiving Day Parade is suddenly flexible. Sure, this is fine.`\
 https://www.nytimes.com/2026/11/25/nyregion/thanksgiving-parade-new-york-postponed.html

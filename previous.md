@@ -1,3 +1,11 @@
+**NYT Crossword Answers for Nov. 26, 2026**\
+`Sam Koperwas and Jeff Chen’s puzzle speaks with its mouth full.`\
+https://www.nytimes.com/2026/11/25/crosswords/daily-puzzle-2026-11-26.html
+
+**‘The Lowdown’ Season 2 Episode 8 Recap: A Good Life, a True Life**\
+`In a stunning season finale, Lee wins, loses, makes some new friends and says some goodbyes.`\
+https://www.nytimes.com/2026/11/25/arts/television/the-lowdown-season-finale-recap.html
+
 **The Thanksgiving Parade on Saturday. Can They Do That?**\
 `After more than a century of tradition, the Macy’s Thanksgiving Day Parade is suddenly flexible. Sure, this is fine.`\
 https://www.nytimes.com/2026/11/25/nyregion/thanksgiving-parade-new-york-postponed.html
@@ -86,7 +94,7 @@ https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-wi
 `Ariel Velasquez-Morales, a native of El Salvador, smiled in a picture with a giant check. The image led immigration agents to him, and he is set for deportation.`\
 https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
 
-**Live Updates: Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
+**Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
 
@@ -177,12 +185,4 @@ https://www.nytimes.com/video/dining/100000011307923/buffalo-cauliflower-dip.htm
 **Cranberry Grilled Cheese**\
 `Somehow, there is always leftover cranberry sauce after all of the other Thanksgiving leftovers have disappeared. The classic grilled cheese sandwich comes to the rescue, welcoming any cranberry sauce you have on hand into its warm, melty embrace.`\
 https://www.nytimes.com/video/dining/100000011308097/cranberry-grilled-cheese.html
-
-**Turkey Stuffing Meatballs**\
-`The meatballs come together much faster and easier than roasting a stuffed turkey, which makes them an easy win for when you have all the Thanksgiving leftovers except for turkey.`\
-https://www.nytimes.com/video/dining/100000011308062/turkey-stuffing-meatballs.html
-
-**Roasted Sweet Potatoes With Spicy Green Sauce**\
-`With their rich, velvety flesh and naturally creamy texture, sweet potatoes thrive when paired with bold, contrasting seasonings. Here, they are dusted in a warming blend of cinnamon and cumin before roasting and served alongside an herbaceous and spicy cilantro sauce, which cuts through the comforting sweetness.`\
-https://www.nytimes.com/video/dining/100000011308004/roasted-sweet-potatoes-with-spicy-green-sauce.html
 
