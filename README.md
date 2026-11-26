@@ -50,8 +50,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Live Updates: Thanksgiving Storm Threatens the East Coast**\
-`(No description)`\
+**Live Updates: Thanksgiving Storm Hits the East Coast**\
+`Torrential rain and strong winds caused power outages from New Jersey to North Carolina and hundreds of flights were delayed or canceled. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
