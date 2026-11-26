@@ -1,3 +1,7 @@
+**Democrats Confront a Familiar Question: How Are You Going to Pay for That?**\
+`Many Democratic plans are unlikely to become law under President Trump. But the party is still grappling with the difficult budget math of its agenda.`\
+https://www.nytimes.com/2026/11/26/business/democrats-congress-agenda-taxes-spending.html
+
 **Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusation**\
 `The actress Charlotte Arnould has accused the French movie star of raping her in 2018. He has denied any wrongdoing in the case.`\
 https://www.nytimes.com/2026/11/26/world/europe/france-depardieu-rape-trial.html

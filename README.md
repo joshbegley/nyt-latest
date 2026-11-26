@@ -1,3 +1,7 @@
+**These Thanksgiving Salads Are Fast and Fresh**\
+`With crisp greens, sharp dressings and crunchy nuts and seeds, they’re just what your holiday table wants.`\
+https://www.nytimes.com/2026/11/26/dining/these-thanksgiving-salads-are-fast-and-fresh.html
+
 **Democrats Confront a Familiar Question: How Are You Going to Pay for That?**\
 `Many Democratic plans are unlikely to become law under President Trump. But the party is still grappling with the difficult budget math of its agenda.`\
 https://www.nytimes.com/2026/11/26/business/democrats-congress-agenda-taxes-spending.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/opinion/electricity-batteries-commodity-econo
 **Trump Tried to Cripple Huawei. Now It Is Central to China’s A.I. Push.**\
 `As China’s access to Nvidia’s advanced chips shrinks, Huawei is becoming increasingly indispensable to Beijing despite a wide technological gap with its American rival.`\
 https://www.nytimes.com/2026/11/26/business/huawei-trump-china-ai.html
-
-**Like Nicole Kidman, They’re the Stars of an Oft-Memed AMC Ad**\
-`A collaboration with Coca-Cola hit screens in 2024 and has made microcelebrities of its little-known performers.`\
-https://www.nytimes.com/2026/11/26/movies/amc-theaters-coke-light-speed-ad.html
 
