@@ -1,3 +1,7 @@
+**Thanksgiving Parade Balloons Are Deflated in New York**\
+`After the Macy’s Thanksgiving Day Parade was postponed because of a powerful storm, crews worked through the night to deflate balloons before the bad weather arrived.`\
+https://www.nytimes.com/2026/11/26/nyregion/macys-parade-balloons-thanksgiving.html
+
 **Families Grappling With Loss a Year After Hong Kong Fire**\
 `Families are grieving a year after a fire that killed 168 people at the Wang Fuk Court housing complex in Hong Kong.`\
 https://www.nytimes.com/video/world/asia/100000011309957/hk-fire-anniversary.html

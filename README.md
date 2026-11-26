@@ -1,3 +1,43 @@
+**Will This $252 Million ‘Museum City’ Be a Boon, or a Boondoggle?**\
+`Built inside a former Brussels car showroom with help from the Centre Pompidou, the Kanal arts center is finally opening after years of controversy.`\
+https://www.nytimes.com/2026/11/26/arts/design/kanal-centre-pompidou-brussels.html
+
+**Our Favorite Books for a Last-Minute Holiday Gift**\
+`Need the perfect holiday gift? Try one of these 2026 releases.`\
+https://www.nytimes.com/2026/11/26/books/books-holiday-gift-guide.html
+
+**What Would Gen Z Like to Receive This Holiday Season?**\
+`A mother of three checks with tastemakers — and her own children — to come up with some suggestions.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-gen-z.html
+
+**In ‘The Nutcracker,’ Magic and Math Make Angels**\
+`These young dancers use precise counting and spacing to bring formations to life at New York City Ballet.`\
+https://www.nytimes.com/2026/11/26/arts/dance/new-york-city-ballet-the-nutcracker-angels-choreography.html
+
+**Holiday Gift Ideas: From Movie Favorites to Table Salt**\
+`Sarah and Philip Andelman put their creative backgrounds to work in recommending gifts for this holiday season.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-sarah-and-philip-andelman-paris.html
+
+**Art Could Be on Your Shopping List**\
+`Experts say it might be hard to choose the right drawing or textile, but the memories would be well worth the effort.`\
+https://www.nytimes.com/2026/11/26/fashion/gifts-artworks.html
+
+**His Life Was Meat. Then Came the Alpha-Gal Tick Bite.**\
+`Derek Luhowiak, a farm-to-table butcher and chef, is trying to hold on to his livelihood while dealing with alpha-gal syndrome.`\
+https://www.nytimes.com/2026/11/26/style/butcher-chef-alpha-gal-syndrome.html
+
+**Nate Bargatze’s 5 Favorite Places in Nashville**\
+`The highest-grossing stand-up comedian in America, a Nashville native, shares the spots in and around Music City that put a smile on his face.`\
+https://www.nytimes.com/2026/11/26/travel/nate-bargatze-nashville-things-to-do.html
+
+**Lured by High Salaries, Some Brazilians Were Duped Into Fighting for Russia**\
+`Dozens of Brazilians were sent to the front lines with little training, and the high salaries they were promised, they say, turned out to be illusory.`\
+https://www.nytimes.com/2026/11/26/world/americas/brazil-recruiting-russia-army.html
+
+**Brazilian Duped Into Fighting for Russia: ‘War Is Hell’**\
+`Dozens of Brazilians have joined the Russian army, some say lured by a pair of recruiters promising money and adventure. Here is one soldier’s story.`\
+https://www.nytimes.com/2026/11/26/world/americas/brazil-soldier-ukraine-war.html
+
 **Thanksgiving Parade Balloons Are Deflated in New York**\
 `After the Macy’s Thanksgiving Day Parade was postponed because of a powerful storm, crews worked through the night to deflate balloons before the bad weather arrived.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-parade-balloons-thanksgiving.html
@@ -150,43 +190,7 @@ https://www.nytimes.com/video/us/100000011309333/macys-thanksgiving-parade-postp
 `A fire near Cairo, Egypt, killed dozens and injured several after a truck carrying petroleum products crashed and ignited on Wednesday, officials said.`\
 https://www.nytimes.com/video/world/africa/100000011309113/egypt-truck-fire-cairo-deadly.html
 
-**Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
-`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons.`\
-https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
-
-**Road Fire Near Cairo Kills Dozens After Petroleum-Laden Truck Crashes**\
-`The blaze killed at least 31 and injured at least 21 near Giza, beside the Nile River, officials said.`\
-https://www.nytimes.com/2026/11/25/world/middleeast/road-fire-near-cairo-kills-dozens-after-petroleum-laden-truck-crashes.html
-
-**A Man in Denver Has Been Throwing Eggs at Waymo Vehicles**\
-`The man, who drove a Toyota Corolla from a fleet leased to Lyft drivers, used orange cones to trap the self-driving vehicles before pelting them with eggs, the police said. No charges have been filed.`\
-https://www.nytimes.com/2026/11/25/us/waymo-denver-egg-throwing.html
-
-**Angelina Jolie and Brad Pitt Settle Lawsuit That Aired Abuse Allegations**\
-`The battle over a winery disclosed details about what Ms. Jolie said was abusive behavior by Mr. Pitt toward her and their children in 2016.`\
-https://www.nytimes.com/2026/11/25/movies/angelina-jolie-brad-pitt-settlement-winery-lawsuit.html
-
-**ICE Arrests Man in Boston Days After He Wins $1 Million Lottery Prize**\
-`Ariel Velasquez-Morales, a native of El Salvador, smiled in a picture with a giant check. The image led immigration agents to him, and he is set for deportation.`\
-https://www.nytimes.com/2026/11/25/us/ice-arrest-boston-lottery-winner.html
-
 **Macy’s Thanksgiving Day Parade Postponed Until Saturday**\
 `A storm is expected to pummel New York City with high winds and heavy rain on Thursday, prompting organizers to delay the event.`\
 https://www.nytimes.com/live/2026/11/25/nyregion/macys-thanksgiving-parade-postponed
-
-**The Good List: 5 Things to Add Delight to Your Day**\
-`Birding in Vice City, ridiculous sandwiches and less narcissism.`\
-https://www.nytimes.com/2026/11/25/briefing/gta-sandwiches-daily.html
-
-**Are You Estranged From a Family Member?**\
-`How do you navigate the holidays when you are estranged from family?`\
-https://www.nytimes.com/2026/11/25/opinion/family-holidays-estranged.html
-
-**We Are Watching Pandemic Backlash on Tape Delay**\
-`The measles crisis is much bigger than MAGA.`\
-https://www.nytimes.com/2026/11/25/opinion/measles-vaccine-outbreak-cases-us.html
-
-**We’re Investigating a $300 Million Mystery**\
-`A $300 million mystery donation could help pay for Washington projects that matter to President Trump. Our investigative reporter David Fahrenthold looks at questions about its source and purpose.`\
-https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-million-mystery.html
 
