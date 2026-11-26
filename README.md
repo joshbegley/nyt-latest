@@ -1,3 +1,7 @@
+**Pregnant Inmate Escapes in New Mexico Prison Transport Vehicle**\
+`The inmate, Rebecca Taylor, 26, took control of the S.U.V. in a Whataburger parking lot as she was being returned to prison from a prenatal appointment, the authorities said.`\
+https://www.nytimes.com/2026/11/26/us/pregnant-inmate-escapes-new-mexico.html
+
 **Doug Ford Says He’d Use a Gun to Protect His Family**\
 `Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
 https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/arts/television/quinn-shephard-interview-the-
 **Trumpism Was a Glitch. The World Must Move On.**\
 `Voluntary alliances are more powerful than those imposed by powerful leaders.`\
 https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
-
-**At the Barclays Center, Fans Can Experience Some of the Finest Wines in the World**\
-`Few sports arenas emphasize wine like Barclays, which offers grand cru Burgundy, Champagne and much more, sponsors events and has a wine club.`\
-https://www.nytimes.com/2026/11/26/dining/drinks/wine-basketball-barclays-center.html
 
