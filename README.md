@@ -1,3 +1,7 @@
+**The Spanish Bulwark of Progressivism May Be Crumbling**\
+`The elections this week in Spain may usher in a new era of right wing governance.`\
+https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
+
 **Flights at Miami Airport Are Disrupted After FedEx Jet Overshoots Runway**\
 `The plane overran a runway after landing at Miami International Airport on Wednesday, and stopped near a fence. FedEx said there were no injuries.`\
 https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/2026/11/25/world/middleeast/judges-israel-corruption-cas
 **Sept. 11 Defendants Get New Opening to Challenge Death Penalty**\
 `At issue is a clause in a plea deal involving Khalid Shaikh Mohammed, the man accused of being the mastermind of the plot, and two other defendants.`\
 https://www.nytimes.com/2026/11/25/us/politics/death-penalty-sept-11-case-guantanamo.html
-
-**My Balloon Training for the Macy’s Thanksgiving Day Parade**\
-`For the 100th parade, our host flew one of its icons.`\
-https://www.nytimes.com/2026/11/25/podcasts/the-daily/dont-let-go-my-balloon-training-for-the-macys-thanksgiving-day-parade.html
 
