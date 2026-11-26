@@ -1,3 +1,7 @@
+**For Macy’s Thanksgiving Day Parade, Drying Out Balloons is a Lengthy Process**\
+`Workers spent hours drying out clothes and other showpieces two years ago during a rainy holiday parade.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-costumes-balloons.html
+
 **Judge Blocks F.C.C. From Targeting Disney’s Local ABC Licenses**\
 `A preliminary injunction halts an early regulatory review of the network’s operations in eight cities, including New York, Los Angeles and Chicago.`\
 https://www.nytimes.com/2026/11/25/business/media/disney-fcc-abc-ruling.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011307945/baked-brie-and-caramelized-
 **Kilmar Abrego Garcia Arrives in Spain After Voluntarily Leaving U.S.**\
 `Kilmar Armando Abrego Garcia, a Salvadoran immigrant who was wrongfully deported from the United States last year, arrived in Spain after voluntarily leaving the United States.`\
 https://www.nytimes.com/video/us/politics/100000011307514/kilmar-abrego-garcia-spain.html
-
-**How the Nvidia Scandal Fits Into a Chinese Spy Campaign**\
-`China’s top civilian spy agency was behind a yearslong campaign to find access to Nvidia’s most advanced computer chips. Julian E. Barnes, a national security correspondent for The New York Times, explains what makes the campaign such a serious threat to American national security.`\
-https://www.nytimes.com/video/world/100000011305753/how-the-nvidia-scandal-fits-into-a-chinese-spy-campaign.html
 
