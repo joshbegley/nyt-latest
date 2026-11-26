@@ -1,3 +1,11 @@
+**Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
+`Nearly 1,500 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
+https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html
+
+**Dan Carney Has Died. He Co-Founded Pizza Hut and Then Made It Ubiquitous.**\
+`The franchise with the iconic red roof began small, in a tiny brick hut in Kansas. Little more than a decade later, it was the world’s biggest pizza chain. He was 95.`\
+https://www.nytimes.com/2026/11/26/business/dan-carney-dead.html
+
 **Books Our Editors Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://www.nytimes.com/2026/11/26/books/review/new-recommended-books.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/26/world/europe/europe-preppers-survivalists-cyb
 **Storage Unit Costs Are Rarely Worth Paying**\
 `A quarter of Americans use off-site storage, but professional organizers warn against it.`\
 https://www.nytimes.com/2026/11/26/realestate/storage-unit-costs.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a four-bedroom house in Ridgefield, Conn., and a two-bedroom co-op in Eastchester, N.Y.`\
-https://www.nytimes.com/2026/11/26/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in Greenwich Village, Beekman and on the Grand Concourse.`\
-https://www.nytimes.com/2026/11/26/realestate/housing-market-nyc.html
 
