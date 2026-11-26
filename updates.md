@@ -1,3 +1,7 @@
+**The Spanish Bulwark of Progressivism May Be Crumbling**\
+`The elections this week in Spain may usher in a new era of right wing governance.`\
+https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
+
 **Flights at Miami Airport Are Disrupted After FedEx Jet Overshoots Runway**\
 `The plane overran a runway after landing at Miami International Airport on Wednesday, and stopped near a fence. FedEx said there were no injuries.`\
 https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
