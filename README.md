@@ -1,3 +1,7 @@
+**Data Center Developer Wanted to Build Up, Not Out. Kansas City Said No.**\
+`The facilities that power A.I. and other big data needs are in high demand but widely despised. Some developers are trying to build them up instead of out.`\
+https://www.nytimes.com/2026/11/26/business/energy-environment/vertical-data-center-kansas-city.html
+
 **These Thanksgiving Salads Are Fast and Fresh**\
 `With crisp greens, sharp dressings and crunchy nuts and seeds, they’re just what your holiday table wants.`\
 https://www.nytimes.com/2026/11/26/dining/these-thanksgiving-salads-are-fast-and-fresh.html
@@ -156,7 +160,7 @@ https://www.nytimes.com/2026/11/26/opinion/federal-reserve-artifical-intelligenc
 
 **Five Homegrown Talents Move Onstage at Art Basel Miami Beach**\
 `For South Florida’s local artists, the annual fair, beginning Dec. 2, can be a mixed blessing. Here are five of Miami’s most promising, deserving of the spotlight.`\
-https://www.nytimes.com/2026/11/26/arts/design/five-homegrown-talents-move-onstage-at-art-basel-miami-beach.html
+https://www.nytimes.com/2026/11/26/arts/design/art-basel-miami-beach-artists.html
 
 **How ‘The Nutcracker’ Angels Create Perfect Formations**\
 `The young performers in “George Balanchine’s The Nutcracker” may make the choreography look effortless, but mastering it is no easy feat. The young Angels spend weeks rehearsing and perfecting each movement to bring the holiday show to life.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/business/fiat-topolino-electric-review.html
 **The Giant Batteries Revolutionizing America’s Power Supply**\
 `It is time for America to hoard electricity and unleash it on the economy.`\
 https://www.nytimes.com/2026/11/26/opinion/electricity-batteries-commodity-economy.html
-
-**Trump Tried to Cripple Huawei. Now It Is Central to China’s A.I. Push.**\
-`As China’s access to Nvidia’s advanced chips shrinks, Huawei is becoming increasingly indispensable to Beijing despite a wide technological gap with its American rival.`\
-https://www.nytimes.com/2026/11/26/business/huawei-trump-china-ai.html
 
