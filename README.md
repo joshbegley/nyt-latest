@@ -1,3 +1,7 @@
+**Giving Thanks**\
+`Everything is going to be all right.`\
+https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
+
 **Today’s Wordle Hints for November 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
 https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/fashion/gifts-artworks.html
 **His Life Was Meat. Then Came the Alpha-Gal Tick Bite.**\
 `Derek Luhowiak, a farm-to-table butcher and chef, is trying to hold on to his livelihood while dealing with alpha-gal syndrome.`\
 https://www.nytimes.com/2026/11/26/style/butcher-chef-alpha-gal-syndrome.html
-
-**Nate Bargatze’s 5 Favorite Places in Nashville**\
-`The highest-grossing stand-up comedian in America, a Nashville native, shares the spots in and around Music City that put a smile on his face.`\
-https://www.nytimes.com/2026/11/26/travel/nate-bargatze-nashville-things-to-do.html
 
