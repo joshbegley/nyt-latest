@@ -1,3 +1,11 @@
+**Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
+`The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
+https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
+
+**Live Updates: Thanksgiving Storm Threatens the East Coast**\
+`(No description)`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Nvidia Halts Sales to Southeast Asia as U.S. Tightens China Restrictions**\
 `The shipping halt, which hit four countries, follows a new U.S. rule that would require licenses for companies in the countries to buy advanced A.I. chips.`\
 https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
