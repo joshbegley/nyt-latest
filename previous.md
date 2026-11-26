@@ -1,3 +1,11 @@
+**Thanksgiving Highlights Rising Hunger Across New York Amid SNAP Cuts**\
+`With the affordability crisis and cuts to food stamps, pantries are seeing more clients and some people say they can’t afford groceries in their neighborhoods.`\
+https://www.nytimes.com/2026/11/26/nyregion/food-insecurity-snap-thanksgiving.html
+
+**NYT Spelling Bee Answers for November 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/26/crosswords/spelling-bee-forum.html
+
 **I Worry the Spanish Are Nostalgic for Franco**\
 `The elections this week in Spain may usher in a new era of right wing governance.`\
 https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
 **Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
 `She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
 https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
-
-**Judges in Israel Suggest Dropping Key Corruption Case Against Netanyahu**\
-`Prime Minister Benjamin Netanyahu is accused of bribery, fraud and breach of trust in a long-running trial that has divided the country. He denies all wrongdoing.`\
-https://www.nytimes.com/2026/11/25/world/middleeast/judges-israel-corruption-case-netanyahu.html
-
-**Sept. 11 Defendants Get New Opening to Challenge Death Penalty**\
-`At issue is a clause in a plea deal involving Khalid Shaikh Mohammed, the man accused of being the mastermind of the plot, and two other defendants.`\
-https://www.nytimes.com/2026/11/25/us/politics/death-penalty-sept-11-case-guantanamo.html
 

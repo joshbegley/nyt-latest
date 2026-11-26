@@ -1,3 +1,7 @@
+**Hong Kong Grieves Fire Victims Under Watchful Eye of Authorities**\
+`The city’s residents quietly mourned the 168 lives lost in a high-rise complex blaze a year ago, as officials warned against using the disaster to sow division.`\
+https://www.nytimes.com/2026/11/26/world/asia/hong-kong-fire-wang-fuk-court-anniversary.html
+
 **Thanksgiving Highlights Rising Hunger Across New York Amid SNAP Cuts**\
 `With the affordability crisis and cuts to food stamps, pantries are seeing more clients and some people say they can’t afford groceries in their neighborhoods.`\
 https://www.nytimes.com/2026/11/26/nyregion/food-insecurity-snap-thanksgiving.html
@@ -185,8 +189,4 @@ https://www.nytimes.com/video/opinion/100000011187585/dont-sign-up-for-debt-this
 **After Extraordinary Iowa Explosion, Officials and Scientists Assess Fallout Risks**\
 `Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
 https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
-
-**Joanna Bull Has Died. She Created Gilda’s Club, a Haven for Cancer Patients.**\
-`She started a network of clubhouses named after the comedian Gilda Radner, offering refuge to anyone touched by cancer. She was 89.`\
-https://www.nytimes.com/2026/11/25/well/joanna-bull-dead.html
 

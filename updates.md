@@ -1,3 +1,11 @@
+**Thanksgiving Highlights Rising Hunger Across New York Amid SNAP Cuts**\
+`With the affordability crisis and cuts to food stamps, pantries are seeing more clients and some people say they can’t afford groceries in their neighborhoods.`\
+https://www.nytimes.com/2026/11/26/nyregion/food-insecurity-snap-thanksgiving.html
+
+**NYT Spelling Bee Answers for November 26, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/26/crosswords/spelling-bee-forum.html
+
 **I Worry the Spanish Are Nostalgic for Franco**\
 `The elections this week in Spain may usher in a new era of right wing governance.`\
 https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
