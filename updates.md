@@ -1,3 +1,7 @@
+**Nvidia Halts Sales to Southeast Asia as U.S. Tightens China Restrictions**\
+`The shipping halt, which hit four countries, follows a new U.S. rule that would require licenses for companies in the countries to buy advanced A.I. chips.`\
+https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
+
 **Giving Thanks**\
 `Everything is going to be all right.`\
 https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
