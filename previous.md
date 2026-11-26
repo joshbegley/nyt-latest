@@ -10,13 +10,13 @@ https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
 `Quotation of the Day for Thursday, November 26, 2026.`\
 https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
 
-**London Banning Noise and Capping Fares for Its Pedicabs**\
-`Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
-https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
-
 **They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
 `After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
 https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
+
+**London Banning Noise and Capping Fares for Its Pedicabs**\
+`Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
+https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
 
 **Was Japan Prime Minister Takaichi Snubbed at China’s Big Summit?**\
 `Images show the differences between the welcomes afforded to Sanae Takaichi and other world leaders in Shenzhen, as some officials in Japan cry foul.`\
