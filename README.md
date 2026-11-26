@@ -1,4 +1,4 @@
-**Hoor Al-Qasimi to Be First Arab Curator of Venice Biennale**\
+**Venice Biennale Names Its First Arab Curator: Hoor Al-Qasimi**\
 `The director of the Sharjah Biennial in the United Arab Emirates, she will organize the 62nd edition of the world’s oldest and best-attended contemporary art exhibition in 2028.`\
 https://www.nytimes.com/2026/11/26/arts/design/venice-biennale-2028-curator-hoor-al-qasimi.html
 

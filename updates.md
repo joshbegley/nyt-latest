@@ -1,3 +1,7 @@
+**Hoor Al-Qasimi to Be First Arab Curator of Venice Biennale**\
+`The director of the Sharjah Biennial in the United Arab Emirates, she will organize the 62nd edition of the world’s oldest and best-attended contemporary art exhibition in 2028.`\
+https://www.nytimes.com/2026/11/26/arts/design/venice-biennale-2028-curator-hoor-al-qasimi.html
+
 **Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
