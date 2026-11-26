@@ -1,3 +1,15 @@
+**Who Picked This Gift? My A.I. Holiday Shopper.**\
+`From virtual agents on A.I. platforms to store helpers like Walmart’s Sparky, consumers are using the technology to save money and time.`\
+https://www.nytimes.com/2026/11/26/business/holiday-shopping-ai-agents.html
+
+**Data Center Developer Wanted to Build Up, Not Out. Kansas City Said No.**\
+`The facilities that power A.I. and other big data needs are in high demand but widely despised. Some developers are trying to build them up instead of out.`\
+https://www.nytimes.com/2026/11/26/business/energy-environment/vertical-data-center-kansas-city.html
+
+**Five Homegrown Talents Move Onstage at Art Basel Miami Beach**\
+`For South Florida’s local artists, the annual fair, beginning Dec. 2, can be a mixed blessing. Here are five of Miami’s most promising, deserving of the spotlight.`\
+https://www.nytimes.com/2026/11/26/arts/design/art-basel-miami-beach-artists.html
+
 **These Thanksgiving Salads Are Fast and Fresh**\
 `With crisp greens, sharp dressings and crunchy nuts and seeds, they’re just what your holiday table wants.`\
 https://www.nytimes.com/2026/11/26/dining/these-thanksgiving-salads-are-fast-and-fresh.html
