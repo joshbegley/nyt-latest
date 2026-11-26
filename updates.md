@@ -1,3 +1,7 @@
+**Hong Kong Grieves Fire Victims Under Watchful Eye of Authorities**\
+`The city’s residents quietly mourned the 168 lives lost in a high-rise complex blaze a year ago, as officials warned against using the disaster to sow division.`\
+https://www.nytimes.com/2026/11/26/world/asia/hong-kong-fire-wang-fuk-court-anniversary.html
+
 **Thanksgiving Highlights Rising Hunger Across New York Amid SNAP Cuts**\
 `With the affordability crisis and cuts to food stamps, pantries are seeing more clients and some people say they can’t afford groceries in their neighborhoods.`\
 https://www.nytimes.com/2026/11/26/nyregion/food-insecurity-snap-thanksgiving.html
