@@ -1,3 +1,7 @@
+**Who Picked This Gift? My A.I. Holiday Shopper.**\
+`From virtual agents on A.I. platforms to store helpers like Walmart’s Sparky, consumers are using the technology to save money and time.`\
+https://www.nytimes.com/2026/11/26/business/holiday-shopping-ai-agents.html
+
 **Data Center Developer Wanted to Build Up, Not Out. Kansas City Said No.**\
 `The facilities that power A.I. and other big data needs are in high demand but widely despised. Some developers are trying to build them up instead of out.`\
 https://www.nytimes.com/2026/11/26/business/energy-environment/vertical-data-center-kansas-city.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/t-magazine/high-jewelry-rainbow.html
 **The New Itty-Bitty Fiat Is a Nifty Fit for the City**\
 `The Topolino is so small it’s street-legal only on roads with low speed limits. The electric motor is tiny, and the range is limited. But there’s still lots to like.`\
 https://www.nytimes.com/2026/11/26/business/fiat-topolino-electric-review.html
-
-**The Giant Batteries Revolutionizing America’s Power Supply**\
-`It is time for America to hoard electricity and unleash it on the economy.`\
-https://www.nytimes.com/2026/11/26/opinion/electricity-batteries-commodity-economy.html
 
