@@ -1,3 +1,7 @@
+**New Yorkers and Tourists Try to Salvage a Parade Day Postponed by Rain**\
+`Wind and rain grounded the beloved balloons that typically dominate the Thanksgiving skies, leaving the streets along the parade route mostly deserted on Thursday.`\
+https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-day-parade-empty-streets.html
+
 **U.K. Releases Files on Peter Mandelson, Ambassador Tied to Jeffrey Epstein**\
 `Documents released Thursday shed new light on the rushed appointment of Peter Mandelson and his continued ties to Global Counsel, a lobbying group.`\
 https://www.nytimes.com/2026/11/26/world/europe/peter-mandelson-epstein-uk.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.htm
 **To Many, Turkeys Are Dinner. To These Artists, They’re the Perfect Muse.**\
 `Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
 https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
-
-**Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
-`An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
-https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
 

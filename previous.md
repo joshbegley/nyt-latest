@@ -1,3 +1,7 @@
+**U.K. Releases Files on Peter Mandelson, Ambassador Tied to Jeffrey Epstein**\
+`Documents released Thursday shed new light on the rushed appointment of Peter Mandelson and his continued ties to Global Counsel, a lobbying group.`\
+https://www.nytimes.com/2026/11/26/world/europe/peter-mandelson-epstein-uk.html
+
 **In Praise of My Typewriter**\
 `The A.I. projects editor at The New York Times uses chatbots every day. But when it’s time to write, he reaches for an Olivetti Lettera 22 from the 1950s.`\
 https://www.nytimes.com/2026/11/26/world/ai-typewriter-russia-brazil-mirumi.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.h
 **Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
 `An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
 https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
-
-**Our Favorite Kids’ Books for Holiday Gifts**\
-`Need the perfect holiday gift? Try one of these recent releases.`\
-https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
 
