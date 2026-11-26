@@ -1,3 +1,7 @@
+**Doug Ford Says He’d Use a Gun to Protect His Family**\
+`Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
+https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
+
 **Thanksgiving Is Back on the Menu for Francesca Hong, the Failed Wisconsin Governor Candidate**\
 `Francesca Hong, who took heat over a social media post condemning the holiday during her run for the Democratic nomination, now has regrets — and is laughing it all off.`\
 https://www.nytimes.com/2026/11/26/us/politics/thanksgiving-wisconsin-governor-francesca-hong.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
 **At the Barclays Center, Fans Can Experience Some of the Finest Wines in the World**\
 `Few sports arenas emphasize wine like Barclays, which offers grand cru Burgundy, Champagne and much more, sponsors events and has a wine club.`\
 https://www.nytimes.com/2026/11/26/dining/drinks/wine-basketball-barclays-center.html
-
-**Bipartisan Desire to Regulate A.I. Faces Obstacles in Congress**\
-`Members of both parties say they want to tackle artificial intelligence policy, but the slow pace of legislating and turf battles could stand in the way.`\
-https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.html
 
