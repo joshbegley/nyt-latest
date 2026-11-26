@@ -1,3 +1,11 @@
+**Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusation**\
+`The actress Charlotte Arnould has accused the French movie star of raping her in 2018. He has denied any wrongdoing in the case.`\
+https://www.nytimes.com/2026/11/26/world/europe/france-depardieu-rape-trial.html
+
+**Live Updates: Thanksgiving Storm Hits the East Coast**\
+`Torrential rain and strong winds caused power outages from New Jersey to North Carolina and hundreds of flights were delayed or canceled. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Trump’s Latest Tariffs Revive Focus on Pressuring China**\
 `President Trump sent a message to trading partners across Asia, many of which depend on trade and investment from both the United States and China, that he is ready to escalate tariffs.`\
 https://www.nytimes.com/2026/11/26/business/trump-tariffs-asia.html

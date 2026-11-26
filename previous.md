@@ -1,3 +1,7 @@
+**Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusation**\
+`The actress Charlotte Arnould has accused the French movie star of raping her in 2018. He has denied any wrongdoing in the case.`\
+https://www.nytimes.com/2026/11/26/world/europe/france-depardieu-rape-trial.html
+
 **Trump’s Latest Tariffs Revive Focus on Pressuring China**\
 `President Trump sent a message to trading partners across Asia, many of which depend on trade and investment from both the United States and China, that he is ready to escalate tariffs.`\
 https://www.nytimes.com/2026/11/26/business/trump-tariffs-asia.html
@@ -46,8 +50,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Live Updates: Thanksgiving Storm Threatens the East Coast**\
-`(No description)`\
+**Live Updates: Thanksgiving Storm Hits the East Coast**\
+`Torrential rain and strong winds caused power outages from New Jersey to North Carolina and hundreds of flights were delayed or canceled. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/movies/amc-theaters-coke-light-speed-ad.html
 **Jess Sims, of Peloton and ESPN, Likes to Feel the Burn**\
 `For this former schoolteacher, running a Peloton workout and reporting on college football for ESPN are all in a weekend’s work.`\
 https://www.nytimes.com/2026/11/26/style/jess-sims-peloton-college-gameday.html
-
-**Will This $252 Million ‘Museum City’ Be a Boon, or a Boondoggle?**\
-`Built inside a former Brussels car showroom with help from the Centre Pompidou, the Kanal arts center is finally opening after years of controversy.`\
-https://www.nytimes.com/2026/11/26/arts/design/kanal-centre-pompidou-brussels.html
 
