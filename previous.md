@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Sours Holiday Plans for Tourists**\
+`With a powerful storm bearing down on New York, the parade was postponed to Saturday, by which time many of the city’s visitors planned to be elsewhere.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-tourists.html
+
 **Macy’s Thanksgiving Day Parade Upends Plans and Adds Costs for Marching Bands**\
 `Nine marching bands were set to perform in the Macy’s Thanksgiving Day Parade. The decision to move the event to Saturday posed new logistical challenges for them.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-marching-bands.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/video/dining/100000011308004/roasted-sweet-potatoes-with
 **Chocolate Tahini Mousse Cake**\
 `This elegant dessert consists of a tender, black chocolate cake topped with a maple-tahini mousse and enveloped in a glossy ganache.`\
 https://www.nytimes.com/video/dining/100000011307995/chocolate-tahini-mousse-cake.html
-
-**Baked Brie and Caramelized Vegetable Pie**\
-`A vegetarian centerpiece, this caramelized vegetable pie cuddles creamy, earthy molten cheese with a bevy of autumnal vegetables: roasted butternut squash, seared mushrooms, herbed brussels sprouts and tangy red onions, and enrobes the whole mixture in store-bought puff pastry.`\
-https://www.nytimes.com/video/dining/100000011307945/baked-brie-and-caramelized-vegetable-pie.html
 

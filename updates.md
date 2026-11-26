@@ -1,3 +1,7 @@
+**Macy’s Thanksgiving Day Parade Sours Holiday Plans for Tourists**\
+`With a powerful storm bearing down on New York, the parade was postponed to Saturday, by which time many of the city’s visitors planned to be elsewhere.`\
+https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-tourists.html
+
 **Macy’s Thanksgiving Day Parade Upends Plans and Adds Costs for Marching Bands**\
 `Nine marching bands were set to perform in the Macy’s Thanksgiving Day Parade. The decision to move the event to Saturday posed new logistical challenges for them.`\
 https://www.nytimes.com/2026/11/25/nyregion/macys-thanksgiving-day-parade-marching-bands.html
