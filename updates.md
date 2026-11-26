@@ -1,3 +1,7 @@
+**Thanksgiving Is Back on the Menu for Francesca Hong, the Failed Wisconsin Governor Candidate**\
+`Francesca Hong, who took heat over a social media post condemning the holiday during her run for the Democratic nomination, now has regrets — and is laughing it all off.`\
+https://www.nytimes.com/2026/11/26/us/politics/thanksgiving-wisconsin-governor-francesca-hong.html
+
 **New Yorkers and Tourists Try to Salvage a Parade Day Postponed by Rain**\
 `Wind and rain grounded the beloved balloons that typically dominate the Thanksgiving skies, leaving the streets along the parade route mostly deserted on Thursday.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-day-parade-empty-streets.html
