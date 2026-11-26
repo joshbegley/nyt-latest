@@ -1,3 +1,23 @@
+**Today’s Wordle Hints for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
+
+**Johnny Depp’s “Ebenezer” is Rich Guy Propaganda**\
+`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-rich-guy-propaganda-david-ellison.html
+
+**NYT Strands Hints for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/strands-sidekick-999.html
+
+**NYT Connections Answers for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
+
+**Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
+`The drop was largely driven by fewer people arriving from outside Europe. It reflects government action to restrict immigration after a public backlash.`\
+https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
+
 **Live Updates: Thanksgiving Storm Threatens the East Coast**\
 `Torrential rain and flooding are forecast for parts of the Southeast, Mid-Atlantic and New England. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
@@ -173,24 +193,4 @@ https://www.nytimes.com/2026/11/26/style/butcher-chef-alpha-gal-syndrome.html
 **Nate Bargatze’s 5 Favorite Places in Nashville**\
 `The highest-grossing stand-up comedian in America, a Nashville native, shares the spots in and around Music City that put a smile on his face.`\
 https://www.nytimes.com/2026/11/26/travel/nate-bargatze-nashville-things-to-do.html
-
-**Lured by High Salaries, Some Brazilians Were Duped Into Fighting for Russia**\
-`Dozens of Brazilians were sent to the front lines with little training, and the high salaries they were promised, they say, turned out to be illusory.`\
-https://www.nytimes.com/2026/11/26/world/americas/brazil-recruiting-russia-army.html
-
-**Brazilian Duped Into Fighting for Russia: ‘War Is Hell’**\
-`Dozens of Brazilians have joined the Russian army, some say lured by a pair of recruiters promising money and adventure. Here is one soldier’s story.`\
-https://www.nytimes.com/2026/11/26/world/americas/brazil-soldier-ukraine-war.html
-
-**Thanksgiving Parade Balloons Are Deflated in New York**\
-`After the Macy’s Thanksgiving Day Parade was postponed because of a powerful storm, crews worked through the night to deflate balloons before the bad weather arrived.`\
-https://www.nytimes.com/2026/11/26/nyregion/macys-parade-balloons-thanksgiving.html
-
-**Families Grappling With Loss a Year After Hong Kong Fire**\
-`Families are grieving a year after a fire that killed 168 people at the Wang Fuk Court housing complex in Hong Kong.`\
-https://www.nytimes.com/video/world/asia/100000011309957/hk-fire-anniversary.html
-
-**Andy Taylor, Duran Duran’s Guitarist, Dies at 65**\
-`The British guitarist helped define the sound of the 1980s with hits like “Hungry Like the Wolf” and “Girls on Film.”`\
-https://www.nytimes.com/video/obituaries/100000011309835/andy-taylor-duran-duran-dead.html
 

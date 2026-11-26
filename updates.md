@@ -1,3 +1,23 @@
+**Today’s Wordle Hints for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
+
+**Johnny Depp’s “Ebenezer” is Rich Guy Propaganda**\
+`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-rich-guy-propaganda-david-ellison.html
+
+**NYT Strands Hints for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/strands-sidekick-999.html
+
+**NYT Connections Answers for November 27, 2026**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
+https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
+
+**Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
+`The drop was largely driven by fewer people arriving from outside Europe. It reflects government action to restrict immigration after a public backlash.`\
+https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
+
 **Live Updates: Thanksgiving Storm Threatens the East Coast**\
 `Torrential rain and flooding are forecast for parts of the Southeast, Mid-Atlantic and New England. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
