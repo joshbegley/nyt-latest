@@ -1,3 +1,7 @@
+**Andy Taylor, Duran Duran’s ‘Live-Wire’ Guitarist, Dies at 65**\
+`He helped define the sound, and the look, of the 1980s with MTV-ready hits like “Rio” and “Hungry Like the Wolf.”`\
+https://www.nytimes.com/2026/11/25/arts/music/andy-taylor-duran-duran-dead.html
+
 **Africa C.D.C. Chief Faces Turmoil Over Management Amid Ebola Crisis**\
 `Scrutiny has fallen on Dr. Jean Kaseya, the director general of the Africa Centers for Disease Control and Prevention, after reports of staff intimidation and mismanagement of funds.`\
 https://www.nytimes.com/2026/11/25/world/africa/acdc-kaseya-staff-ebola.html

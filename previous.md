@@ -1,3 +1,7 @@
+**Andy Taylor, Duran Duran’s ‘Live-Wire’ Guitarist, Dies at 65**\
+`He helped define the sound, and the look, of the 1980s with MTV-ready hits like “Rio” and “Hungry Like the Wolf.”`\
+https://www.nytimes.com/2026/11/25/arts/music/andy-taylor-duran-duran-dead.html
+
 **Africa C.D.C. Chief Faces Turmoil Over Management Amid Ebola Crisis**\
 `Scrutiny has fallen on Dr. Jean Kaseya, the director general of the Africa Centers for Disease Control and Prevention, after reports of staff intimidation and mismanagement of funds.`\
 https://www.nytimes.com/2026/11/25/world/africa/acdc-kaseya-staff-ebola.html
@@ -181,8 +185,4 @@ https://www.nytimes.com/2026/11/25/us/nidal-malik-hasan-fort-hood-execution-stay
 **Lukoil to Sell Foreign Assets, but Not to Kushner and Witkoff Associates**\
 `Valuable properties belonging to the Russian energy giant will be sold to an American-led consortium. But Middle Eastern business contacts of the two Trump envoys pulled out because of political winds.`\
 https://www.nytimes.com/2026/11/25/us/politics/lukoil-deal.html
-
-**Opposition Makes Progress Toward Ousting Netanyahu, Party Leader Says**\
-`Gadi Eisenkot, a former military chief, has set Dec. 6 as the deadline to form a new Israeli government. His ally, Avigdor Liberman, said Mr. Eisenkot was on track.`\
-https://www.nytimes.com/2026/11/25/world/middleeast/israel-opposition-netanyahu-new-government.html
 
