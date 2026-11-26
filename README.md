@@ -1,3 +1,7 @@
+**Nvidia Halts Sales to Southeast Asia as U.S. Tightens China Restrictions**\
+`The shipping halt, which hit four countries, follows a new U.S. rule that would require licenses for companies in the countries to buy advanced A.I. chips.`\
+https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
+
 **Giving Thanks**\
 `Everything is going to be all right.`\
 https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/fashion/gifts-sarah-and-philip-andelman-paris
 **Art Could Be on Your Shopping List**\
 `Experts say it might be hard to choose the right drawing or textile, but the memories would be well worth the effort.`\
 https://www.nytimes.com/2026/11/26/fashion/gifts-artworks.html
-
-**His Life Was Meat. Then Came the Alpha-Gal Tick Bite.**\
-`Derek Luhowiak, a farm-to-table butcher and chef, is trying to hold on to his livelihood while dealing with alpha-gal syndrome.`\
-https://www.nytimes.com/2026/11/26/style/butcher-chef-alpha-gal-syndrome.html
 
