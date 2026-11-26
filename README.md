@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/26/world/ai-typewriter-russia-brazil-mirumi.html
 https://www.nytimes.com/video/us/100000011310731/nyc-metro-marching-band-macys-parade.html
 
 **Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
-`Nearly 1,500 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
+`More than 2,000 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
 https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html
 
 **Dan Carney Has Died. He Co-Founded Pizza Hut and Then Made It Ubiquitous.**\
