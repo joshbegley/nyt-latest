@@ -1,3 +1,7 @@
+**These Thanksgiving Salads Are Fast and Fresh**\
+`With crisp greens, sharp dressings and crunchy nuts and seeds, they’re just what your holiday table wants.`\
+https://www.nytimes.com/2026/11/26/dining/these-thanksgiving-salads-are-fast-and-fresh.html
+
 **Democrats Confront a Familiar Question: How Are You Going to Pay for That?**\
 `Many Democratic plans are unlikely to become law under President Trump. But the party is still grappling with the difficult budget math of its agenda.`\
 https://www.nytimes.com/2026/11/26/business/democrats-congress-agenda-taxes-spending.html
