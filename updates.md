@@ -1,3 +1,7 @@
+**Two Italians Killed in Iranian Drone Attack on Kuwait, Officials Say**\
+`The deaths follow a series of strikes on Gulf Arab states that host U.S. military facilities in recent weeks as talks to end the war continue to stall.`\
+https://www.nytimes.com/2026/11/26/world/middleeast/italians-killed-iran-drone-attack-kuwait.html
+
 **Thanksgiving Storm Hits East Coast**\
 `A Thanksgiving storm brought heavy rain and strong winds along the East Coast on Thursday. Hundreds of thousands of customers were affected by power outages.`\
 https://www.nytimes.com/video/weather/100000011310568/thanksgiving-storm-hits-east-coast.html
