@@ -1,3 +1,7 @@
+**Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
+`More than 2,000 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
+https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html
+
 **Pregnant Inmate Escapes in New Mexico Prison Transport Vehicle**\
 `The inmate, Rebecca Taylor, 26, took control of the S.U.V. in a Whataburger parking lot as she was being returned to prison from a prenatal appointment, the authorities said.`\
 https://www.nytimes.com/2026/11/26/us/pregnant-inmate-escapes-new-mexico.html
