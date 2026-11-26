@@ -1,3 +1,11 @@
+**One Dead After Shooting Mars High School Football Tradition**\
+`The authorities said that Joaquin J. Morris, 18, was killed in a shooting that interrupted a longtime sporting event that dates to the 1930s in the New Jersey suburbs.`\
+https://www.nytimes.com/2026/11/26/nyregion/teaneck-shooting-football-game-turkey-bowl.html
+
+**Thanksgiving Storm Live Updates: Nearly 750,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The strongest part of the storm was moving into New York, New Jersey and Connecticut.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
 `More than 2,000 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
 https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html

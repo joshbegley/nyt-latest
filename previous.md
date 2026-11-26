@@ -1,3 +1,7 @@
+**One Dead After Shooting Mars High School Football Tradition**\
+`The authorities said that Joaquin J. Morris, 18, was killed in a shooting that interrupted a longtime sporting event that dates to the 1930s in the New Jersey suburbs.`\
+https://www.nytimes.com/2026/11/26/nyregion/teaneck-shooting-football-game-turkey-bowl.html
+
 **Pregnant Inmate Escapes in New Mexico Prison Transport Vehicle**\
 `The inmate, Rebecca Taylor, 26, took control of the S.U.V. in a Whataburger parking lot as she was being returned to prison from a prenatal appointment, the authorities said.`\
 https://www.nytimes.com/2026/11/26/us/pregnant-inmate-escapes-new-mexico.html
@@ -138,8 +142,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Live Updates: Thanksgiving Storm Floods Streets and Knocks Out Power on East Coast**\
-`More than a half-million customers were without power from North Carolina to New Jersey. Hundreds of flights were delayed or canceled by the storm, which postponed New York’s annual Thanksgiving parade for the first time.`\
+**Thanksgiving Storm Live Updates: Nearly 750,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The strongest part of the storm was moving into New York, New Jersey and Connecticut.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
@@ -189,8 +193,4 @@ https://www.nytimes.com/video/us/politics/100000011304420/trump-president-turkey
 **‘The Body’ Came Back From the Dead and Became a Hit**\
 `Quinn Shephard discusses the origins of her teen horror drama and how making it changed her relationship with faith.`\
 https://www.nytimes.com/2026/11/26/arts/television/quinn-shephard-interview-the-body-netflix.html
-
-**Trumpism Was a Glitch. The World Must Move On.**\
-`Voluntary alliances are more powerful than those imposed by powerful leaders.`\
-https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
 
