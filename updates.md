@@ -1,3 +1,11 @@
+**Attack Blamed on ISIS Kills 2 Syrian Security Force Members**\
+`The assault on a security headquarters in the northeastern city of Hasakah was carried out by four militants who local officials linked to the Islamic State.`\
+https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
+
+**Seth Meyers Drags Jensen Huang’s Daily 90-Minute Therapy Sessions**\
+`“You’re in therapy for an hour and a half every day? Well, now everything’s falling into place — you’d have to sell secrets to China to afford that much therapy,” Meyers said.`\
+https://www.nytimes.com/2026/11/26/arts/television/late-night-meyers-huang-therapy-fallon.html
+
 **Hong Kong Grieves Fire Victims Under Watchful Eye of Authorities**\
 `The city’s residents quietly mourned the 168 lives lost in a high-rise complex blaze a year ago, as officials warned against using the disaster to sow division.`\
 https://www.nytimes.com/2026/11/26/world/asia/hong-kong-fire-wang-fuk-court-anniversary.html

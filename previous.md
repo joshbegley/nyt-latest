@@ -1,3 +1,11 @@
+**Attack Blamed on ISIS Kills 2 Syrian Security Force Members**\
+`The assault on a security headquarters in the northeastern city of Hasakah was carried out by four militants who local officials linked to the Islamic State.`\
+https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
+
+**Seth Meyers Drags Jensen Huang’s Daily 90-Minute Therapy Sessions**\
+`“You’re in therapy for an hour and a half every day? Well, now everything’s falling into place — you’d have to sell secrets to China to afford that much therapy,” Meyers said.`\
+https://www.nytimes.com/2026/11/26/arts/television/late-night-meyers-huang-therapy-fallon.html
+
 **Hong Kong Grieves Fire Victims Under Watchful Eye of Authorities**\
 `The city’s residents quietly mourned the 168 lives lost in a high-rise complex blaze a year ago, as officials warned against using the disaster to sow division.`\
 https://www.nytimes.com/2026/11/26/world/asia/hong-kong-fire-wang-fuk-court-anniversary.html
@@ -22,13 +30,13 @@ https://www.nytimes.com/2026/11/26/us/fedex-plane-miami-airport.html
 `Quotation of the Day for Thursday, November 26, 2026.`\
 https://www.nytimes.com/2026/11/26/pageoneplus/quote-of-the-day-how-to-get-a-giant-parade-off-the-ground.html
 
-**They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
-`After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
-https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
-
 **London Banning Noise and Capping Fares for Its Pedicabs**\
 `Starting Friday, the city will regulate pedicab operators for the first time, imposing fare caps and noise restrictions.`\
 https://www.nytimes.com/2026/11/26/world/europe/london-pedicab-regulations-music-ban-nyc.html
+
+**They Bought Their Dream Home. Their Neighbors Want to Evict Them.**\
+`After an Italian couple bought a house built by Pier Paolo Pasolini, one of the country’s greatest film directors, local villagers claimed the property.`\
+https://www.nytimes.com/2026/11/26/world/europe/pasolini-house-eviction-court.html
 
 **Was Japan Prime Minister Takaichi Snubbed at China’s Big Summit?**\
 `Images show the differences between the welcomes afforded to Sanae Takaichi and other world leaders in Shenzhen, as some officials in Japan cry foul.`\
@@ -181,12 +189,4 @@ https://www.nytimes.com/2026/11/25/world/youth-protests-education-tariffs-thanks
 **Border Barrier Cannot be Removed for Decades, Texas Republicans and D.O.J. Agree**\
 `Just before Democrats take over the state government, Trump administration and outgoing Republican officials in Texas ink legal settlement barring removal of wire for 30 years.`\
 https://www.nytimes.com/2026/11/25/us/politics/texas-border-legal-settlement-trump.html
-
-**Don’t Sign Up for Debt This Black Friday**\
-`Before you splurge this Black Friday, watch this. Buy now, pay later plans are everywhere. You know the ones: They show up every time you’re ready to check out. It might be easy to sign up and say yes, but the Times Opinion fellow Tara Jayaram argues you’re just signing up for another loan, and this one’s taking advantage of you.`\
-https://www.nytimes.com/video/opinion/100000011187585/dont-sign-up-for-debt-this-black-friday.html
-
-**After Extraordinary Iowa Explosion, Officials and Scientists Assess Fallout Risks**\
-`Military and civilian authorities said the Army operation was a success. But testing will continue to make sure residents are safe from contamination.`\
-https://www.nytimes.com/2026/11/25/us/iowa-army-ammunition-blast.html
 
