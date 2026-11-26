@@ -1,3 +1,11 @@
+**Families Grappling With Loss a Year After Hong Kong Fire**\
+`Families are grieving a year after a fire that killed 168 people at the Wang Fuk Court housing complex in Hong Kong.`\
+https://www.nytimes.com/video/world/asia/100000011309957/hk-fire-anniversary.html
+
+**Andy Taylor, Duran Duran’s Guitarist, Dies at 65**\
+`The British guitarist helped define the sound of the 1980s with hits like “Hungry Like the Wolf” and “Girls on Film.”`\
+https://www.nytimes.com/video/obituaries/100000011309835/andy-taylor-duran-duran-dead.html
+
 **Attack Blamed on ISIS Kills 2 Syrian Security Force Members**\
 `The assault on a security headquarters in the northeastern city of Hasakah was carried out by four militants who local officials linked to the Islamic State.`\
 https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
@@ -181,12 +189,4 @@ https://www.nytimes.com/video/us/100000011287370/were-investigating-a-300-millio
 **A Rumored $300 Million Score on Nvidia’s Stock Surge Isn’t Backed by Trading Records**\
 `Three data providers say they have no evidence to support the online claim that insider trading generated a 9,000 percent return.`\
 https://www.nytimes.com/2026/11/25/business/nvidia-stock-insider-trading-rumor.html
-
-**Study Hard, Get Ahead?**\
-`The broken promise of upward mobility through education is sparking youth protests around the world.`\
-https://www.nytimes.com/2026/11/25/world/youth-protests-education-tariffs-thanksgiving.html
-
-**Border Barrier Cannot be Removed for Decades, Texas Republicans and D.O.J. Agree**\
-`Just before Democrats take over the state government, Trump administration and outgoing Republican officials in Texas ink legal settlement barring removal of wire for 30 years.`\
-https://www.nytimes.com/2026/11/25/us/politics/texas-border-legal-settlement-trump.html
 
