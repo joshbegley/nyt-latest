@@ -1,3 +1,7 @@
+**Michael Barbaro Learns to Fly a Macy’s Thanksgiving Balloon**\
+`For the 100th Macy’s Thanksgiving Day Parade, Michael Barbaro, a host of “The Daily,” went behind the scenes to learn how to fly one of Macy’s iconic 700-pound balloons.`\
+https://www.nytimes.com/video/podcasts/100000011309375/michael-barbaro-learns-to-fly-a-macys-thanksgiving-balloon.html
+
 **NYT Crossword Answers for Nov. 26, 2026**\
 `Sam Koperwas and Jeff Chen’s puzzle speaks with its mouth full.`\
 https://www.nytimes.com/2026/11/25/crosswords/daily-puzzle-2026-11-26.html
