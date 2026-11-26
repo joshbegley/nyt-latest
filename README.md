@@ -166,7 +166,7 @@ https://www.nytimes.com/video/us/politics/100000011304420/trump-president-turkey
 `Quinn Shephard discusses the origins of her teen horror drama and how making it changed her relationship with faith.`\
 https://www.nytimes.com/2026/11/26/arts/television/quinn-shephard-interview-the-body-netflix.html
 
-**Trumpism Was Temporary. This Is How We Can Move On.**\
+**Trumpism Was a Glitch. The World Must Move On.**\
 `Voluntary alliances are more powerful than those imposed by powerful leaders.`\
 https://www.nytimes.com/2026/11/26/opinion/midterms-us-allies-optimism.html
 
