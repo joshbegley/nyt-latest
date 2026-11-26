@@ -1,3 +1,7 @@
+**I Worry the Spanish Are Nostalgic for Franco**\
+`The elections this week in Spain may usher in a new era of right wing governance.`\
+https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
+
 **The Spanish Bulwark of Progressivism May Be Crumbling**\
 `The elections this week in Spain may usher in a new era of right wing governance.`\
 https://www.nytimes.com/2026/11/26/opinion/spain-elections-vox-sanchez.html
