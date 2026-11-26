@@ -142,8 +142,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Live Updates: Thanksgiving Storm Floods Streets and Knocks Out Power on East Coast**\
-`More than a half-million customers were without power from North Carolina to New Jersey. Hundreds of flights were delayed or canceled by the storm, which postponed New York’s annual Thanksgiving parade for the first time.`\
+**Thanksgiving Storm Live Updates: Nearly 750,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The strongest part of the storm was moving into New York, New Jersey and Connecticut.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
