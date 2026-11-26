@@ -1,3 +1,7 @@
+**The Fiat Topolino Is a Nifty Fit for the City: Review**\
+`The Topolino is so small it’s street-legal only on roads with low speed limits. The electric motor is tiny, and the range is limited. But there’s still lots to like.`\
+https://www.nytimes.com/2026/11/26/business/fiat-topolino-electric-review.html
+
 **Who Picked This Gift? My A.I. Holiday Shopper.**\
 `From virtual agents on A.I. platforms to store helpers like Walmart’s Sparky, consumers are using the technology to save money and time.`\
 https://www.nytimes.com/2026/11/26/business/holiday-shopping-ai-agents.html
