@@ -1,3 +1,11 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/26/books/review/new-recommended-books.html
+
+**Live Updates: Thanksgiving Storm Floods Streets and Knocks Out Power on East Coast**\
+`More than a half-million customers were without power from North Carolina to New Jersey. Hundreds of flights were delayed or canceled by the storm, which postponed New York’s annual Thanksgiving parade for the first time.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Two Italians Killed in Iranian Drone Attack on Kuwait, Officials Say**\
 `The deaths follow a series of strikes on Gulf Arab states that host U.S. military facilities in recent weeks as talks to end the war continue to stall.`\
 https://www.nytimes.com/2026/11/26/world/middleeast/italians-killed-iran-drone-attack-kuwait.html

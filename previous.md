@@ -1,3 +1,7 @@
+**Books Our Editors Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://www.nytimes.com/2026/11/26/books/review/new-recommended-books.html
+
 **Two Italians Killed in Iranian Drone Attack on Kuwait, Officials Say**\
 `The deaths follow a series of strikes on Gulf Arab states that host U.S. military facilities in recent weeks as talks to end the war continue to stall.`\
 https://www.nytimes.com/2026/11/26/world/middleeast/italians-killed-iran-drone-attack-kuwait.html
@@ -98,8 +102,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Live Updates: Thanksgiving Storm Hits the East Coast**\
-`Torrential rain and strong winds caused power outages from New Jersey to North Carolina and hundreds of flights were delayed or canceled. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
+**Live Updates: Thanksgiving Storm Floods Streets and Knocks Out Power on East Coast**\
+`More than a half-million customers were without power from North Carolina to New Jersey. Hundreds of flights were delayed or canceled by the storm, which postponed New York’s annual Thanksgiving parade for the first time.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
@@ -166,13 +170,13 @@ https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.htm
 `Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
 https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
 
-**Our Favorite Kids’ Books for Holiday Gifts**\
-`Need the perfect holiday gift? Try one of these recent releases.`\
-https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
-
 **Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
 `An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
 https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
+
+**Our Favorite Kids’ Books for Holiday Gifts**\
+`Need the perfect holiday gift? Try one of these recent releases.`\
+https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
 
 **After Cyberattacks and Bomb Threats Hit Europe, Survivalism Goes Mainstream**\
 `More governments in Europe are telling citizens to prepare for emergencies. After unexpected disruptions, many are listening.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/realestate/housing-market-near-nyc.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are in Greenwich Village, Beekman and on the Grand Concourse.`\
 https://www.nytimes.com/2026/11/26/realestate/housing-market-nyc.html
-
-**The Next Fed Leader Should Be a Bot**\
-`A computer can run America’s central bank better than humans can.`\
-https://www.nytimes.com/2026/11/26/opinion/federal-reserve-artifical-intelligence.html
 
