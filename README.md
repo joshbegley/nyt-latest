@@ -1,3 +1,7 @@
+**Holiday Air Travel Is Snarled by Wind and Rain in Parts of U.S.**\
+`Nearly 1,500 flights were delayed or canceled by a storm that battered the East Coast on Thanksgiving.`\
+https://www.nytimes.com/2026/11/26/nyregion/thanksgiving-storm-air-travel.html
+
 **Dan Carney Has Died. He Co-Founded Pizza Hut and Then Made It Ubiquitous.**\
 `The franchise with the iconic red roof began small, in a tiny brick hut in Kansas. Little more than a decade later, it was the world’s biggest pizza chain. He was 95.`\
 https://www.nytimes.com/2026/11/26/business/dan-carney-dead.html
@@ -174,13 +178,13 @@ https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.htm
 `Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
 https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
 
-**Our Favorite Kids’ Books for Holiday Gifts**\
-`Need the perfect holiday gift? Try one of these recent releases.`\
-https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
-
 **Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
 `An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
 https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
+
+**Our Favorite Kids’ Books for Holiday Gifts**\
+`Need the perfect holiday gift? Try one of these recent releases.`\
+https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
 
 **After Cyberattacks and Bomb Threats Hit Europe, Survivalism Goes Mainstream**\
 `More governments in Europe are telling citizens to prepare for emergencies. After unexpected disruptions, many are listening.`\
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/world/europe/europe-preppers-survivalists-cyb
 **Storage Unit Costs Are Rarely Worth Paying**\
 `A quarter of Americans use off-site storage, but professional organizers warn against it.`\
 https://www.nytimes.com/2026/11/26/realestate/storage-unit-costs.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a four-bedroom house in Ridgefield, Conn., and a two-bedroom co-op in Eastchester, N.Y.`\
-https://www.nytimes.com/2026/11/26/realestate/housing-market-near-nyc.html
 
