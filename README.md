@@ -27,7 +27,7 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
 **Live Updates: Thanksgiving Storm Threatens the East Coast**\
-`Torrential rain and flooding are forecast for parts of the Southeast, Mid-Atlantic and New England. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
+`(No description)`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
