@@ -1,3 +1,7 @@
+**Live Updates: Thanksgiving Storm Threatens the East Coast**\
+`Torrential rain and flooding are forecast for parts of the Southeast, Mid-Atlantic and New England. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
 `It isn’t always easy to keep New York City’s Thanksgiving parade on track. Here’s a look back at notable moments and mishaps.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-parade-history-timeline.html
@@ -189,12 +193,4 @@ https://www.nytimes.com/video/world/asia/100000011309957/hk-fire-anniversary.htm
 **Andy Taylor, Duran Duran’s Guitarist, Dies at 65**\
 `The British guitarist helped define the sound of the 1980s with hits like “Hungry Like the Wolf” and “Girls on Film.”`\
 https://www.nytimes.com/video/obituaries/100000011309835/andy-taylor-duran-duran-dead.html
-
-**Attack Blamed on ISIS Kills 2 Syrian Security Force Members**\
-`The assault on a security headquarters in the northeastern city of Hasakah was carried out by four militants who local officials linked to the Islamic State.`\
-https://www.nytimes.com/2026/11/26/world/middleeast/isis-attack-syria.html
-
-**Seth Meyers Drags Jensen Huang’s Daily 90-Minute Therapy Sessions**\
-`“You’re in therapy for an hour and a half every day? Well, now everything’s falling into place — you’d have to sell secrets to China to afford that much therapy,” Meyers said.`\
-https://www.nytimes.com/2026/11/26/arts/television/late-night-meyers-huang-therapy-fallon.html
 

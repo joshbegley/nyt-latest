@@ -1,3 +1,7 @@
+**Live Updates: Thanksgiving Storm Threatens the East Coast**\
+`Torrential rain and flooding are forecast for parts of the Southeast, Mid-Atlantic and New England. In New York, weather warnings forced the annual Thanksgiving parade to be postponed for the first time.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
 `It isn’t always easy to keep New York City’s Thanksgiving parade on track. Here’s a look back at notable moments and mishaps.`\
 https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-parade-history-timeline.html
