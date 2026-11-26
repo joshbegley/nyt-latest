@@ -166,13 +166,13 @@ https://www.nytimes.com/2026/11/26/us/politics/ai-regulation-congress-nvidia.htm
 `Artists who paint or draw the wild turkey speak of its swagger and charm. Their renderings have helped fund a conservation success story.`\
 https://www.nytimes.com/2026/11/26/us/turkey-art-stamps-thanksgiving-minnesota.html
 
-**Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
-`An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
-https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
-
 **Our Favorite Kids’ Books for Holiday Gifts**\
 `Need the perfect holiday gift? Try one of these recent releases.`\
 https://www.nytimes.com/2026/11/26/books/review/kids-books-holiday-gift-guide.html
+
+**Andrew Ramage Has Died. He Found Receipts for the ‘World’s First Millionaire.’**\
+`An archaeologist, he unearthed evidence that the saying “as rich as Croesus” is apt: King Croesus was very, very wealthy. Mr. Ramage died at 87.`\
+https://www.nytimes.com/2026/11/26/science/andrew-ramage-dead.html
 
 **After Cyberattacks and Bomb Threats Hit Europe, Survivalism Goes Mainstream**\
 `More governments in Europe are telling citizens to prepare for emergencies. After unexpected disruptions, many are listening.`\
