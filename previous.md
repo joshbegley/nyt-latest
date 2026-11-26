@@ -1,3 +1,11 @@
+**Thanksgiving Storm Hits East Coast**\
+`A Thanksgiving storm brought heavy rain and strong winds along the East Coast on Thursday. Hundreds of thousands of customers were affected by power outages.`\
+https://www.nytimes.com/video/weather/100000011310568/thanksgiving-storm-hits-east-coast.html
+
+**Strobe Talbott, Journalist Who Joined Clinton’s State Department, Has Died**\
+`He was a reporter and foreign affairs columnist at Time and then served as deputy secretary of state and president of the Brookings Institution. He was 80.`\
+https://www.nytimes.com/2026/11/26/us/politics/strobe-talbott-dead.html
+
 **Jensen Huang Is Back, and So Is His Plaque at Denny’s**\
 `The chain said it had restored a plaque honoring Mr. Huang above a booth in San Jose, Calif., after he was reinstated at Nvidia, the company he is said to have co-founded while eating there.`\
 https://www.nytimes.com/2026/11/26/business/dennys-jensen-huang-nvidia-plaque.html
@@ -185,12 +193,4 @@ https://www.nytimes.com/2026/11/26/opinion/federal-reserve-artifical-intelligenc
 **Five Homegrown Talents Move Onstage at Art Basel Miami Beach**\
 `For South Florida’s local artists, the annual fair, beginning Dec. 2, can be a mixed blessing. Here are five of Miami’s most promising, deserving of the spotlight.`\
 https://www.nytimes.com/2026/11/26/arts/design/art-basel-miami-beach-artists.html
-
-**How ‘The Nutcracker’ Angels Create Perfect Formations**\
-`The young performers in “George Balanchine’s The Nutcracker” may make the choreography look effortless, but mastering it is no easy feat. The young Angels spend weeks rehearsing and perfecting each movement to bring the holiday show to life.`\
-https://www.nytimes.com/video/arts/dance/100000011292841/nutcracker-angels-ballet-holidays.html
-
-**Trump Lost My Brother!**\
-`Two miracles: my brother’s health and his disillusionment.`\
-https://www.nytimes.com/2026/11/26/opinion/trump-maureen-dowd-brother.html
 
