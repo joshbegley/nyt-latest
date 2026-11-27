@@ -1,3 +1,7 @@
+**Puma Shen, Critic of China, Could be the Next Mayor of Taipei**\
+`Puma Shen, who has been sanctioned by China for his efforts to prepare civilians for an invasion, could become Taiwan’s next political star if he wins.`\
+https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
+
 **Thanksgiving Storm Leaves Half a Million Without Power on the East Coast**\
 `The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were expected to gradually improve on Friday.`\
 https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgivin
 **Why Is the Trump Administration So Focused on the Threat of Far-Left Terror?**\
 `The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
 https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
-
-**Quote of the Day: The Small Town That Took on Amazon’s Plan for a Drone Hub**\
-`Quotation of the Day for Friday, November 27, 2026.`\
-https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-that-took-on-amazons-plan-for-a-drone-hub.html
 
