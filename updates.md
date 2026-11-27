@@ -1,3 +1,15 @@
+**Spanish Authorities Find Marijuana Farm Under Backyard Playground**\
+`Spain’s Civil Guard said it discovered an underground marijuana farm beneath a backyard playground in the country’s south. Five people were arrested, the authorities said.`\
+https://www.nytimes.com/video/world/europe/100000011311669/spain-marijuana-playground-hidden.html
+
+**Spanish Police Find a Vast Marijuana Bunker Beneath a Backyard Playground**\
+`Five people were arrested in southern Spain after a large marijuana farm was found under a playhouse on artificial turf.`\
+https://www.nytimes.com/2026/11/27/world/europe/marijuana-farm-spain-playground.html
+
+**Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
+`Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
+https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-midterms-voting.html
+
 **Flashback: Your Weekly History Quiz, Nov. 28, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/flashback.html

@@ -1,3 +1,11 @@
+**Spanish Authorities Find Marijuana Farm Under Backyard Playground**\
+`Spain’s Civil Guard said it discovered an underground marijuana farm beneath a backyard playground in the country’s south. Five people were arrested, the authorities said.`\
+https://www.nytimes.com/video/world/europe/100000011311669/spain-marijuana-playground-hidden.html
+
+**Spanish Police Find a Vast Marijuana Bunker Beneath a Backyard Playground**\
+`Five people were arrested in southern Spain after a large marijuana farm was found under a playhouse on artificial turf.`\
+https://www.nytimes.com/2026/11/27/world/europe/marijuana-farm-spain-playground.html
+
 **Flashback: Your Weekly History Quiz, Nov. 28, 2026**\
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/flashback.html
@@ -24,7 +32,7 @@ https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigation
 
 **Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
 `Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
-https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-cheered-by-republicans-wound-up-hurting-them.html
+https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-midterms-voting.html
 
 **A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Shop**\
 `A guide to Medellín, Colombia, where nature and design take center stage.`\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/27/world/europe/santiago-abascal-vox-spain-far-r
 **2 TV Shows Take on Sam Bankman-Fried and FTX**\
 `The limited series “The Altruists” and the documentary “The Boy Who Stole Billions?” offer different takes on the crypto exchange founder’s role in one of the largest frauds in history.`\
 https://www.nytimes.com/2026/11/27/business/media/sam-bankman-fried-ftx-altruists.html
-
-**These Puppets Are Big. Their Personalities Are Even Bigger.**\
-`Several artist collectives are building figures that function as art and comic relief.`\
-https://www.nytimes.com/2026/11/27/t-magazine/big-puppets-art-performance.html
-
-**The D.I.Y. Puppets Roaming Los Angeles**\
-`Meet the papier-mâché creations of Freak Nature, a performance collective based in downtown Los Angeles.`\
-https://www.nytimes.com/video/t-magazine/100000011308774/the-diy-puppets-roaming-los-angeles.html
 
