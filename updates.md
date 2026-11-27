@@ -1,3 +1,7 @@
+**Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
+`Ms. Stewart-Cousins, 76, served in the State Senate for 20 years.`\
+https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
+
 **California Hiker Falls 500 Feet to His Death While Trying to Help Son**\
 `Guillermo Batres, 44, slipped while hiking Mount Baden-Powell, northeast of Los Angeles, earlier this week. Two other hikers who were nearby rescued his teenage son and called 911.`\
 https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
