@@ -18,7 +18,7 @@ https://www.nytimes.com/2026/11/27/nyregion/new-york-trump-massapequa-mascot.htm
 `A mash-up of two classic French novels creates an unsatisfying new story.`\
 https://www.nytimes.com/2026/11/27/movies/the-hunchback-soul-of-paris-review.html
 
-**On the Thanksgiving Menu for National Weather Service Meteorologists**\
+**What’s on the Thanksgiving Menu for National Weather Service Meteorologists**\
 `National Weather Service meteorologists keep their offices running all year, even on weekends and holidays. Here’s what was on the menu over a wet and gusty Thanksgiving.`\
 https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgiving-storm.html
 
