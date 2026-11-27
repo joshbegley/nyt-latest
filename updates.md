@@ -1,3 +1,7 @@
+**California Hiker Falls 500 Feet to His Death While Trying to Help Son**\
+`Guillermo Batres, 44, slipped while hiking Mount Baden-Powell, northeast of Los Angeles, earlier this week. Two other hikers who were nearby rescued his teenage son and called 911.`\
+https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
+
 **What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
 `Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
 https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html

@@ -1,3 +1,7 @@
+**California Hiker Falls 500 Feet to His Death While Trying to Help Son**\
+`Guillermo Batres, 44, slipped while hiking Mount Baden-Powell, northeast of Los Angeles, earlier this week. Two other hikers who were nearby rescued his teenage son and called 911.`\
+https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
+
 **What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
 `Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
 https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/realestate/homes-for-sale-vancouver.html
 **Book Club: Read ‘The End of Everything,’ by M. John Harrison, With the Book Review**\
 `In December, the Book Review Book Club will read and discuss Harrison’s Booker Prize-winning novel, about a strange future where aliens have invaded Earth.`\
 https://www.nytimes.com/2026/11/27/books/review/the-end-of-everything-m-john-harrison-book-club.html
-
-**Book Club: Let’s Talk About ‘The Calamity Club’**\
-`Kathryn Stockett’s second novel is about two outcasts in Mississippi working to change their fate.`\
-https://www.nytimes.com/2026/11/27/books/review/podcast-book-club-calamity-club.html
 
