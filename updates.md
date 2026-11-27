@@ -1,3 +1,11 @@
+**Far-Left Terrorism Is Not the Biggest Threat to America**\
+`The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
+https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
+
+**Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
+`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
+
 **Quote of the Day: The Small Town That Took on Amazon’s Plan for a Drone Hub**\
 `Quotation of the Day for Friday, November 27, 2026.`\
 https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-that-took-on-amazons-plan-for-a-drone-hub.html
