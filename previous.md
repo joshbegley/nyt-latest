@@ -1,3 +1,7 @@
+**Attacks on Science: A Tragedy in Many Acts**\
+`Readers respond to articles in the “Science Under Siege” series. Also: Israeli politics; reform youth sports; need and greed.`\
+https://www.nytimes.com/2026/11/27/opinion/us-science.html
+
 **How to Use Your Leftovers**\
 `They’re arguably the best part of the Thanksgiving feast.`\
 https://www.nytimes.com/2026/11/27/briefing/thanksgiving-leftovers.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/travel/48-hours-in-tokyo-with-an-airline-pilo
 **How an Australian Troupe of Actors With Disabilities Conquered the World Stage**\
 `With a major Paris residency and a new work headed to Vienna, Back to Back Theater puts power dynamics and audience assumptions under a magnifying glass.`\
 https://www.nytimes.com/2026/11/27/theater/back-to-back-theatre-paris-vienna.html
-
-**75 Years On, Stravinsky’s Opera Is ‘a Piece of Our Time’**\
-`Dismissed as a backward-looking flop after its Venice premiere, “The Rake’s Progress” is returning to Italy with productions that find fresh resonance in its tale of greed and deception.`\
-https://www.nytimes.com/2026/11/27/arts/stravinsky-the-rakes-progress-opera.html
 

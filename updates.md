@@ -1,3 +1,7 @@
+**Attacks on Science: A Tragedy in Many Acts**\
+`Readers respond to articles in the “Science Under Siege” series. Also: Israeli politics; reform youth sports; need and greed.`\
+https://www.nytimes.com/2026/11/27/opinion/us-science.html
+
 **How to Use Your Leftovers**\
 `They’re arguably the best part of the Thanksgiving feast.`\
 https://www.nytimes.com/2026/11/27/briefing/thanksgiving-leftovers.html
