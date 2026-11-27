@@ -1,3 +1,7 @@
+**Princess Kate’s Cancer Documentary ‘Heal’: 3 Takeaways**\
+`‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
+https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
+
 **Johannesburg Lawmakers Snub Helen Zille in Mayoral Election**\
 `The selection of Herman Mashaba to lead South Africa’s wealthiest city was a blow to Helen Zille, the candidate whose party won the most votes in the election.`\
 https://www.nytimes.com/2026/11/27/world/africa/johannesburg-mayor-zille-mashaba-anc.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/business/inflation-consumer-spending-trade-of
 **A Journalist Fights for Free Speech in Egypt, and to Stay Out of Jail**\
 `The fate of Lina Attalah and her news outlet, Mada Masr, in two court cases is seen a test of whether the country’s independent press can survive.`\
 https://www.nytimes.com/2026/11/27/world/middleeast/egypt-journalist-trial-lina-attalah-mada-masr.html
-
-**How a New ‘Lilo & Stitch’ Short Came Together**\
-`A six-minute short that plays before Disney’s latest animated theatrical release, “Hexed,” is a throwback to the days of hand-drawn animation.`\
-https://www.nytimes.com/2026/11/27/movies/lilo-stitch-film-disney.html
 

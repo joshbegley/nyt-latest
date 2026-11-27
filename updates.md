@@ -1,3 +1,7 @@
+**Princess Kate’s Cancer Documentary ‘Heal’: 3 Takeaways**\
+`‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
+https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
+
 **Russia’s Big Ambitions for A.I. Are Undercut by Constraints of War**\
 `Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been held back.`\
 https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
