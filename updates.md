@@ -1,3 +1,11 @@
+**It’s Boom Times for Old TV Shows. New TV, Not So Much.**\
+`Fewer original series, decision fatigue and a desire for comfort have viewers escaping to the past.`\
+https://www.nytimes.com/2026/11/27/business/media/old-tv-shows-mad-men.html
+
+**Black Friday Deals and Holiday Sales Are Big Money for Influencers**\
+`A growing part of a brand’s Black Friday and Cyber Monday marketing strategy rests on paying top dollar for social media influencers to post videos.`\
+https://www.nytimes.com/2026/11/27/business/influencers-black-friday-deals-holiday-shopping.html
+
 **Climate Talks Imploded, but the ‘Age of Electricity’ Rolls On, Energy Chief Says**\
 `Fatih Birol, head of the International Energy Agency, said that market forces, data centers and energy security are driving the clean transition anyway.`\
 https://www.nytimes.com/2026/11/27/business/fatih-birol-iea-cop31-electrification.html
