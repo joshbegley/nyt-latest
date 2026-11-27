@@ -1,3 +1,7 @@
+**Thanksgiving Storm Leaves Half a Million Without Power on the East Coast**\
+`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were expected to gradually improve on Friday.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
+
 **Why Grand Theft Auto VI Is the Future**\
 `Pablo reacts to the game with big questions.`\
 https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terroris
 **Quote of the Day: The Small Town That Took on Amazon’s Plan for a Drone Hub**\
 `Quotation of the Day for Friday, November 27, 2026.`\
 https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-that-took-on-amazons-plan-for-a-drone-hub.html
-
-**The Threat to a Sanctuary for Children of North Korean Defectors**\
-`A school in Seoul caters to students whose parents fled North Korea. Neighbors want it gone, and students say it is just one example of the prejudice they face in the South.`\
-https://www.nytimes.com/2026/11/27/world/asia/the-threat-to-a-sanctuary-for-children-of-north-korean-defectors.html
 

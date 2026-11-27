@@ -1,3 +1,7 @@
+**Thanksgiving Storm Leaves Half a Million Without Power on the East Coast**\
+`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were expected to gradually improve on Friday.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
+
 **Why Grand Theft Auto VI Is the Future**\
 `Pablo reacts to the game with big questions.`\
 https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.html
