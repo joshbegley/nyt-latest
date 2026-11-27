@@ -1,3 +1,15 @@
+**NBC Pulls an Ad That Some Described as Antisemitic**\
+`The commercial appeared during a “Saturday Night Live” holiday special on Wednesday.`\
+https://www.nytimes.com/2026/11/27/business/media/nbc-ad-snl.html
+
+**Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms.**\
+`Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms. They were rescheduled to Friday, Saturday and beyond.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-delayed-storm.html
+
+**Police Link Release of Substance at Don Toliver Concert to Robbery Attempts**\
+`The police in Manchester, England, said they believed “organized criminals targeted people in the crowd to commit a series of robberies” during the concert on Sunday night.`\
+https://www.nytimes.com/2026/11/27/world/europe/don-toliver-manchester-substance-robberies.html
+
 **A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Tango in the City**\
 `A guide to Medellín, Colombia, where nature and design take center stage.`\
 https://www.nytimes.com/2026/11/27/t-magazine/medellin-colombia-hotels-restaurants.html
