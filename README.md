@@ -1,3 +1,31 @@
+**Holiday Deals Are Tempting. Here’s How to Avoid Buyer’s Remorse.**\
+`Some deals are too good to be true. Experts suggest doing the math, making lists and avoiding using “buy now, pay later” platforms to make purchases.`\
+https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
+
+**Just How Big Was the Grand Theft Auto VI Launch?**\
+`Crunching the numbers across movies, TV, tours and Super Bowls.`\
+https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html
+
+**How to Let Go of Holiday Resentment**\
+`You may be tempted to score-keep with loved ones, but experts say it’s rarely worthwhile.`\
+https://www.nytimes.com/2026/11/27/well/holiday-resentment-family-fights.html
+
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://www.nytimes.com/2026/11/27/movies/new-movies-this-week-critics.html
+
+**Practical Gifts People Will Actually Use (and Love)**\
+`Here are our favorite finds that nearly anyone would be happy to unwrap.`\
+https://www.nytimes.com/2026/11/27/podcasts/practical-gifts-people-will-actually-use-and-love.html
+
+**After Deadly Bondi Beach Shooting, Two Non-Jews Marry Under a Huppah**\
+`They treated victims of one of Australia’s worst mass shootings, which targeted a Hanukkah celebration. Last week an Orthodox rabbi married them, even though they’re not Jewish.`\
+https://www.nytimes.com/2026/11/27/us/australia-bondi-beach-shooting-wedding.html
+
+**How to Live Calmly, Despite Stock Market Whiplash**\
+`Nvidia has been down, up, and down again, and the market has followed. But there’s no need for long-term, diversified investors to alter their course, our columnist says.`\
+https://www.nytimes.com/2026/11/27/business/nvidia-jensen-huang-trump-markets.html
+
 **Which $1.5 Million Home in Vancouver Would You Choose?**\
 `For sale this week: A West Vancouver duplex with sea views, a downtown penthouse with a private terrace and a new build near the mountains.`\
 https://www.nytimes.com/2026/11/27/realestate/homes-for-sale-vancouver.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/27/world/asia/the-threat-to-a-sanctuary-for-chil
 **To Listen, You Must Stop Talking**\
 `I wanted to establish intimacy with my adult son before it was too late.`\
 https://www.nytimes.com/2026/11/27/style/modern-love-to-listen-you-must-stop-talking.html
-
-**An Airport Delay Led to an Unexpected Trip Down the Aisle**\
-`When a nationwide ground stop brought air travel to a halt, Chelsey Rogers and Jake Hinson pivoted and married at Hartsfield-Jackson Atlanta International Airport.`\
-https://www.nytimes.com/2026/11/27/style/chelsey-rogers-jake-hinson-wedding.html
-
-**She Needed a Guide. She Found Something More.**\
-`Emma Zorensky’s mountain climbing journey led her to Thomas Gilmore two years ago in Las Vegas.`\
-https://www.nytimes.com/2026/11/27/style/she-needed-a-guide-she-found-something-more.html
-
-**A Bit of Bad Luck Led to a Friday the 13th Wedding**\
-`Megan DeMarois joked to a friend that “maybe I’ll meet the love of my life on this flight,” just before she and Nathan Barnes became seatmates.`\
-https://www.nytimes.com/2026/11/27/style/megan-demarois-nathan-barnes-wedding.html
-
-**A Japanese Volleyball Player Breaks a Taboo**\
-`Rui Takahashi, 26, has made waves as one of only a few professional athletes to come out as gay in Japan.`\
-https://www.nytimes.com/2026/11/27/world/asia/a-japanese-volleyball-player-breaks-a-taboo.html
-
-**Her Vision Was Blurry, but Their Connection Was Clear**\
-`For years, Janice Aduhene had premonitions about her future husband. By the end of her first date with Michel Kwarteng at a bar in Accra, Ghana, she was convinced that she had found him.`\
-https://www.nytimes.com/2026/11/27/style/janice-aduhene-michel-kwarteng-wedding.html
-
-**An Instant Hit With the Group Chat**\
-`Tara Goutermout was newly out when she met Taylor Dunn at a Pride party. Her friends quickly wanted to claim Dunn, too.`\
-https://www.nytimes.com/2026/11/27/style/tara-goutermout-taylor-dunn-wedding.html
-
-**From the Front Page: Harvey Milk and George Moscone Are Assassinated on Nov. 27, 1978**\
-`The San Francisco supervisor and mayor were killed at City Hall. Milk was one of the nation’s first openly gay elected officials.`\
-https://www.nytimes.com/2026/11/27/learning/from-the-front-page-harvey-milk-and-george-moscone-are-assassinated-on-nov-27-1978.html
 
