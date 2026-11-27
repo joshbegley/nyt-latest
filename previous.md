@@ -1,4 +1,4 @@
-**Far-Left Terrorism Is Not the Biggest Threat to America**\
+**Why Is the Trump Administration So Focused on the Threat of Far-Left Terror?**\
 `The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
 https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
 
