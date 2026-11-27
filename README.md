@@ -1,3 +1,7 @@
+**How to Use Your Leftovers**\
+`They’re arguably the best part of the Thanksgiving feast.`\
+https://www.nytimes.com/2026/11/27/briefing/thanksgiving-leftovers.html
+
 **Stocks Set to Rally at End of a Week of Wild Swings**\
 `Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
 https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/theater/back-to-back-theatre-paris-vienna.htm
 **75 Years On, Stravinsky’s Opera Is ‘a Piece of Our Time’**\
 `Dismissed as a backward-looking flop after its Venice premiere, “The Rake’s Progress” is returning to Italy with productions that find fresh resonance in its tale of greed and deception.`\
 https://www.nytimes.com/2026/11/27/arts/stravinsky-the-rakes-progress-opera.html
-
-**Plaque by Plaque, Russia Erases the Memory of the Gulag’s Horrors**\
-`The Kremlin’s rehabilitation of Stalin, who presided over the brutal labor camps of the Gulag, has accelerated during Russia’s war in Ukraine.`\
-https://www.nytimes.com/2026/11/27/world/europe/russia-gulag-memory.html
 
