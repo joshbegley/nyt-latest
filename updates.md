@@ -1,3 +1,11 @@
+**Canada’s Top Court Lets Quebec Use Controversial Measure for Secularism Law**\
+`Quebec had used the measure to pass a law barring certain public workers, like schoolteachers and police officers, from wearing religious symbols on duty, which critics called discriminatory.`\
+https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html
+
+**What to Do About the Epidemic of Bad Dogs**\
+`The status quo view of good and bad dog behavior is often deeply unfair to dogs.`\
+https://www.nytimes.com/2026/11/27/opinion/what-to-do-about-the-epidemic-of-bad-dogs.html
+
 **Our Favorite GMT Watches, at a Range of Prices**\
 `Originally designed for airline pilots, these GMT styles will keep you connected to multiple time zones.`\
 https://www.nytimes.com/2026/11/27/t-magazine/gmt-watches-time-zones.html
