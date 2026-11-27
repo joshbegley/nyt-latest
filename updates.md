@@ -1,3 +1,7 @@
+**On the Thanksgiving Menu for National Weather Service Meteorologists**\
+`National Weather Service meteorologists keep their offices running all year, even on weekends and holidays. Here’s what was on the menu over a wet and gusty Thanksgiving.`\
+https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgiving-storm.html
+
 **Thanksgiving Storm Brings Flooding and Strong Winds to East Coast**\
 `A Thanksgiving storm lashed much of the East Coast on Thursday, bringing winds up to 65 miles per hour in some places.`\
 https://www.nytimes.com/video/us/100000011311111/thanksgiving-storm-east-coast.html
