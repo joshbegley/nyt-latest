@@ -1,3 +1,11 @@
+**What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
+`Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
+https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html
+
+**Mamdani Underwent Successful Achilles’ Tendon Surgery, Spokesman Says**\
+`Mayor Zohran Mamdani, who injured himself playing soccer, returned to Gracie Mansion and was expected to make a “full recovery,” the spokesman said.`\
+https://www.nytimes.com/2026/11/27/nyregion/mamdani-achilles-tendon-surgery-success.html
+
 **Princess Kate’s Cancer Documentary ‘Heal’: 3 Takeaways**\
 `‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
 https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/27/books/review/the-end-of-everything-m-john-har
 **Book Club: Let’s Talk About ‘The Calamity Club’**\
 `Kathryn Stockett’s second novel is about two outcasts in Mississippi working to change their fate.`\
 https://www.nytimes.com/2026/11/27/books/review/podcast-book-club-calamity-club.html
-
-**As Prices Rise, Americans Are Making Trade-Offs Rather Than Cutting Back**\
-`Within strong consumer spending lie the decisions many families are making to stretch their dollars to cover the meals, trips and activities they value most.`\
-https://www.nytimes.com/2026/11/27/business/inflation-consumer-spending-trade-offs-holidays.html
-
-**A Journalist Fights for Free Speech in Egypt, and to Stay Out of Jail**\
-`The fate of Lina Attalah and her news outlet, Mada Masr, in two court cases is seen a test of whether the country’s independent press can survive.`\
-https://www.nytimes.com/2026/11/27/world/middleeast/egypt-journalist-trial-lina-attalah-mada-masr.html
 

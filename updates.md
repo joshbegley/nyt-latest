@@ -1,3 +1,11 @@
+**What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
+`Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
+https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html
+
+**Mamdani Underwent Successful Achilles’ Tendon Surgery, Spokesman Says**\
+`Mayor Zohran Mamdani, who injured himself playing soccer, returned to Gracie Mansion and was expected to make a “full recovery,” the spokesman said.`\
+https://www.nytimes.com/2026/11/27/nyregion/mamdani-achilles-tendon-surgery-success.html
+
 **Princess Kate’s Cancer Documentary ‘Heal’: 3 Takeaways**\
 `‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
 https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
