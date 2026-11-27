@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 27, 2026**\
+`Rafael Musa opens our solving weekend.`\
+https://www.nytimes.com/2026/11/26/crosswords/daily-puzzle-2026-11-27.html
+
 **After the Iowa Detonation, a Family Gathered for an Unusual Thanksgiving**\
 `A family came together at a farmhouse in southeast Iowa the day after the explosion at an ammunition plant. It felt as if a storm had passed.`\
 https://www.nytimes.com/2026/11/26/us/iowa-detonation-family-thanksgiving.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/2026/11/26/science/john-urschel-ai-nfl-math.html
 **36 Hours in Penang, Malaysia: Things to Do and See**\
 `A new wave of creatives, chefs and hoteliers are drawing inspiration from the region’s multiculturalism.`\
 https://www.nytimes.com/interactive/2026/11/26/travel/things-to-do-penang.html
-
-**How Birds With GPS and Audio Sensors Track Hidden Fishing Boats**\
-`Researchers are using seabirds equipped with GPS and audio gear to detect vessels that operate with no tracking signals and to assess the environmental hazards they pose.`\
-https://www.nytimes.com/2026/11/26/climate/seabirds-tracking-hidden-fishing-boats.html
 

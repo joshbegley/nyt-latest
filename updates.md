@@ -1,3 +1,7 @@
+**NYT Crossword Answers for Nov. 27, 2026**\
+`Rafael Musa opens our solving weekend.`\
+https://www.nytimes.com/2026/11/26/crosswords/daily-puzzle-2026-11-27.html
+
 **Ontario Premier Says He’d Use a Gun to Protect His Family**\
 `Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
 https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
