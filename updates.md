@@ -1,3 +1,7 @@
+**Five Big Questions for the 2028 Presidential Race**\
+`Will JD Vance and Marco Rubio run? What about Kamala Harris and Alexandria Ocasio-Cortez? And, of course, what role will President Trump play?`\
+https://www.nytimes.com/2026/11/27/us/politics/2028-presidential-race-questions.html
+
 **Attacks on Science: A Tragedy in Many Acts**\
 `Readers respond to articles in the “Science Under Siege” series. Also: Israeli politics; reform youth sports; need and greed.`\
 https://www.nytimes.com/2026/11/27/opinion/us-science.html
