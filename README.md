@@ -1,3 +1,7 @@
+**A Leading Mathematician’s Take on A.I.**\
+`A “hero to a lot of A.I. researchers,” the mathematician Terence Tao has worked closely with technology companies for decades. On the “Hard Fork” podcast, he shares his opinions about whether A.I. is helpful or hurtful.`\
+https://www.nytimes.com/video/podcasts/100000011311709/a-leading-mathematicians-take-on-ai.html
+
 **With Dancing Robots, Russia Projects a Future Shaped by A.I., Not War**\
 `Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been constrained.`\
 https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/us/politics/100000011296388/trump-dc-golf-course-p
 **44 Fun Things to Do in N.Y.C. for the Holidays**\
 `With multiple tree lighting ceremonies, markets and performances, the next few weeks in the city can be exciting but overwhelming. This guide cuts through the noise.`\
 https://www.nytimes.com/2026/11/27/arts/nyc-holidays-things-to-do.html
-
-**Homo Erectus Lived in Rainforests, Upending Ideas About Their Adaptability**\
-`A handful of teeth reveals that our distant relatives survived in the dense rainforests of southern China, expanding our understanding of their flexibility.`\
-https://www.nytimes.com/2026/11/27/science/homo-erectus-early-humans-china-rainforests.html
 
