@@ -14,7 +14,7 @@ https://www.nytimes.com/2026/11/26/nyregion/teaneck-shooting-football-game-turke
 `The inmate, Rebecca Taylor, 26, took control of the S.U.V. in a Whataburger parking lot as she was being returned to prison from a prenatal appointment, the authorities said.`\
 https://www.nytimes.com/2026/11/26/us/pregnant-inmate-escapes-new-mexico.html
 
-**Doug Ford Says He’d Use a Gun to Protect His Family**\
+**Ontario Premier Says He’d Use a Gun to Protect His Family**\
 `Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
 https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
 
@@ -150,8 +150,8 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
-**Thanksgiving Storm Live Updates: Nearly 750,000 Without Power on East Coast**\
-`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The strongest part of the storm was moving into New York, New Jersey and Connecticut.`\
+**Thanksgiving Storm Live Updates: More Than 750,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The storm was moving north into New England after battering New York, New Jersey and Connecticut.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
 **Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
