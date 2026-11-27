@@ -1,3 +1,7 @@
+**NBC Pulls an Ad That Some Described as Antisemitic**\
+`The commercial appeared during a “Saturday Night Live” holiday special on Wednesday.`\
+https://www.nytimes.com/2026/11/27/business/media/nbc-ad-snl.html
+
 **Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms.**\
 `Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms. They were rescheduled to Friday, Saturday and beyond.`\
 https://www.nytimes.com/2026/11/27/us/thanksgiving-delayed-storm.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/podcasts/practical-gifts-people-will-actually
 **After Deadly Bondi Beach Shooting, Two Non-Jews Marry Under a Huppah**\
 `They treated victims of one of Australia’s worst mass shootings, which targeted a Hanukkah celebration. Last week an Orthodox rabbi married them, even though they’re not Jewish.`\
 https://www.nytimes.com/2026/11/27/us/australia-bondi-beach-shooting-wedding.html
-
-**How to Live Calmly, Despite Stock Market Whiplash**\
-`Nvidia has been down, up, and down again, and the market has followed. But there’s no need for long-term, diversified investors to alter their course, our columnist says.`\
-https://www.nytimes.com/2026/11/27/business/nvidia-jensen-huang-trump-markets.html
 
