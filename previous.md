@@ -67,7 +67,7 @@ https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.ht
 https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
 
 **Just How Big Was the Grand Theft Auto VI Launch?**\
-`Crunching the numbers across movies, TV, tours and Super Bowls.`\
+`(No description)`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html
 
 **How to Let Go of Holiday Resentment**\

@@ -1,3 +1,7 @@
+**Just How Big Was the Grand Theft Auto VI Launch?**\
+`(No description)`\
+https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html
+
 **Three Great Documentaries to Stream**\
 `This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
 https://www.nytimes.com/2026/11/27/movies/great-documentaries-streaming.html
