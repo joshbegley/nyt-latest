@@ -1,3 +1,11 @@
+**Three Great Documentaries to Stream**\
+`This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
+https://www.nytimes.com/2026/11/27/movies/great-documentaries-streaming.html
+
+**48 Hours in Tokyo With an Airline Pilot**\
+`A Boeing 787 pilot visits some favorite restaurants, a Snoopy museum and a tranquil shrine.`\
+https://www.nytimes.com/2026/11/27/travel/48-hours-tokyo-layover.html
+
 **Stocks Rally at End of a Week of Wild Swings**\
 `Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
 https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
