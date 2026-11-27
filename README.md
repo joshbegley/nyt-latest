@@ -120,7 +120,7 @@ https://www.nytimes.com/2026/11/27/movies/focker-in-law-cast-gisondo-feldstein-f
 
 **Three Great Documentaries to Stream**\
 `This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
-https://www.nytimes.com/2026/11/27/movies/three-great-documentaries-to-stream.html
+https://www.nytimes.com/2026/11/27/movies/great-documentaries-streaming.html
 
 **Sean Panikkar on Quickly Learning His Role in the Met’s ‘Jenufa’**\
 `For the Metropolitan Opera’s new production of “Jenufa,” Sean Panikkar learned the role of Laca in under two weeks. He talks about how it came together.`\
@@ -196,5 +196,5 @@ https://www.nytimes.com/2026/11/27/arts/music/alanis-morissette-christmas-album.
 
 **48 Hours in Tokyo With an Airline Pilot**\
 `A Boeing 787 pilot visits some favorite restaurants, a Snoopy museum and a tranquil shrine.`\
-https://www.nytimes.com/2026/11/27/travel/48-hours-in-tokyo-with-an-airline-pilot.html
+https://www.nytimes.com/2026/11/27/travel/48-hours-tokyo-layover.html
 
