@@ -1,3 +1,43 @@
+**Quote of the Day: The Small Town That Took on Amazon’s Plan for a Drone Hub**\
+`Quotation of the Day for Friday, November 27, 2026.`\
+https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-that-took-on-amazons-plan-for-a-drone-hub.html
+
+**The Threat to a Sanctuary for Children of North Korean Defectors**\
+`A school in Seoul caters to students whose parents fled North Korea. Neighbors want it gone, and students say it is just one example of the prejudice they face in the South.`\
+https://www.nytimes.com/2026/11/27/world/asia/the-threat-to-a-sanctuary-for-children-of-north-korean-defectors.html
+
+**To Listen, You Must Stop Talking**\
+`I wanted to establish intimacy with my adult son before it was too late.`\
+https://www.nytimes.com/2026/11/27/style/modern-love-to-listen-you-must-stop-talking.html
+
+**An Airport Delay Led to an Unexpected Trip Down the Aisle**\
+`When a nationwide ground stop brought air travel to a halt, Chelsey Rogers and Jake Hinson pivoted and married at Hartsfield-Jackson Atlanta International Airport.`\
+https://www.nytimes.com/2026/11/27/style/chelsey-rogers-jake-hinson-wedding.html
+
+**She Needed a Guide. She Found Something More.**\
+`Emma Zorensky’s mountain climbing journey led her to Thomas Gilmore two years ago in Las Vegas.`\
+https://www.nytimes.com/2026/11/27/style/she-needed-a-guide-she-found-something-more.html
+
+**A Bit of Bad Luck Led to a Friday the 13th Wedding**\
+`Megan DeMarois joked to a friend that “maybe I’ll meet the love of my life on this flight,” just before she and Nathan Barnes became seatmates.`\
+https://www.nytimes.com/2026/11/27/style/megan-demarois-nathan-barnes-wedding.html
+
+**A Japanese Volleyball Player Breaks a Taboo**\
+`Rui Takahashi, 26, has made waves as one of only a few professional athletes to come out as gay in Japan.`\
+https://www.nytimes.com/2026/11/27/world/asia/a-japanese-volleyball-player-breaks-a-taboo.html
+
+**Her Vision Was Blurry, but Their Connection Was Clear**\
+`For years, Janice Aduhene had premonitions about her future husband. By the end of her first date with Michel Kwarteng at a bar in Accra, Ghana, she was convinced that she had found him.`\
+https://www.nytimes.com/2026/11/27/style/janice-aduhene-michel-kwarteng-wedding.html
+
+**An Instant Hit With the Group Chat**\
+`Tara Goutermout was newly out when she met Taylor Dunn at a Pride party. Her friends quickly wanted to claim Dunn, too.`\
+https://www.nytimes.com/2026/11/27/style/tara-goutermout-taylor-dunn-wedding.html
+
+**From the Front Page: Harvey Milk and George Moscone Are Assassinated on Nov. 27, 1978**\
+`The San Francisco supervisor and mayor were killed at City Hall. Milk was one of the nation’s first openly gay elected officials.`\
+https://www.nytimes.com/2026/11/27/learning/from-the-front-page-harvey-milk-and-george-moscone-are-assassinated-on-nov-27-1978.html
+
 **NYT Crossword Answers for Nov. 27, 2026**\
 `Rafael Musa opens our solving weekend.`\
 https://www.nytimes.com/2026/11/26/crosswords/daily-puzzle-2026-11-27.html
@@ -157,40 +197,4 @@ https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 **Thanksgiving Storm Live Updates: More Than 700,000 Without Power on East Coast**\
 `There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The storm was moving north into New England after battering New York, New Jersey and Connecticut.`\
 https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
-
-**Photos: Macy’s Thanksgiving Day Parade History and Wacky Moments**\
-`It isn’t always easy to keep New York City’s Thanksgiving parade on track. Here’s a look back at notable moments and mishaps.`\
-https://www.nytimes.com/2026/11/26/nyregion/macys-thanksgiving-parade-history-timeline.html
-
-**It’s Time to Celebrate Soup**\
-`Warm and hearty recipes, plus a new home décor shop in Los Angeles, illustrated fashion books and more.`\
-https://www.nytimes.com/2026/11/26/t-magazine/its-time-to-celebrate-soup.html
-
-**‘Pumpkin Pie Is Disgusting’ and Other Unpopular Opinions**\
-`We give thanks. Lots of thanks. Really.`\
-https://www.nytimes.com/2026/11/26/opinion/thanksgiving-america-education-disabilities.html
-
-**Donate This Holiday Season: CURE Epilepsy Needs Your Help**\
-`Unlikely friends, a common cause.`\
-https://www.nytimes.com/2026/11/26/opinion/charity-holiday-gift-epilepsy.html
-
-**The E.R. Closed at 5 P.M. A Dying Woman Showed Up 11 Minutes Too Late.**\
-`In rural British Columbia, Courtney McCowan died after paramedics tried to help her in a hospital’s parking lot.`\
-https://www.nytimes.com/2026/11/26/world/canada/port-hardy-woman-dies-outside-er.html
-
-**El Salvador’s Nayib Bukele Elates Haiti With Fight Against Gangs**\
-`The president of El Salvador has widespread support among Haitians, who are tired of violence and hope he can be the one to finally end it.`\
-https://www.nytimes.com/2026/11/26/world/americas/nayib-bukele-salvador-haiti.html
-
-**A Beloved Deli, a Stolen Van and the Neighborhood That Got It Back**\
-`At one throwback of a shop in Philadelphia, an owner gave thanks to the regulars who refused to stand by after a recent theft.`\
-https://www.nytimes.com/2026/11/26/us/deli-owner-van-stolen-philadelphia.html
-
-**The N.F.L. Player Who Left Football for Math**\
-`John Urschel left the game in part because of health risks. Now he’s scoring points in a new profession, but A.I. looms as a different kind of career hazard.`\
-https://www.nytimes.com/2026/11/26/science/john-urschel-ai-nfl-math.html
-
-**36 Hours in Penang, Malaysia: Things to Do and See**\
-`A new wave of creatives, chefs and hoteliers are drawing inspiration from the region’s multiculturalism.`\
-https://www.nytimes.com/interactive/2026/11/26/travel/things-to-do-penang.html
 
