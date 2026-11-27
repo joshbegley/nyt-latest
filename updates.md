@@ -1,3 +1,11 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include well-planned heists, a $1 billion loan recovery mission and a family battle against mercenaries.`\
+https://www.nytimes.com/2026/11/27/movies/action-movies-streaming.html
+
+**Leftover Turkey? This Stacked Sandwich Is Your Next Move.**\
+`That and more recipes to make the most of your second-day Thanksgiving bounty.`\
+https://www.nytimes.com/2026/11/27/dining/leftover-turkey-this-stacked-sandwich-is-your-next-move.html
+
 **In Democrats vs. Trump, the Loser May Be Federal Contractors**\
 `The incoming Democratic majorities have begun targeting businesses and other outsiders in their planned inquiries, but the president has threatened to fire them if they comply without his permission.`\
 https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigations-contractors.html
