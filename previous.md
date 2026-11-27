@@ -22,8 +22,8 @@ https://www.nytimes.com/video/podcasts/100000011311712/why-tech-companies-left-a
 `A “hero to a lot of A.I. researchers,” the mathematician Terence Tao has worked closely with technology companies for decades. On the “Hard Fork” podcast, he shares his opinions about whether A.I. is helpful or hurtful.`\
 https://www.nytimes.com/video/podcasts/100000011311709/a-leading-mathematicians-take-on-ai.html
 
-**With Dancing Robots, Russia Projects a Future Shaped by A.I., Not War**\
-`Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been constrained.`\
+**Russia’s Big Ambitions for A.I. Are Undercut by Constraints of War**\
+`Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been held back.`\
 https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
 
 **Julio Torres on His Favorite Books and ‘The Perfect Gift’**\
@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
 https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
 
 **Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
-`Conditions continued to improve on Friday after a storm brought heavy rain and strong winds from Virginia to New York. But many remained without power and travel disruptions persisted.`\
+`Conditions continued to improve on Friday after heavy rain and strong winds lashed the coast from Virginia to New York. But many remained without power and travel disruptions persisted.`\
 https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
 
 **Why Grand Theft Auto VI Is the Future**\
