@@ -1,3 +1,7 @@
+**Five Big Questions for the 2028 Presidential Race**\
+`Will JD Vance and Marco Rubio run? What about Kamala Harris and Alexandria Ocasio-Cortez? And, of course, what role will President Trump play?`\
+https://www.nytimes.com/2026/11/27/us/politics/2028-presidential-race-questions.html
+
 **Attacks on Science: A Tragedy in Many Acts**\
 `Readers respond to articles in the “Science Under Siege” series. Also: Israeli politics; reform youth sports; need and greed.`\
 https://www.nytimes.com/2026/11/27/opinion/us-science.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/arts/music/alanis-morissette-christmas-album.
 **48 Hours in Tokyo With an Airline Pilot**\
 `A Boeing 787 pilot visits some favorite restaurants, a Snoopy museum and a tranquil shrine.`\
 https://www.nytimes.com/2026/11/27/travel/48-hours-in-tokyo-with-an-airline-pilot.html
-
-**How an Australian Troupe of Actors With Disabilities Conquered the World Stage**\
-`With a major Paris residency and a new work headed to Vienna, Back to Back Theater puts power dynamics and audience assumptions under a magnifying glass.`\
-https://www.nytimes.com/2026/11/27/theater/back-to-back-theatre-paris-vienna.html
 
