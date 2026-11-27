@@ -1,3 +1,7 @@
+**Canada’s Top Court Lets Quebec Use Controversial Measure for Secularism Law**\
+`Quebec had used the measure to pass a law barring certain public workers, like schoolteachers and police officers, from wearing religious symbols on duty, which critics called discriminatory.`\
+https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html
+
 **Our Favorite GMT Watches, at a Range of Prices**\
 `Originally designed for airline pilots, these GMT styles will keep you connected to multiple time zones.`\
 https://www.nytimes.com/2026/11/27/t-magazine/gmt-watches-time-zones.html
@@ -63,7 +67,7 @@ https://www.nytimes.com/2026/11/27/podcasts/hardfork-terence-tao.html
 https://www.nytimes.com/video/podcasts/100000011310629/how-ai-is-transforming-mathematics.html
 
 **What to Do About the Epidemic of Bad Dogs**\
-`The status quo narrative of good and bad dog behavior is often deeply unfair to dogs.`\
+`The status quo view of good and bad dog behavior is often deeply unfair to dogs.`\
 https://www.nytimes.com/2026/11/27/opinion/what-to-do-about-the-epidemic-of-bad-dogs.html
 
 **Religion Is a Solution to the Problems of Our Tech Age**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/video/t-magazine/100000011308774/the-diy-puppets-roaming
 **Why Are So Many Novels Placing Their Protagonists on Their Deathbeds?**\
 `George Saunders, Emma Cline and Ben Lerner were among those who mined characters’ last days, seeking renewed poignancy in a timeless theme.`\
 https://www.nytimes.com/2026/11/27/t-magazine/deathbed-novels.html
-
-**14 New Books to Read in December: Casey McQuiston, Chris Wallace, Rosie Danan and More**\
-`Holiday romance, an Alpine thriller, an inside look at the founding of Pitchfork and more.`\
-https://www.nytimes.com/2026/11/27/books/new-books-december.html
 

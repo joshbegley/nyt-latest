@@ -1,3 +1,7 @@
+**Our Favorite GMT Watches, at a Range of Prices**\
+`Originally designed for airline pilots, these GMT styles will keep you connected to multiple time zones.`\
+https://www.nytimes.com/2026/11/27/t-magazine/gmt-watches-time-zones.html
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include well-planned heists, a $1 billion loan recovery mission and a family battle against mercenaries.`\
 https://www.nytimes.com/2026/11/27/movies/action-movies-streaming.html
