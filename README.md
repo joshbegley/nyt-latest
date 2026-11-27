@@ -1,3 +1,11 @@
+**Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms.**\
+`Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms. They were rescheduled to Friday, Saturday and beyond.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-delayed-storm.html
+
+**Police Link Release of Substance at Don Toliver Concert to Robbery Attempts**\
+`The police in Manchester, England, said they believed “organized criminals targeted people in the crowd to commit a series of robberies” during the concert on Sunday night.`\
+https://www.nytimes.com/2026/11/27/world/europe/don-toliver-manchester-substance-robberies.html
+
 **California Hiker Falls 500 Feet to His Death While Trying to Help Son**\
 `Guillermo Batres, 44, slipped while hiking Mount Baden-Powell, northeast of Los Angeles, earlier this week. Two other hikers who were nearby rescued his teenage son and called 911.`\
 https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/27/us/australia-bondi-beach-shooting-wedding.htm
 **How to Live Calmly, Despite Stock Market Whiplash**\
 `Nvidia has been down, up, and down again, and the market has followed. But there’s no need for long-term, diversified investors to alter their course, our columnist says.`\
 https://www.nytimes.com/2026/11/27/business/nvidia-jensen-huang-trump-markets.html
-
-**Which $1.5 Million Home in Vancouver Would You Choose?**\
-`For sale this week: A West Vancouver duplex with sea views, a downtown penthouse with a private terrace and a new build near the mountains.`\
-https://www.nytimes.com/2026/11/27/realestate/homes-for-sale-vancouver.html
-
-**Book Club: Read ‘The End of Everything,’ by M. John Harrison, With the Book Review**\
-`In December, the Book Review Book Club will read and discuss Harrison’s Booker Prize-winning novel, about a strange future where aliens have invaded Earth.`\
-https://www.nytimes.com/2026/11/27/books/review/the-end-of-everything-m-john-harrison-book-club.html
 
