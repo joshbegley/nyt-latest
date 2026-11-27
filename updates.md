@@ -1,3 +1,7 @@
+**Stocks Set to Rally at End of a Week of Wild Swings**\
+`Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
+https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
+
 **Black Friday No Longer Makes the Slightest Bit of Sense**\
 `In an all-sale all-the-time climate, why bother?`\
 https://www.nytimes.com/2026/11/27/opinion/black-friday-no-longer-makes-the-slightest-bit-of-sense.html

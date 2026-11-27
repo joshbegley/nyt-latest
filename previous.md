@@ -1,3 +1,7 @@
+**Stocks Set to Rally at End of a Week of Wild Swings**\
+`Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
+https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
+
 **Black Friday No Longer Makes the Slightest Bit of Sense**\
 `In an all-sale all-the-time climate, why bother?`\
 https://www.nytimes.com/2026/11/27/opinion/black-friday-no-longer-makes-the-slightest-bit-of-sense.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/arts/stravinsky-the-rakes-progress-opera.html
 **Plaque by Plaque, Russia Erases the Memory of the Gulag’s Horrors**\
 `The Kremlin’s rehabilitation of Stalin, who presided over the brutal labor camps of the Gulag, has accelerated during Russia’s war in Ukraine.`\
 https://www.nytimes.com/2026/11/27/world/europe/russia-gulag-memory.html
-
-**The Society Page Reporter Who Outraged the Jet Set**\
-`Before there was Tom Wolfe, there was Charlotte Curtis, who turned Park Avenue into news.`\
-https://www.nytimes.com/2026/11/27/style/charlotte-curtis-black-panthers.html
 
