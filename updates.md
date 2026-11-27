@@ -1,3 +1,11 @@
+**A.I. Is the “800-Pound Gorilla” Facing Mathematicians**\
+`Artificial intelligence can solve math problems but cannot explain how it arrives at the answer, according to the mathematician Terence Tao. Tao speaks on the “Hard Fork” podcast about how A.I. impacts his industry.`\
+https://www.nytimes.com/video/podcasts/100000011311742/ai-is-the-800-pound-gorilla-facing-mathematicians.html
+
+**Why Tech Companies Left Academics Behind**\
+`Until recently, technology companies collaborated closely with mathematicians and academics, like the renowned mathematician Terence Tao. On the “Hard Fork” podcast, Tao explains how the relationship between tech and academics is shifting with the rise of artificial intelligence.`\
+https://www.nytimes.com/video/podcasts/100000011311712/why-tech-companies-left-academics-behind.html
+
 **A Leading Mathematician’s Take on A.I.**\
 `A “hero to a lot of A.I. researchers,” the mathematician Terence Tao has worked closely with technology companies for decades. On the “Hard Fork” podcast, he shares his opinions about whether A.I. is helpful or hurtful.`\
 https://www.nytimes.com/video/podcasts/100000011311709/a-leading-mathematicians-take-on-ai.html
