@@ -1,3 +1,7 @@
+**Planning Board to Hold Last-Minute Meeting to Consider Trump’s D.C. Construction**\
+`President Trump will lose control over the National Capital Planning Commission after Democrats take control of Congress in January. It could give final approval to some of his prized projects.`\
+https://www.nytimes.com/2026/11/27/us/politics/planning-board-trump-construction-meeting.html
+
 **NBC Pulls an Ad That Some Described as Antisemitic**\
 `The commercial appeared during a “Saturday Night Live” holiday special on Wednesday.`\
 https://www.nytimes.com/2026/11/27/business/media/nbc-ad-snl.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/movies/new-movies-this-week-critics.html
 **Practical Gifts People Will Actually Use (and Love)**\
 `Here are our favorite finds that nearly anyone would be happy to unwrap.`\
 https://www.nytimes.com/2026/11/27/podcasts/practical-gifts-people-will-actually-use-and-love.html
-
-**After Deadly Bondi Beach Shooting, Two Non-Jews Marry Under a Huppah**\
-`They treated victims of one of Australia’s worst mass shootings, which targeted a Hanukkah celebration. Last week an Orthodox rabbi married them, even though they’re not Jewish.`\
-https://www.nytimes.com/2026/11/27/us/australia-bondi-beach-shooting-wedding.html
 

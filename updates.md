@@ -1,3 +1,7 @@
+**Planning Board to Hold Last-Minute Meeting to Consider Trump’s D.C. Construction**\
+`President Trump will lose control over the National Capital Planning Commission after Democrats take control of Congress in January. It could give final approval to some of his prized projects.`\
+https://www.nytimes.com/2026/11/27/us/politics/planning-board-trump-construction-meeting.html
+
 **NBC Pulls an Ad That Some Described as Antisemitic**\
 `The commercial appeared during a “Saturday Night Live” holiday special on Wednesday.`\
 https://www.nytimes.com/2026/11/27/business/media/nbc-ad-snl.html
