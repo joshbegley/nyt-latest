@@ -42,8 +42,8 @@ https://www.nytimes.com/2026/11/27/world/europe/marijuana-farm-spain-playground.
 `Can you sort 8 historical events?`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/flashback.html
 
-**Canada’s Top Court Lets Quebec Use Controversial Measure for Secularism Law**\
-`Quebec had used the measure to pass a law barring certain public workers, like schoolteachers and police officers, from wearing religious symbols on duty, which critics called discriminatory.`\
+**Quebec Can Keep Its Ban on Religious Symbols, Canada’s Top Court Rules**\
+`In a landmark decision, the Supreme Court backed the province’s use of a constitutional override while leaving the door open to future legal scrutiny.`\
 https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html
 
 **Our Favorite GMT Watches, at a Range of Prices**\
