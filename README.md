@@ -114,13 +114,13 @@ https://www.nytimes.com/2026/11/27/movies/focker-in-law-cast-gisondo-feldstein-f
 `This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
 https://www.nytimes.com/2026/11/27/movies/three-great-documentaries-to-stream.html
 
-**D.C. Golfers Keep Playing Despite Trump-Ordered Course Closure**\
-`President Trump’s latest target in his push to remake Washington is turning a municipal golf course into a world-class, championship-ready site. But the proposed changes have local residents and high school golfers worried they will soon lose access to an affordable place to play.`\
-https://www.nytimes.com/video/us/politics/100000011296388/trump-dc-golf-course-pga.html
-
 **Sean Panikkar on Quickly Learning His Role in the Met’s ‘Jenufa’**\
 `For the Metropolitan Opera’s new production of “Jenufa,” Sean Panikkar learned the role of Laca in under two weeks. He talks about how it came together.`\
 https://www.nytimes.com/2026/11/27/arts/music/metropolitan-opera-jenufa-sean-panikkar.html
+
+**D.C. Golfers Keep Playing Despite Trump-Ordered Course Closure**\
+`President Trump’s latest target in his push to remake Washington is turning a municipal golf course into a world-class, championship-ready site. But the proposed changes have local residents and high school golfers worried they will soon lose access to an affordable place to play.`\
+https://www.nytimes.com/video/us/politics/100000011296388/trump-dc-golf-course-pga.html
 
 **44 Fun Things to Do in N.Y.C. for the Holidays**\
 `With multiple tree lighting ceremonies, markets and performances, the next few weeks in the city can be exciting but overwhelming. This guide cuts through the noise.`\
