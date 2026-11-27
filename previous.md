@@ -1,3 +1,7 @@
+**Tonight’s Forecast Is Rain, Wind — and Leftover Turkey**\
+`National Weather Service meteorologists keep their offices running all year, even on weekends and holidays. Here’s what was on the menu over a wet and gusty Thanksgiving.`\
+https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgiving-storm.html
+
 **Why Is the Trump Administration So Focused on the Threat of Far-Left Terror?**\
 `The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
 https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/26/crosswords/strands-sidekick-999.html
 **NYT Connections Answers for November 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
 https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
-
-**Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
-`The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
-https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
 
