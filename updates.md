@@ -1,3 +1,7 @@
+**How to Use Your Leftovers**\
+`They’re arguably the best part of the Thanksgiving feast.`\
+https://www.nytimes.com/2026/11/27/briefing/thanksgiving-leftovers.html
+
 **Stocks Set to Rally at End of a Week of Wild Swings**\
 `Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
 https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
