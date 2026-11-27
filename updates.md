@@ -1,3 +1,7 @@
+**Climate Talks Imploded, but the ‘Age of Electricity’ Rolls On, Energy Chief Says**\
+`Fatih Birol, head of the International Energy Agency, said that market forces, data centers and energy security are driving the clean transition anyway.`\
+https://www.nytimes.com/2026/11/27/business/fatih-birol-iea-cop31-electrification.html
+
 **Just How Big Was the Grand Theft Auto VI Launch?**\
 `(No description)`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html

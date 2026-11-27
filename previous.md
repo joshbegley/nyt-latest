@@ -1,3 +1,7 @@
+**Climate Talks Imploded, but the ‘Age of Electricity’ Rolls On, Energy Chief Says**\
+`Fatih Birol, head of the International Energy Agency, said that market forces, data centers and energy security are driving the clean transition anyway.`\
+https://www.nytimes.com/2026/11/27/business/fatih-birol-iea-cop31-electrification.html
+
 **Five Big Questions for the 2028 Presidential Race**\
 `Will JD Vance and Marco Rubio run? What about Kamala Harris and Alexandria Ocasio-Cortez? And, of course, what role will President Trump play?`\
 https://www.nytimes.com/2026/11/27/us/politics/2028-presidential-race-questions.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/well/veterans-carousel-of-happiness-colorado.
 **Alanis Morissette Made a Christmas Album for the Rest of Us**\
 `“Good Weather for Immaculate Conception” features holiday classics and original songs that ruminate on the season in surprising, occasionally somber ways.`\
 https://www.nytimes.com/2026/11/27/arts/music/alanis-morissette-christmas-album.html
-
-**48 Hours in Tokyo With an Airline Pilot**\
-`A Boeing 787 pilot visits some favorite restaurants, a Snoopy museum and a tranquil shrine.`\
-https://www.nytimes.com/2026/11/27/travel/48-hours-tokyo-layover.html
 
