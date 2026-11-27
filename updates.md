@@ -1,3 +1,7 @@
+**Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
+`Conditions continued to improve on Friday after a storm brought heavy rain and strong winds from Virginia to New York. But many remained without power and travel disruptions persisted.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
+
 **Quebec Can Keep Its Ban on Religious Symbols, Canada’s Top Court Rules**\
 `In a landmark decision, the Supreme Court backed the province’s use of a constitutional override while leaving the door open to future legal scrutiny.`\
 https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html
