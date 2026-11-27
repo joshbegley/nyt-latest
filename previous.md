@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigation
 `Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
 https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-midterms-voting.html
 
-**A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Shop**\
+**A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Tango in the City**\
 `A guide to Medellín, Colombia, where nature and design take center stage.`\
 https://www.nytimes.com/2026/11/27/t-magazine/medellin-colombia-hotels-restaurants.html
 
