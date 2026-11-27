@@ -1,3 +1,19 @@
+**A Leading Mathematician’s Take on A.I.**\
+`A “hero to a lot of A.I. researchers,” the mathematician Terence Tao has worked closely with technology companies for decades. On the “Hard Fork” podcast, he shares his opinions about whether A.I. is helpful or hurtful.`\
+https://www.nytimes.com/video/podcasts/100000011311709/a-leading-mathematicians-take-on-ai.html
+
+**With Dancing Robots, Russia Projects a Future Shaped by A.I., Not War**\
+`Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been constrained.`\
+https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
+
+**Julio Torres on His Favorite Books and ‘The Perfect Gift’**\
+`“We reduce what can be a beautiful act into a cold exchange of goods,” says the actor and writer. His new book, “The Perfect Gift,” has other ideas.`\
+https://www.nytimes.com/2026/11/27/books/review/julio-torres-the-perfect-gift.html
+
+**Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
+`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were gradually improving on Friday.`\
+https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
+
 **Spanish Authorities Find Marijuana Farm Under Backyard Playground**\
 `Spain’s Civil Guard said it discovered an underground marijuana farm beneath a backyard playground in the country’s south. Five people were arrested, the authorities said.`\
 https://www.nytimes.com/video/world/europe/100000011311669/spain-marijuana-playground-hidden.html
