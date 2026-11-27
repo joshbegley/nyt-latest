@@ -1,3 +1,7 @@
+**A.I. Is the '800-Pound Gorilla' Facing Mathematicians**\
+`This episode features Terence Tao, a Fields Medal–winning mathematician and one of the top people in the field. He talks with Max about how the newest AI models are changing math research, and what he’s seeing up close.`\
+https://www.nytimes.com/video/podcasts/100000011311921/ai-is-the-800-pound-gorilla-facing-mathematicians.html
+
 **Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
 `Ms. Stewart-Cousins, 76, served in the state senate for 20 years.`\
 https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/movies/lilo-stitch-film-disney.html
 **‘Focker In-Law’ Reunites Skyler Gisondo, Beanie Feldstein and Eduardo Franco**\
 `Skyler Gisondo, Beanie Feldstein and Eduardo Franco had breakout roles in the 2019 high-school comedy. Now, they’re reuniting for “Focker In-Law.”`\
 https://www.nytimes.com/2026/11/27/movies/focker-in-law-cast-gisondo-feldstein-franco.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
-https://www.nytimes.com/2026/11/27/movies/great-documentaries-streaming.html
 
