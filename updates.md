@@ -1,3 +1,7 @@
+**Stocks Rally at End of a Week of Wild Swings**\
+`Volatility has buffeted investors in an eventful but holiday-shortened series of trading sessions.`\
+https://www.nytimes.com/2026/11/27/business/stocks-tech-stocks-ai.html
+
 **Five Big Questions for the 2028 Presidential Race**\
 `Will JD Vance and Marco Rubio run? What about Kamala Harris and Alexandria Ocasio-Cortez? And, of course, what role will President Trump play?`\
 https://www.nytimes.com/2026/11/27/us/politics/2028-presidential-race-questions.html
