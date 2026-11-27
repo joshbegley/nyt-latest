@@ -139,7 +139,7 @@ https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
 https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
 
 **Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
-`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were gradually improving on Friday.`\
+`Conditions continued to improve on Friday after a storm brought heavy rain and strong winds from Virginia to New York. But many remained without power and travel disruptions persisted.`\
 https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
 
 **Why Grand Theft Auto VI Is the Future**\
