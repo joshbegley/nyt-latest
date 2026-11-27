@@ -1,3 +1,7 @@
+**Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
+`“Ebenezer” echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
+
 **After the Iowa Detonation, a Family Gathered for an Unusual Thanksgiving**\
 `A family came together at a farmhouse in southeast Iowa the day after the explosion at an ammunition plant. It felt as if a storm had passed.`\
 https://www.nytimes.com/2026/11/26/us/iowa-detonation-family-thanksgiving.html
