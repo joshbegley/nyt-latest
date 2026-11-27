@@ -1,3 +1,7 @@
+**Why Grand Theft Auto VI Is the Future**\
+`Pablo reacts to the game with big questions.`\
+https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.html
+
 **Holiday Deals Are Tempting. Here’s How to Avoid Buyer’s Remorse.**\
 `Some deals are too good to be true. Experts suggest doing the math, making lists and avoiding using “buy now, pay later” platforms to make purchases.`\
 https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-t
 **The Threat to a Sanctuary for Children of North Korean Defectors**\
 `A school in Seoul caters to students whose parents fled North Korea. Neighbors want it gone, and students say it is just one example of the prejudice they face in the South.`\
 https://www.nytimes.com/2026/11/27/world/asia/the-threat-to-a-sanctuary-for-children-of-north-korean-defectors.html
-
-**To Listen, You Must Stop Talking**\
-`I wanted to establish intimacy with my adult son before it was too late.`\
-https://www.nytimes.com/2026/11/27/style/modern-love-to-listen-you-must-stop-talking.html
 
