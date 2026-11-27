@@ -130,13 +130,13 @@ https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
 `Everything is going to be all right.`\
 https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
 
+**Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
+`“Ebenezer” echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
+
 **Today’s Wordle Hints for November 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
 https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
-
-**Johnny Depp’s “Ebenezer” is Rich Guy Propaganda**\
-`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
-https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-rich-guy-propaganda-david-ellison.html
 
 **NYT Strands Hints for November 27, 2026**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
