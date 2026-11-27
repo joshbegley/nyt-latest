@@ -1,3 +1,11 @@
+**Ontario Premier Says He’d Use a Gun to Protect His Family**\
+`Recent home invasions have stirred unease in Toronto. On Thursday, the premier of Ontario said he would fire a gun in self-defense ‘in a heartbeat.’`\
+https://www.nytimes.com/2026/11/26/world/canada/doug-ford-gun-home-invasion-toronto.html
+
+**Thanksgiving Storm Live Updates: More Than 750,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The storm was moving north into New England after battering New York, New Jersey and Connecticut.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
 `“Ebenezer” echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
 https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
