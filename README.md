@@ -1,3 +1,7 @@
+**After the Iowa Detonation, a Family Gathered for an Unusual Thanksgiving**\
+`A family came together at a farmhouse in southeast Iowa the day after the explosion at an ammunition plant. It felt as if a storm had passed.`\
+https://www.nytimes.com/2026/11/26/us/iowa-detonation-family-thanksgiving.html
+
 **A City Fears the Loss of Its Pier After a Section Collapsed Into the Sea**\
 `The famed pier in Pacifica, Calif., had long been crumbling. This week, a portion of it succumbed to fierce waves and toppled into the sea.`\
 https://www.nytimes.com/2026/11/26/us/pacifica-pier-collapse-el-nino-king-tides.html
@@ -189,8 +193,4 @@ https://www.nytimes.com/interactive/2026/11/26/travel/things-to-do-penang.html
 **How Birds With GPS and Audio Sensors Track Hidden Fishing Boats**\
 `Researchers are using seabirds equipped with GPS and audio gear to detect vessels that operate with no tracking signals and to assess the environmental hazards they pose.`\
 https://www.nytimes.com/2026/11/26/climate/seabirds-tracking-hidden-fishing-boats.html
-
-**How a Thanksgiving Tradition Connects to Presidential Powers**\
-`As President Trump pardons turkeys for Thanksgiving, our chief White House correspondent Peter Baker takes a look back at the history of the tradition and the presidential power of the pardon.`\
-https://www.nytimes.com/video/us/politics/100000011304420/trump-president-turkey-pardon-thanksgiving.html
 
