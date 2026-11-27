@@ -1,3 +1,39 @@
+**Black Friday No Longer Makes the Slightest Bit of Sense**\
+`In an all-sale all-the-time climate, why bother?`\
+https://www.nytimes.com/2026/11/27/opinion/black-friday-no-longer-makes-the-slightest-bit-of-sense.html
+
+**How A.I. Is Transforming Mathematics**\
+`“One thing that A.I. has done is that it’s given us answers without insight, without understanding.”`\
+https://www.nytimes.com/2026/11/27/podcasts/hardfork-terence-tao.html
+
+**How A.I. Is Transforming Mathematics**\
+`This episode features Terence Tao, a Fields Medal-winning mathematician and one of the top people in the field. He talks with Max Read about how the newest A.I. models are changing math research, and what he’s seeing up close.`\
+https://www.nytimes.com/video/podcasts/100000011310629/how-ai-is-transforming-mathematics.html
+
+**What to Do About the Epidemic of Bad Dogs**\
+`The status quo narrative of good and bad dog behavior is often deeply unfair to dogs.`\
+https://www.nytimes.com/2026/11/27/opinion/what-to-do-about-the-epidemic-of-bad-dogs.html
+
+**Religion Is a Solution to the Problems of Our Tech Age**\
+`A life of faith is well suited to the current moment.`\
+https://www.nytimes.com/2026/11/27/opinion/religion-revival-technology.html
+
+**I Prosecuted Government Corruption. We’re in Trouble.**\
+`Federal prosecutors will struggle to prosecute any corrupt government official for years.`\
+https://www.nytimes.com/2026/11/27/opinion/corruption-government-prosecutions.html
+
+**Today’s Wordle Hints for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/wordle-review-1988.html
+
+**NYT Strands Hints for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/strands-sidekick-1000.html
+
+**NYT Connections Answers for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
+
 **Puma Shen, Critic of China, Could be the Next Mayor of Taipei**\
 `Puma Shen, who has been sanctioned by China for his efforts to prepare civilians for an invasion, could become Taiwan’s next political star if he wins.`\
 https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html

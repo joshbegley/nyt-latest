@@ -1,3 +1,39 @@
+**Black Friday No Longer Makes the Slightest Bit of Sense**\
+`In an all-sale all-the-time climate, why bother?`\
+https://www.nytimes.com/2026/11/27/opinion/black-friday-no-longer-makes-the-slightest-bit-of-sense.html
+
+**How A.I. Is Transforming Mathematics**\
+`“One thing that A.I. has done is that it’s given us answers without insight, without understanding.”`\
+https://www.nytimes.com/2026/11/27/podcasts/hardfork-terence-tao.html
+
+**How A.I. Is Transforming Mathematics**\
+`This episode features Terence Tao, a Fields Medal-winning mathematician and one of the top people in the field. He talks with Max Read about how the newest A.I. models are changing math research, and what he’s seeing up close.`\
+https://www.nytimes.com/video/podcasts/100000011310629/how-ai-is-transforming-mathematics.html
+
+**What to Do About the Epidemic of Bad Dogs**\
+`The status quo narrative of good and bad dog behavior is often deeply unfair to dogs.`\
+https://www.nytimes.com/2026/11/27/opinion/what-to-do-about-the-epidemic-of-bad-dogs.html
+
+**Religion Is a Solution to the Problems of Our Tech Age**\
+`A life of faith is well suited to the current moment.`\
+https://www.nytimes.com/2026/11/27/opinion/religion-revival-technology.html
+
+**I Prosecuted Government Corruption. We’re in Trouble.**\
+`Federal prosecutors will struggle to prosecute any corrupt government official for years.`\
+https://www.nytimes.com/2026/11/27/opinion/corruption-government-prosecutions.html
+
+**Today’s Wordle Hints for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/wordle-review-1988.html
+
+**NYT Strands Hints for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/strands-sidekick-1000.html
+
+**NYT Connections Answers for November 28, 2026**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
+https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
+
 **Puma Shen, Critic of China, Could be the Next Mayor of Taipei**\
 `Puma Shen, who has been sanctioned by China for his efforts to prepare civilians for an invasion, could become Taiwan’s next political star if he wins.`\
 https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/11/27/world/europe/russia-gulag-memory.html
 **The Society Page Reporter Who Outraged the Jet Set**\
 `Before there was Tom Wolfe, there was Charlotte Curtis, who turned Park Avenue into news.`\
 https://www.nytimes.com/2026/11/27/style/charlotte-curtis-black-panthers.html
-
-**Why Russia Is Erasing Stalin’s Crimes**\
-`Across Russia, memorials to victims of Joseph Stalin’s repressive regime are being quietly dismantled as more and more critics of the war in Ukraine are jailed. Our Moscow correspondent Valerie Hopkins takes us to one example of this erasure.`\
-https://www.nytimes.com/video/world/europe/100000010915175/why-russia-is-erasing-stalins-crimes.html
-
-**The New York Times News Quiz, November 27, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://www.nytimes.com/quiz/2026/11/27/briefing/weekly-news-quiz.html
-
-**Thanksgiving Storm Brings Flooding and Strong Winds to East Coast**\
-`A Thanksgiving storm lashed much of the East Coast on Thursday, bringing winds up to 65 miles per hour in some places.`\
-https://www.nytimes.com/video/us/100000011311111/thanksgiving-storm-east-coast.html
-
-**One Man’s Mission: Turning Church Basements Into Homeless Shelters**\
-`Many houses of worship in New York were once used as crucial shelter spaces. A nonprofit leader wants to help more congregations open their doors to those in need.`\
-https://www.nytimes.com/2026/11/27/nyregion/nyc-homeless-shelters-church.html
-
-**NYT Spelling Bee Answers for November 27, 2026**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://www.nytimes.com/2026/11/27/crosswords/spelling-bee-forum.html
-
-**New York and Trump Officials Locked in Unlikely Clash Over Mascot Ban**\
-`The dispute between state officials and the federal government is the latest twist in a lawsuit over Massapequa’s Native American mascot.`\
-https://www.nytimes.com/2026/11/27/nyregion/new-york-trump-massapequa-mascot.html
-
-**‘The Hunchback, Soul of Paris’ Review: Hugo Remix**\
-`A mash-up of two classic French novels creates an unsatisfying new story.`\
-https://www.nytimes.com/2026/11/27/movies/the-hunchback-soul-of-paris-review.html
-
-**What’s on the Thanksgiving Menu for National Weather Service Meteorologists**\
-`National Weather Service meteorologists keep their offices running all year, even on weekends and holidays. Here’s what was on the menu over a wet and gusty Thanksgiving.`\
-https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgiving-storm.html
-
-**Why Is the Trump Administration So Focused on the Threat of Far-Left Terror?**\
-`The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
-https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
 
