@@ -1,3 +1,15 @@
+**In Democrats vs. Trump, the Loser May Be Federal Contractors**\
+`The incoming Democratic majorities have begun targeting businesses and other outsiders in their planned inquiries, but the president has threatened to fire them if they comply without his permission.`\
+https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigations-contractors.html
+
+**Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
+`Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
+https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-cheered-by-republicans-wound-up-hurting-them.html
+
+**A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Shop**\
+`A guide to Medellín, Colombia, where nature and design take center stage.`\
+https://www.nytimes.com/2026/11/27/t-magazine/medellin-colombia-hotels-restaurants.html
+
 **It’s Boom Times for Old TV Shows. New TV, Not So Much.**\
 `Fewer original series, decision fatigue and a desire for comfort have viewers escaping to the past.`\
 https://www.nytimes.com/2026/11/27/business/media/old-tv-shows-mad-men.html

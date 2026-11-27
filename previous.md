@@ -1,3 +1,15 @@
+**In Democrats vs. Trump, the Loser May Be Federal Contractors**\
+`The incoming Democratic majorities have begun targeting businesses and other outsiders in their planned inquiries, but the president has threatened to fire them if they comply without his permission.`\
+https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigations-contractors.html
+
+**Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
+`Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
+https://www.nytimes.com/2026/11/27/us/supreme-court-rulings-cheered-by-republicans-wound-up-hurting-them.html
+
+**A Local’s Guide to Medellín, Colombia: Where to Eat, Sleep and Shop**\
+`A guide to Medellín, Colombia, where nature and design take center stage.`\
+https://www.nytimes.com/2026/11/27/t-magazine/medellin-colombia-hotels-restaurants.html
+
 **It’s Boom Times for Old TV Shows. New TV, Not So Much.**\
 `Fewer original series, decision fatigue and a desire for comfort have viewers escaping to the past.`\
 https://www.nytimes.com/2026/11/27/business/media/old-tv-shows-mad-men.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/27/world/europe/france-bookstore-crisis-closures
 **Why Some A.I. Evangelists Aren’t Bothered by the Potential for Human Extinction**\
 `Understanding the set of beliefs that drives the Silicon Valley vanguard.`\
 https://www.nytimes.com/2026/11/27/magazine/ai-silicon-valley-human-extinction.html
-
-**Baffled by Maybelline’s New Tagline? Here’s Why.**\
-`The company wants to preserve a classic 1990s slogan. It also wants half of the words to mean new things.`\
-https://www.nytimes.com/2026/11/27/magazine/maybelline-tagline-explained-maybe.html
-
-**Why That Book You Want May Be Out of Stock**\
-`Printing delays have been putting the squeeze on booksellers and frustrating their customers all through the fall. The holiday season could be worse.`\
-https://www.nytimes.com/2026/11/27/books/book-printing-holiday-shopping.html
-
-**Jobs Are Too Messy for A.I. to Take Them All**\
-`Reports of a job apocalypse on the way have been greatly exaggerated.`\
-https://www.nytimes.com/2026/11/27/opinion/ai-jobs.html
 

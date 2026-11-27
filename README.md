@@ -1,3 +1,11 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include well-planned heists, a $1 billion loan recovery mission and a family battle against mercenaries.`\
+https://www.nytimes.com/2026/11/27/movies/action-movies-streaming.html
+
+**Leftover Turkey? This Stacked Sandwich Is Your Next Move.**\
+`That and more recipes to make the most of your second-day Thanksgiving bounty.`\
+https://www.nytimes.com/2026/11/27/dining/leftover-turkey-this-stacked-sandwich-is-your-next-move.html
+
 **In Democrats vs. Trump, the Loser May Be Federal Contractors**\
 `The incoming Democratic majorities have begun targeting businesses and other outsiders in their planned inquiries, but the president has threatened to fire them if they comply without his permission.`\
 https://www.nytimes.com/2026/11/27/us/politics/trump-congressional-investigations-contractors.html
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/27/books/new-books-december.html
 **Book Review: ‘Reading the Bones,’ by Marc Aronson and John S. Mead**\
 `In “Reading the Bones,” an award-winning nonfiction writer and a sixth-grade science teacher tell the riveting tale.`\
 https://www.nytimes.com/2026/11/27/books/review/reading-the-bones-marc-aronson-john-mead.html
-
-**France’s Bookstores, Beloved Curators of Literature, Are in a Deep Crisis**\
-`Caught between by rising costs and price regulations, French booksellers are closing at a record pace, depriving new authors of vital shelf space.`\
-https://www.nytimes.com/2026/11/27/world/europe/france-bookstore-crisis-closures.html
-
-**Why Some A.I. Evangelists Aren’t Bothered by the Potential for Human Extinction**\
-`Understanding the set of beliefs that drives the Silicon Valley vanguard.`\
-https://www.nytimes.com/2026/11/27/magazine/ai-silicon-valley-human-extinction.html
 
