@@ -1,3 +1,7 @@
+**After the Iowa Detonation, a Family Gathered for an Unusual Thanksgiving**\
+`A family came together at a farmhouse in southeast Iowa the day after the explosion at an ammunition plant. It felt as if a storm had passed.`\
+https://www.nytimes.com/2026/11/26/us/iowa-detonation-family-thanksgiving.html
+
 **A City Fears the Loss of Its Pier After a Section Collapsed Into the Sea**\
 `The famed pier in Pacifica, Calif., had long been crumbling. This week, a portion of it succumbed to fierce waves and toppled into the sea.`\
 https://www.nytimes.com/2026/11/26/us/pacifica-pier-collapse-el-nino-king-tides.html
