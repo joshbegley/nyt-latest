@@ -1,3 +1,7 @@
+**Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
+`Ms. Stewart-Cousins, 76, served in the state senate for 20 years.`\
+https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
+
 **Sean Panikkar on Quickly Learning His Role in the Met’s ‘Jenufa’**\
 `For the Metropolitan Opera’s new production of “Jenufa,” Sean Panikkar learned the role of Laca in under two weeks. He talks about how it came together.`\
 https://www.nytimes.com/2026/11/27/arts/music/metropolitan-opera-jenufa-sean-panikkar.html

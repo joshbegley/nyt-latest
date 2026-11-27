@@ -1,3 +1,7 @@
+**Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
+`Ms. Stewart-Cousins, 76, served in the state senate for 20 years.`\
+https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
+
 **A.I. Is the “800-Pound Gorilla” Facing Mathematicians**\
 `Artificial intelligence can solve math problems but cannot explain how it arrives at the answer, according to the mathematician Terence Tao. Tao speaks on the “Hard Fork” podcast about how A.I. impacts his industry.`\
 https://www.nytimes.com/video/podcasts/100000011311742/ai-is-the-800-pound-gorilla-facing-mathematicians.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/movies/focker-in-law-cast-gisondo-feldstein-f
 **Three Great Documentaries to Stream**\
 `This month’s picks include a 50-year-old labor classic, a restored Soviet rock portrait and a look at comedy’s “Godspell” roots.`\
 https://www.nytimes.com/2026/11/27/movies/great-documentaries-streaming.html
-
-**Sean Panikkar on Quickly Learning His Role in the Met’s ‘Jenufa’**\
-`For the Metropolitan Opera’s new production of “Jenufa,” Sean Panikkar learned the role of Laca in under two weeks. He talks about how it came together.`\
-https://www.nytimes.com/2026/11/27/arts/music/metropolitan-opera-jenufa-sean-panikkar.html
 
