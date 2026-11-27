@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 28, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/27/upshot/flashback.html
+
 **Canada’s Top Court Lets Quebec Use Controversial Measure for Secularism Law**\
 `Quebec had used the measure to pass a law barring certain public workers, like schoolteachers and police officers, from wearing religious symbols on duty, which critics called discriminatory.`\
 https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html

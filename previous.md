@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Nov. 28, 2026**\
+`Can you sort 8 historical events?`\
+https://www.nytimes.com/interactive/2026/11/27/upshot/flashback.html
+
 **Canada’s Top Court Lets Quebec Use Controversial Measure for Secularism Law**\
 `Quebec had used the measure to pass a law barring certain public workers, like schoolteachers and police officers, from wearing religious symbols on duty, which critics called discriminatory.`\
 https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/t-magazine/big-puppets-art-performance.html
 **The D.I.Y. Puppets Roaming Los Angeles**\
 `Meet the papier-mâché creations of Freak Nature, a performance collective based in downtown Los Angeles.`\
 https://www.nytimes.com/video/t-magazine/100000011308774/the-diy-puppets-roaming-los-angeles.html
-
-**Why Are So Many Novels Placing Their Protagonists on Their Deathbeds?**\
-`George Saunders, Emma Cline and Ben Lerner were among those who mined characters’ last days, seeking renewed poignancy in a timeless theme.`\
-https://www.nytimes.com/2026/11/27/t-magazine/deathbed-novels.html
 
