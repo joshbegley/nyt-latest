@@ -1,3 +1,7 @@
+**Johannesburg Lawmakers Snub Helen Zille in Mayoral Election**\
+`The selection of Herman Mashaba to lead South Africa’s wealthiest city was a blow to Helen Zille, the candidate whose party won the most votes in the election.`\
+https://www.nytimes.com/2026/11/27/world/africa/johannesburg-mayor-zille-mashaba-anc.html
+
 **A.I. Is the '800-Pound Gorilla' Facing Mathematicians**\
 `This episode features Terence Tao, a Fields Medal–winning mathematician and one of the top people in the field. He talks with Max about how the newest AI models are changing math research, and what he’s seeing up close.`\
 https://www.nytimes.com/video/podcasts/100000011311921/ai-is-the-800-pound-gorilla-facing-mathematicians.html
