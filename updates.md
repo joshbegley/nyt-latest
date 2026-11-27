@@ -1,3 +1,7 @@
+**Thanksgiving Storm Live Updates: More Than 700,000 Without Power on East Coast**\
+`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The storm was moving north into New England after battering New York, New Jersey and Connecticut.`\
+https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
+
 **NYT Crossword Answers for Nov. 27, 2026**\
 `Rafael Musa opens our solving weekend.`\
 https://www.nytimes.com/2026/11/26/crosswords/daily-puzzle-2026-11-27.html
