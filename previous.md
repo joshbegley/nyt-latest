@@ -1,3 +1,19 @@
+**One Man’s Mission: Turning Church Basements Into Homeless Shelters**\
+`Many houses of worship in New York were once used as crucial shelter spaces. A nonprofit leader wants to help more congregations open their doors to those in need.`\
+https://www.nytimes.com/2026/11/27/nyregion/nyc-homeless-shelters-church.html
+
+**NYT Spelling Bee Answers for November 27, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/27/crosswords/spelling-bee-forum.html
+
+**New York and Trump Officials Locked in Unlikely Clash Over Mascot Ban**\
+`The dispute between state officials and the federal government is the latest twist in a lawsuit over Massapequa’s Native American mascot.`\
+https://www.nytimes.com/2026/11/27/nyregion/new-york-trump-massapequa-mascot.html
+
+**‘The Hunchback, Soul of Paris’ Review: Hugo Remix**\
+`A mash-up of two classic French novels creates an unsatisfying new story.`\
+https://www.nytimes.com/2026/11/27/movies/the-hunchback-soul-of-paris-review.html
+
 **Tonight’s Forecast Is Rain, Wind — and Leftover Turkey**\
 `National Weather Service meteorologists keep their offices running all year, even on weekends and holidays. Here’s what was on the menu over a wet and gusty Thanksgiving.`\
 https://www.nytimes.com/2026/11/27/nyregion/national-weather-service-thanksgiving-storm.html
@@ -181,20 +197,4 @@ https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
 **Giving Thanks**\
 `Everything is going to be all right.`\
 https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
-
-**Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
-`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
-https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
-
-**Today’s Wordle Hints for November 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
-https://www.nytimes.com/2026/11/26/crosswords/wordle-review-1987.html
-
-**NYT Strands Hints for November 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
-https://www.nytimes.com/2026/11/26/crosswords/strands-sidekick-999.html
-
-**NYT Connections Answers for November 27, 2026**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 27, 2026.`\
-https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 
