@@ -1,3 +1,7 @@
+**Far-Left Terrorism Is Not the Biggest Threat to America**\
+`The administration’s increasing focus on far-left terrorist groups has left many counterterrorism experts confounded.`\
+https://www.nytimes.com/2026/11/27/opinion/international-world/far-left-terrorism-threat-america.html
+
 **Quote of the Day: The Small Town That Took on Amazon’s Plan for a Drone Hub**\
 `Quotation of the Day for Friday, November 27, 2026.`\
 https://www.nytimes.com/2026/11/27/pageoneplus/quote-of-the-day-the-small-town-that-took-on-amazons-plan-for-a-drone-hub.html
@@ -175,7 +179,7 @@ https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
 https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
 
 **Johnny Depp’s ‘Ebenezer’ Is Rich Guy Propaganda**\
-`“Ebenezer” echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
+`‘Ebenezer’ echoes today’s Silicon Valley-centered anti-charity entitlement and reluctance to provide fair pay.`\
 https://www.nytimes.com/2026/11/26/opinion/johnny-depp-ebenezer-david-ellison.html
 
 **Today’s Wordle Hints for November 27, 2026**\
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/26/crosswords/connections-companion-1265.html
 **Net Migration to U.K. Falls to Lowest Level Since 1997, Excluding Pandemic**\
 `The drop was largely driven by fewer people arriving from outside the European Union. It reflects government action to restrict immigration after a public backlash.`\
 https://www.nytimes.com/2026/11/26/world/europe/uk-net-migration-data.html
-
-**Thanksgiving Storm Live Updates: More Than 700,000 Without Power on East Coast**\
-`There were power outages from North Carolina to New Jersey, and hundreds of flights were canceled. The storm was moving north into New England after battering New York, New Jersey and Connecticut.`\
-https://www.nytimes.com/live/2026/11/26/nyregion/thanksgiving-weather-storm
 
