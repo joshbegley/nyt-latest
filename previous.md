@@ -1,3 +1,7 @@
+**Thanksgiving Storm Brings Flooding and Strong Winds to East Coast**\
+`A Thanksgiving storm lashed much of the East Coast on Thursday, bringing winds up to 65 miles per hour in some places.`\
+https://www.nytimes.com/video/us/100000011311111/thanksgiving-storm-east-coast.html
+
 **One Man’s Mission: Turning Church Basements Into Homeless Shelters**\
 `Many houses of worship in New York were once used as crucial shelter spaces. A nonprofit leader wants to help more congregations open their doors to those in need.`\
 https://www.nytimes.com/2026/11/27/nyregion/nyc-homeless-shelters-church.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/26/arts/design/venice-biennale-2028-curator-hoor
 **Nvidia Halts Sales to Southeast Asia as U.S. Tightens China Restrictions**\
 `The shipping halt, which hit four countries, follows a new U.S. rule that would require licenses for companies in the countries to buy advanced A.I. chips.`\
 https://www.nytimes.com/2026/11/26/business/nvidia-southeast-asia-sales.html
-
-**Giving Thanks**\
-`Everything is going to be all right.`\
-https://www.nytimes.com/2026/11/26/briefing/giving-thanks.html
 

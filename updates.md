@@ -1,3 +1,7 @@
+**Thanksgiving Storm Brings Flooding and Strong Winds to East Coast**\
+`A Thanksgiving storm lashed much of the East Coast on Thursday, bringing winds up to 65 miles per hour in some places.`\
+https://www.nytimes.com/video/us/100000011311111/thanksgiving-storm-east-coast.html
+
 **One Man’s Mission: Turning Church Basements Into Homeless Shelters**\
 `Many houses of worship in New York were once used as crucial shelter spaces. A nonprofit leader wants to help more congregations open their doors to those in need.`\
 https://www.nytimes.com/2026/11/27/nyregion/nyc-homeless-shelters-church.html
