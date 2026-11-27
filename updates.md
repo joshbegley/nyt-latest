@@ -1,3 +1,7 @@
+**D.C. Golfers Keep Playing Despite Trump-Ordered Course Closure**\
+`President Trump’s latest target in his push to remake Washington is turning a municipal golf course into a world-class, championship-ready site. But the proposed changes have local residents and high school golfers worried they will soon lose access to an affordable place to play.`\
+https://www.nytimes.com/video/us/politics/100000011296388/trump-dc-golf-course-pga.html
+
 **A.I. Is the “800-Pound Gorilla” Facing Mathematicians**\
 `Artificial intelligence can solve math problems but cannot explain how it arrives at the answer, according to the mathematician Terence Tao. Tao speaks on the “Hard Fork” podcast about how A.I. impacts his industry.`\
 https://www.nytimes.com/video/podcasts/100000011311742/ai-is-the-800-pound-gorilla-facing-mathematicians.html
