@@ -1,3 +1,7 @@
+**Our Favorite GMT Watches, at a Range of Prices**\
+`Originally designed for airline pilots, these GMT styles will keep you connected to multiple time zones.`\
+https://www.nytimes.com/2026/11/27/t-magazine/gmt-watches-time-zones.html
+
 **Five Action Movies to Stream Now**\
 `This month’s picks include well-planned heists, a $1 billion loan recovery mission and a family battle against mercenaries.`\
 https://www.nytimes.com/2026/11/27/movies/action-movies-streaming.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/t-magazine/deathbed-novels.html
 **14 New Books to Read in December: Casey McQuiston, Chris Wallace, Rosie Danan and More**\
 `Holiday romance, an Alpine thriller, an inside look at the founding of Pitchfork and more.`\
 https://www.nytimes.com/2026/11/27/books/new-books-december.html
-
-**Book Review: ‘Reading the Bones,’ by Marc Aronson and John S. Mead**\
-`In “Reading the Bones,” an award-winning nonfiction writer and a sixth-grade science teacher tell the riveting tale.`\
-https://www.nytimes.com/2026/11/27/books/review/reading-the-bones-marc-aronson-john-mead.html
 
