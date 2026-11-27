@@ -1,3 +1,11 @@
+**With Dancing Robots, Russia Projects a Future Shaped by A.I., Not War**\
+`Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been constrained.`\
+https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
+
+**Julio Torres on His Favorite Books and ‘The Perfect Gift’**\
+`“We reduce what can be a beautiful act into a cold exchange of goods,” says the actor and writer. His new book, “The Perfect Gift,” has other ideas.`\
+https://www.nytimes.com/2026/11/27/books/review/julio-torres-the-perfect-gift.html
+
 **Spanish Authorities Find Marijuana Farm Under Backyard Playground**\
 `Spain’s Civil Guard said it discovered an underground marijuana farm beneath a backyard playground in the country’s south. Five people were arrested, the authorities said.`\
 https://www.nytimes.com/video/world/europe/100000011311669/spain-marijuana-playground-hidden.html
@@ -106,8 +114,8 @@ https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
 `Puma Shen, who has been sanctioned by China for his efforts to prepare civilians for an invasion, could become Taiwan’s next political star if he wins.`\
 https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
 
-**Thanksgiving Storm Leaves Half a Million Without Power on the East Coast**\
-`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were expected to gradually improve on Friday.`\
+**Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
+`The storm brought heavy rain and strong winds from Virginia to New York, disrupting travel during the holiday season. Conditions were gradually improving on Friday.`\
 https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
 
 **Why Grand Theft Auto VI Is the Future**\
@@ -189,12 +197,4 @@ https://www.nytimes.com/2026/11/27/arts/nyc-holidays-things-to-do.html
 **Homo Erectus Lived in Rainforests, Upending Ideas About Their Adaptability**\
 `A handful of teeth reveals that our distant relatives survived in the dense rainforests of southern China, expanding our understanding of their flexibility.`\
 https://www.nytimes.com/2026/11/27/science/homo-erectus-early-humans-china-rainforests.html
-
-**Spain’s Far-Right Era Ended in 1975. Will This Man Change That?**\
-`If the polls are right, Santiago Abascal’s Vox party could become the first far-right group to join a Spanish government since the days of Franco.`\
-https://www.nytimes.com/2026/11/27/world/europe/santiago-abascal-vox-spain-far-right.html
-
-**2 TV Shows Take on Sam Bankman-Fried and FTX**\
-`The limited series “The Altruists” and the documentary “The Boy Who Stole Billions?” offer different takes on the crypto exchange founder’s role in one of the largest frauds in history.`\
-https://www.nytimes.com/2026/11/27/business/media/sam-bankman-fried-ftx-altruists.html
 
