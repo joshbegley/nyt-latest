@@ -1,3 +1,15 @@
+**A Big Bookstore Arrives Near a Shop on the Corner. This Isn’t a Movie.**\
+`In a scenario straight out of “You’ve Got Mail,” a Barnes & Noble opened across from an indie bookstore. Some readers are rejoicing.`\
+https://www.nytimes.com/2026/11/28/nyregion/small-bookstore-barnes-and-noble.html
+
+**Greenways Are Designed to Unite Neighborhoods. Sometimes, They Divide.**\
+`New York has more than 500 miles of car-free, linear paths, but some have been overlooked or blocked by drivers and private property owners.`\
+https://www.nytimes.com/2026/11/28/nyregion/nyc-greenways.html
+
+**NYT Spelling Bee Answers for November 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/28/crosswords/spelling-bee-forum.html
+
 **Far-Right Vigilantes Have Inflamed France’s Unrest, Officials Say**\
 `Through weeks of antigovernment unrest, hard-right activists have fought with left-wing counterparts in at least 10 towns, according to national and regional leaders.`\
 https://www.nytimes.com/2026/11/28/world/europe/france-right-gangs-unrest.html
@@ -185,16 +197,4 @@ https://www.nytimes.com/2026/11/27/podcasts/hardfork-terence-tao.html
 **How A.I. Is Transforming Mathematics**\
 `This episode features Terence Tao, a Fields Medal-winning mathematician and one of the top people in the field. He talks with Max Read about how the newest A.I. models are changing math research, and what he’s seeing up close.`\
 https://www.nytimes.com/video/podcasts/100000011310629/how-ai-is-transforming-mathematics.html
-
-**What to Do About the Epidemic of Bad Dogs**\
-`The status quo view of good and bad dog behavior is often deeply unfair to dogs.`\
-https://www.nytimes.com/2026/11/27/opinion/what-to-do-about-the-epidemic-of-bad-dogs.html
-
-**Religion Is a Solution to the Problems of Our Tech Age**\
-`A life of faith is well suited to the current moment.`\
-https://www.nytimes.com/2026/11/27/opinion/religion-revival-technology.html
-
-**I Prosecuted Government Corruption. We’re in Trouble.**\
-`Federal prosecutors will struggle to prosecute any corrupt government official for years.`\
-https://www.nytimes.com/2026/11/27/opinion/corruption-government-prosecutions.html
 
