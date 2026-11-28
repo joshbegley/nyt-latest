@@ -1,3 +1,7 @@
+**Hankering**\
+`John Guzzetta presents an ornate themeless puzzle.`\
+https://www.nytimes.com/2026/11/27/crosswords/daily-puzzle-2026-11-28.html
+
 **2 American Airlines Jets Clip Wings at Reagan Airport**\
 `No injuries were reported after two Boeing 737s made contact while taxiing at the airport outside Washington, D.C., during the busy Thanksgiving holiday weekend.`\
 https://www.nytimes.com/2026/11/27/us/wings-clipped-american-reagan-airport.html
