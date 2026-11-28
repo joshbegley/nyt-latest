@@ -1,3 +1,7 @@
+**Live Updates: Macy’s Thanksgiving Parade Set To Go Ahead After 2-Day Delay**\
+`The city’s decision to postpone the parade because of a storm disrupted the plans of many fans and performers, but the show will go on.`\
+https://www.nytimes.com/live/2026/11/28/nyregion/macys-thanksgiving-parade
+
 **Pedro Pascal’s Life Began With a Rupture. He’s Still Coming to Terms With It.**\
 `At 51, the actor and “Behemoth!” star is navigating his past and embracing his present.`\
 https://www.nytimes.com/2026/11/28/magazine/pedro-pascal-interview.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
 **What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
 `Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
 https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html
-
-**Mamdani Underwent Successful Achilles’ Tendon Surgery, Spokesman Says**\
-`Mayor Zohran Mamdani, who injured himself playing soccer, returned to Gracie Mansion and was expected to make a “full recovery,” the spokesman said.`\
-https://www.nytimes.com/2026/11/27/nyregion/mamdani-achilles-tendon-surgery-success.html
 

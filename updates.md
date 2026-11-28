@@ -1,3 +1,7 @@
+**Live Updates: Macy’s Thanksgiving Parade Set To Go Ahead After 2-Day Delay**\
+`The city’s decision to postpone the parade because of a storm disrupted the plans of many fans and performers, but the show will go on.`\
+https://www.nytimes.com/live/2026/11/28/nyregion/macys-thanksgiving-parade
+
 **Pedro Pascal’s Life Began With a Rupture. He’s Still Coming to Terms With It.**\
 `At 51, the actor and “Behemoth!” star is navigating his past and embracing his present.`\
 https://www.nytimes.com/2026/11/28/magazine/pedro-pascal-interview.html
