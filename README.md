@@ -1,3 +1,7 @@
+**Hankering**\
+`John Guzzetta presents an ornate themeless puzzle.`\
+https://www.nytimes.com/2026/11/27/crosswords/daily-puzzle-2026-11-28.html
+
 **2 American Airlines Jets Clip Wings at Reagan Airport**\
 `No injuries were reported after two Boeing 737s made contact while taxiing at the airport outside Washington, D.C., during the busy Thanksgiving holiday weekend.`\
 https://www.nytimes.com/2026/11/27/us/wings-clipped-american-reagan-airport.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
 **Why Grand Theft Auto VI Is the Future**\
 `Pablo reacts to the game with big questions.`\
 https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.html
-
-**Holiday Deals Are Tempting. Here’s How to Avoid Buyer’s Remorse.**\
-`Some deals are too good to be true. Experts suggest doing the math, making lists and avoiding using “buy now, pay later” platforms to make purchases.`\
-https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
 
