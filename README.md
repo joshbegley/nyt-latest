@@ -1,3 +1,39 @@
+**The Ultimate Guide for Gifts You Can’t Buy**\
+`Blame it on tariffs, national security or geographic scarcity — in the land of plenty, not everything is for sale.`\
+https://www.nytimes.com/interactive/2026/11/28/business/gift-guide-impossible-items-us-tariffs-security.html
+
+**Pedro Pascal: ‘That’s How It Goes When You’re Spanglish’**\
+`On “The Interview,” the actor Pedro Pascal discussed his career and how he unconsciously code-switches, depending on his environment.`\
+https://www.nytimes.com/video/podcasts/100000011305387/pedro-pascal-interview-spanglish-code-switch.html
+
+**Why Pedro Pascal Was Once Peter. And Then Alex.**\
+`On “The Interview,” the actor Pedro Pascal talked about why he tried out different names during his childhood and early career.`\
+https://www.nytimes.com/video/podcasts/100000011305386/pedro-pascal-interview-name-change.html
+
+**Pedro Pascal on Being Separated From His Mother as a Baby**\
+`When the actor Pedro Pascal was a baby, his parents went into hiding in Chile to escape possible arrest during the repressive Augusto Pinochet regime. He discussed how that experience has come up in his therapy sessions on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011305375/pedro-pascal-interview-mother.html
+
+**Pedro Pascal on His Family’s Narrow Escape in Chile**\
+`On “The Interview,” the actor Pedro Pascal talked about the events during the repressive dictatorship of Augusto Pinochet in Chile that led his parents to go into hiding. They eventually fled the country.`\
+https://www.nytimes.com/video/podcasts/100000011305369/pedro-pascal-interview-family-chile.html
+
+**Pedro Pascal’s Life Began With a Rupture. He’s Still Coming to Terms With It.**\
+`At 51, the actor and “Behemoth!” star is navigating his past and embracing his present.`\
+https://www.nytimes.com/video/podcasts/100000011304113/pedro-pascal-behemoth-interview.html
+
+**Millions of Children Are Losing Food Stamps**\
+`Republicans said the cuts, part of their domestic policy bill, would root out fraud and push adults to work. But two million children have lost benefits.`\
+https://www.nytimes.com/2026/11/28/us/politics/millions-of-children-are-losing-food-stamps.html
+
+**Ukraine’s Deep Strikes Grow in Scale and Scope Across Russia and Beyond**\
+`A campaign aimed at depriving Moscow’s war machine of fuel, weapons and money has been criticized by the Trump administration.`\
+https://www.nytimes.com/2026/11/28/world/europe/ukraine-russia-long-range-strikes.html
+
+**Our Insurer Dropped Us After Neighbors Flooded Our Apartment. What Can We Do?**\
+`You’ll want to start by making some demands of your condo board.`\
+https://www.nytimes.com/2026/11/28/realestate/condos-insurance-plumbing-leaks.html
+
 **This Seattle Engineering Marvel Hid a Mystery: Pyramids of Dead Fish**\
 `What could have caused the piles of carcasses beneath the mile-and-a-half-long floating bridge that extended Seattle’s light rail across a lake?`\
 https://www.nytimes.com/2026/11/28/us/dead-fish-mystery-seattle.html
@@ -161,40 +197,4 @@ https://www.nytimes.com/2026/11/27/nyregion/mamdani-achilles-tendon-surgery-succ
 **Princess Catherine’s Cancer Documentary ‘Heal’: 3 Takeaways**\
 `‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
 https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
-
-**Johannesburg Lawmakers Snub Helen Zille in Mayoral Election**\
-`The selection of Herman Mashaba to lead South Africa’s wealthiest city was a blow to Helen Zille, the candidate whose party won the most votes in the election.`\
-https://www.nytimes.com/2026/11/27/world/africa/johannesburg-mayor-zille-mashaba-anc.html
-
-**A.I. Is the '800-Pound Gorilla' Facing Mathematicians**\
-`This episode features Terence Tao, a Fields Medal–winning mathematician and one of the top people in the field. He talks with Max about how the newest AI models are changing math research, and what he’s seeing up close.`\
-https://www.nytimes.com/video/podcasts/100000011311921/ai-is-the-800-pound-gorilla-facing-mathematicians.html
-
-**Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
-`Ms. Stewart-Cousins, 76, served in the State Senate for 20 years. Her sudden death leaves a leadership void among top state Democrats.`\
-https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
-
-**A.I. Is the “800-Pound Gorilla” Facing Mathematicians**\
-`Artificial intelligence can solve math problems but cannot explain how it arrives at the answer, according to the mathematician Terence Tao. Tao speaks on the “Hard Fork” podcast about how A.I. impacts his industry.`\
-https://www.nytimes.com/video/podcasts/100000011311742/ai-is-the-800-pound-gorilla-facing-mathematicians.html
-
-**Why Tech Companies Left Academics Behind**\
-`Until recently, technology companies collaborated closely with mathematicians and academics, like the renowned mathematician Terence Tao. On the “Hard Fork” podcast, Tao explains how the relationship between tech and academics is shifting with the rise of artificial intelligence.`\
-https://www.nytimes.com/video/podcasts/100000011311712/why-tech-companies-left-academics-behind.html
-
-**A Leading Mathematician’s Take on A.I.**\
-`A “hero to a lot of A.I. researchers,” the mathematician Terence Tao has worked closely with technology companies for decades. On the “Hard Fork” podcast, he shares his opinions about whether A.I. is helpful or hurtful.`\
-https://www.nytimes.com/video/podcasts/100000011311709/a-leading-mathematicians-take-on-ai.html
-
-**Russia’s Big Ambitions for A.I. Are Undercut by Constraints of War**\
-`Russian officials see artificial intelligence as a way to solve the country’s pressing problems. But Russia’s technological development has been held back.`\
-https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html
-
-**Julio Torres on His Favorite Books and ‘The Perfect Gift’**\
-`“We reduce what can be a beautiful act into a cold exchange of goods,” says the actor and writer. His new book, “The Perfect Gift,” has other ideas.`\
-https://www.nytimes.com/2026/11/27/books/review/julio-torres-the-perfect-gift.html
-
-**Spanish Authorities Find Marijuana Farm Under Backyard Playground**\
-`Spain’s Civil Guard said it discovered an underground marijuana farm beneath a backyard playground in the country’s south. Five people were arrested, the authorities said.`\
-https://www.nytimes.com/video/world/europe/100000011311669/spain-marijuana-playground-hidden.html
 

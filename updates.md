@@ -1,3 +1,79 @@
+**This Seattle Engineering Marvel Hid a Mystery: Pyramids of Dead Fish**\
+`What could have caused the piles of carcasses beneath the mile-and-a-half-long floating bridge that extended Seattle’s light rail across a lake?`\
+https://www.nytimes.com/2026/11/28/us/dead-fish-mystery-seattle.html
+
+**Paprika Powers This Village in Serbia**\
+`A Serbian town fights for a pepper and a tradition that has colored local life for centuries.`\
+https://www.nytimes.com/interactive/2026/11/28/dining/paprika-pepper-serbia.html
+
+**Chronixx, Roots Reggae Revivalist, Returns From ‘Exile’**\
+`He is performing his Grammy-nominated LP, which explores universal human connections, at two shows in Brooklyn.`\
+https://www.nytimes.com/2026/11/28/arts/chronixx-roots-reggae-revivalist-returns-from-exile.html
+
+**California Cities Are Adding Extra Insurance Against El Niño**\
+`Communities are looking for quicker access to recovery money in the face of a super El Niño and shrinking federal help.`\
+https://www.nytimes.com/2026/11/28/climate/el-nino-floods-california-insurance.html
+
+**How a Cold War Peptide Landed on the F.D.A.’s Agenda**\
+`The peptide epitalon is now available by prescription in the United States. Its origin story starts with a Soviet meat-processing plant.`\
+https://www.nytimes.com/2026/11/28/science/epitalon-peptide-soviet-history.html
+
+**Are You Still Friends With Your Bridesmaids?**\
+`Years after their weddings, some former brides are grieving friendships with bridesmaids who are no longer a part of their lives.`\
+https://www.nytimes.com/2026/11/28/style/bridesmaids-friendship-breakup.html
+
+**Privacy Is a Luxury, Yes. It’s Also Kinda Sexy.**\
+`When everybody can see everything, what’s left to desire?`\
+https://www.nytimes.com/2026/11/28/style/social-media-privacy-luxury-eroticism.html
+
+**Can This ‘Jungle Book’ Define a New Era at Britain’s National Theater?**\
+`About 18 months into her tenure, the artistic director Indhu Rubasingham is betting on a contemporary, puppet-driven take on Rudyard Kipling’s classic to showcase her vision.`\
+https://www.nytimes.com/2026/11/28/theater/jungle-book-national-theatre-indhu-rubasingham.html
+
+**A.I. Has Upended Math. Is Physics Next?**\
+`The need to test theories in the world will limit what the technology can do on its own. But physicists say it’s becoming increasingly skilled — and useful.`\
+https://www.nytimes.com/2026/11/28/science/ai-math-physics-next.html
+
+**Where Fiona Shaw Finds ‘Unmatchable and Seemingly Simple Joy’**\
+`A star of the latest “Sense and Sensibility” adaptation, the veteran stage actress loves yoga, growing tomatoes and sitting around with friends.`\
+https://www.nytimes.com/2026/11/28/arts/television/fiona-shaw-pride-and-prejudice.html
+
+**It’s the World’s Third Leading Cause of Death. Are Better Treatments Coming?**\
+`Chronic obstructive pulmonary disease has long been poorly understood and hard to treat, but that’s changing.`\
+https://www.nytimes.com/2026/11/28/well/copd-treatments.html
+
+**A.I. Companies Race for Space in New York, a City That Doesn’t Have Much of It**\
+`The artificial intelligence boom is on track to help lift Manhattan’s office market to its strongest year since 2000. But as the market tightens, A.I. companies have had to get creative for real estate.`\
+https://www.nytimes.com/2026/11/28/business/ai-offices-nyc-perplexity.html
+
+**Canada’s Arctic Reservists Know the Land. Fewer Young People Do.**\
+`Canada relies on Inuit and First Nations Rangers’ traditional knowledge of the land to protect its most inhospitable corners. But that knowledge is disappearing.`\
+https://www.nytimes.com/2026/11/28/world/canada/canada-rangers-quebec-arctic-military.html
+
+**Matching Book Recommendations to Your Mood**\
+`MJ Franklin of The New York Times Book Review recommends books to match your mood.`\
+https://www.nytimes.com/video/books/100000011223791/matching-book-recommendations-to-your-mood.html
+
+**How Michael McDowell’s “Blackwater” Brought Alabama to France. Sort of.**\
+`“Blackwater,” by Michael McDowell, has become an unexpected sensation on the continent. But hardly anyone in southern Alabama, where he grew up, had a clue.`\
+https://www.nytimes.com/2026/11/28/books/michael-mcdowell-blackwater-perdido-alabama.html
+
+**How One Woman’s Quest for Clean Water Shook Up Trinidad, Texas**\
+`An arrest over a Facebook post was followed by investigations, resignations and the disbanding of the city’s police force.`\
+https://www.nytimes.com/2026/11/28/us/texas-water-town.html
+
+**Freed From a Notorious Syrian Prison, but Still Trapped by Its Terror**\
+`Ahmed al-Shalh expected to perish in Sednaya prison. Abruptly released after a decade, he reveled in marriage and fatherhood but struggled to shake his ghosts.`\
+https://www.nytimes.com/2026/11/28/world/middleeast/freed-from-a-notorious-syrian-prison-but-still-trapped-by-its-terror.html
+
+**5 Minutes That Will Make You Love Andrew Lloyd Webber**\
+`Fans including John Legend, Donny Osmond, André De Shields and Emily Saliers of the Indigo Girls explain what makes the composer of “Cats” Broadway’s biggest hitmaker.`\
+https://www.nytimes.com/2026/11/28/theater/andrew-lloyd-webber-cats.html
+
+**Listen to James Earl Jones, the Greatest Voice Ever to Perform Othello**\
+`It took James Earl Jones a lifetime of performing this complex role to come to a “full comprehension of the man.”`\
+https://www.nytimes.com/2026/11/28/theater/othello-james-earl-jones.html
+
 **Princess Catherine’s Cancer Documentary ‘Heal’: 3 Takeaways**\
 `‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
 https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
