@@ -6,7 +6,7 @@ https://www.nytimes.com/2026/11/28/world/europe/france-right-gangs-unrest.html
 `Quotation of the Day for Saturday, November 28, 2026.`\
 https://www.nytimes.com/2026/11/28/pageoneplus/quote-of-the-day-war-is-exacting-an-ever-growing-toll-on-ukraines-wildlife-too.html
 
-**Trump’s Embrace of Xi and Huang Stun China Critics in Washington**\
+**Trump’s Embrace of Xi and Huang Stuns China Critics in Washington**\
 `Warnings from hard-liners have grown more urgent amid what some call a winner-take-all race for A.I. dominance.`\
 https://www.nytimes.com/2026/11/28/us/politics/trump-china-critics-nvidia.html
 

@@ -1,3 +1,7 @@
+**Trump’s Embrace of Xi and Huang Stuns China Critics in Washington**\
+`Warnings from hard-liners have grown more urgent amid what some call a winner-take-all race for A.I. dominance.`\
+https://www.nytimes.com/2026/11/28/us/politics/trump-china-critics-nvidia.html
+
 **Far-Right Vigilantes Have Inflamed France’s Unrest, Officials Say**\
 `Through weeks of antigovernment unrest, hard-right activists have fought with left-wing counterparts in at least 10 towns, according to national and regional leaders.`\
 https://www.nytimes.com/2026/11/28/world/europe/france-right-gangs-unrest.html
