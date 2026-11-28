@@ -82,7 +82,7 @@ https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parad
 `Mayor Zohran Mamdani, who injured himself playing soccer, returned to Gracie Mansion and was expected to make a “full recovery,” the spokesman said.`\
 https://www.nytimes.com/2026/11/27/nyregion/mamdani-achilles-tendon-surgery-success.html
 
-**Princess Kate’s Cancer Documentary ‘Heal’: 3 Takeaways**\
+**Princess Catherine’s Cancer Documentary ‘Heal’: 3 Takeaways**\
 `‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
 https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
 

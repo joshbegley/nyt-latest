@@ -1,3 +1,7 @@
+**Princess Catherine’s Cancer Documentary ‘Heal’: 3 Takeaways**\
+`‘Heal,’ a 30-minute authorized documentary released this week, offers glimpses into Catherine’s recovery since her 2024 cancer diagnosis and treatment.`\
+https://www.nytimes.com/2026/11/27/world/europe/princess-catherine-kate-heal-cancer-documentary.html
+
 **A Big Bookstore Arrives Near a Shop on the Corner. This Isn’t a Movie.**\
 `In a scenario straight out of “You’ve Got Mail,” a Barnes & Noble opened across from an indie bookstore. Some readers are rejoicing.`\
 https://www.nytimes.com/2026/11/28/nyregion/small-bookstore-barnes-and-noble.html
