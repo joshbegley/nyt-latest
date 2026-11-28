@@ -1,3 +1,7 @@
+**For One Stormy Moment, D.C. Reveled in a Blank Wall Where Trump’s Name Once Hung**\
+`High winds dislodged a section of tarp obscuring the removal of the president’s name from the John F. Kennedy Center for the Performing Arts, whipping up some members of the capital.`\
+https://www.nytimes.com/2026/11/27/us/politics/kennedy-center-trump-name-tarp.html
+
 **Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
 `Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
 https://www.nytimes.com/2026/11/27/us/politics/supreme-court-rulings-midterms-voting.html
