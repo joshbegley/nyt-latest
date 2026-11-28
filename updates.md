@@ -1,3 +1,7 @@
+**Supreme Court Rulings Cheered by Republicans Wound Up Hurting Them**\
+`Decisions on voting rights, immigration and corruption generated a backlash that helped spur turnout that drove the Democratic sweep of Congress.`\
+https://www.nytimes.com/2026/11/27/us/politics/supreme-court-rulings-midterms-voting.html
+
 **Anita DeFrantz, Who Rowed Her Way Into Olympic History, Dies at 74**\
 `She was the first Black woman to win an Olympic medal in rowing. She then became a relentless advocate for women’s inclusion in the Olympics.`\
 https://www.nytimes.com/2026/11/27/sports/anita-defrantz-dead.html
