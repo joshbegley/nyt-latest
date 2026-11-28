@@ -1,3 +1,7 @@
+**Anita DeFrantz, Who Rowed Her Way Into Olympic History, Dies at 74**\
+`She was the first Black woman to win an Olympic medal in rowing. She then became a relentless advocate for women’s inclusion in the Olympics.`\
+https://www.nytimes.com/2026/11/27/sports/anita-defrantz-dead.html
+
 **Black Friday Shoppers Flock to Stores Despite Rising Inflation**\
 `Shoppers flocked to stores and malls in search of Black Friday deals. Despite rising prices, consumers have been making more tradeoffs in their spending than choosing to cut back outright.`\
 https://www.nytimes.com/video/us/100000011312030/black-friday-shoppers-flock-to-stores-despite-rising-inflation.html
