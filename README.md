@@ -1,4 +1,4 @@
-**Live Updates: Macy’s Thanksgiving Parade Goes Ahead After 2-Day Delay**\
+**Live Updates: Macy’s Thanksgiving Parade Set To Go Ahead After 2-Day Delay**\
 `The city’s decision to postpone the parade because of a storm disrupted the plans of many fans and performers, but the show will go on.`\
 https://www.nytimes.com/live/2026/11/28/nyregion/macys-thanksgiving-parade
 
