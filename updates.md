@@ -1,3 +1,15 @@
+**A Big Bookstore Arrives Near a Shop on the Corner. This Isn’t a Movie.**\
+`In a scenario straight out of “You’ve Got Mail,” a Barnes & Noble opened across from an indie bookstore. Some readers are rejoicing.`\
+https://www.nytimes.com/2026/11/28/nyregion/small-bookstore-barnes-and-noble.html
+
+**Greenways Are Designed to Unite Neighborhoods. Sometimes, They Divide.**\
+`New York has more than 500 miles of car-free, linear paths, but some have been overlooked or blocked by drivers and private property owners.`\
+https://www.nytimes.com/2026/11/28/nyregion/nyc-greenways.html
+
+**NYT Spelling Bee Answers for November 28, 2026**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://www.nytimes.com/2026/11/28/crosswords/spelling-bee-forum.html
+
 **Trump’s Embrace of Xi and Huang Stuns China Critics in Washington**\
 `Warnings from hard-liners have grown more urgent amid what some call a winner-take-all race for A.I. dominance.`\
 https://www.nytimes.com/2026/11/28/us/politics/trump-china-critics-nvidia.html
