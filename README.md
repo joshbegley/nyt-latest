@@ -1,3 +1,7 @@
+**Retail Therapy**\
+`It’s holiday shopping season. Do not panic.`\
+https://www.nytimes.com/2026/11/28/briefing/retail-therapy.html
+
 **Is It OK to Read My Late Daughter’s Diaries?**\
 `She was intensely private her whole life.`\
 https://www.nytimes.com/2026/11/28/magazine/late-daughter-diaries-ethics.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/sports/anita-defrantz-dead.html
 **Black Friday Shoppers Flock to Stores Despite Rising Inflation**\
 `Shoppers flocked to stores and malls in search of Black Friday deals. Despite rising prices, consumers have been making more tradeoffs in their spending than choosing to cut back outright.`\
 https://www.nytimes.com/video/us/100000011312030/black-friday-shoppers-flock-to-stores-despite-rising-inflation.html
-
-**Planning Board to Hold Last-Minute Meeting to Consider Trump’s D.C. Construction**\
-`President Trump will lose control over the National Capital Planning Commission after Democrats take control of Congress in January. It could give final approval to some of his prized projects.`\
-https://www.nytimes.com/2026/11/27/us/politics/planning-board-trump-construction-meeting.html
 
