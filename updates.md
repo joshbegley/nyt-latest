@@ -1,3 +1,39 @@
+**The Ultimate Guide for Gifts You Can’t Buy**\
+`Blame it on tariffs, national security or geographic scarcity — in the land of plenty, not everything is for sale.`\
+https://www.nytimes.com/interactive/2026/11/28/business/gift-guide-impossible-items-us-tariffs-security.html
+
+**Pedro Pascal: ‘That’s How It Goes When You’re Spanglish’**\
+`On “The Interview,” the actor Pedro Pascal discussed his career and how he unconsciously code-switches, depending on his environment.`\
+https://www.nytimes.com/video/podcasts/100000011305387/pedro-pascal-interview-spanglish-code-switch.html
+
+**Why Pedro Pascal Was Once Peter. And Then Alex.**\
+`On “The Interview,” the actor Pedro Pascal talked about why he tried out different names during his childhood and early career.`\
+https://www.nytimes.com/video/podcasts/100000011305386/pedro-pascal-interview-name-change.html
+
+**Pedro Pascal on Being Separated From His Mother as a Baby**\
+`When the actor Pedro Pascal was a baby, his parents went into hiding in Chile to escape possible arrest during the repressive Augusto Pinochet regime. He discussed how that experience has come up in his therapy sessions on “The Interview.”`\
+https://www.nytimes.com/video/podcasts/100000011305375/pedro-pascal-interview-mother.html
+
+**Pedro Pascal on His Family’s Narrow Escape in Chile**\
+`On “The Interview,” the actor Pedro Pascal talked about the events during the repressive dictatorship of Augusto Pinochet in Chile that led his parents to go into hiding. They eventually fled the country.`\
+https://www.nytimes.com/video/podcasts/100000011305369/pedro-pascal-interview-family-chile.html
+
+**Pedro Pascal’s Life Began With a Rupture. He’s Still Coming to Terms With It.**\
+`At 51, the actor and “Behemoth!” star is navigating his past and embracing his present.`\
+https://www.nytimes.com/video/podcasts/100000011304113/pedro-pascal-behemoth-interview.html
+
+**Millions of Children Are Losing Food Stamps**\
+`Republicans said the cuts, part of their domestic policy bill, would root out fraud and push adults to work. But two million children have lost benefits.`\
+https://www.nytimes.com/2026/11/28/us/politics/millions-of-children-are-losing-food-stamps.html
+
+**Ukraine’s Deep Strikes Grow in Scale and Scope Across Russia and Beyond**\
+`A campaign aimed at depriving Moscow’s war machine of fuel, weapons and money has been criticized by the Trump administration.`\
+https://www.nytimes.com/2026/11/28/world/europe/ukraine-russia-long-range-strikes.html
+
+**Our Insurer Dropped Us After Neighbors Flooded Our Apartment. What Can We Do?**\
+`You’ll want to start by making some demands of your condo board.`\
+https://www.nytimes.com/2026/11/28/realestate/condos-insurance-plumbing-leaks.html
+
 **This Seattle Engineering Marvel Hid a Mystery: Pyramids of Dead Fish**\
 `What could have caused the piles of carcasses beneath the mile-and-a-half-long floating bridge that extended Seattle’s light rail across a lake?`\
 https://www.nytimes.com/2026/11/28/us/dead-fish-mystery-seattle.html
