@@ -1,3 +1,7 @@
+**2 American Airlines Jets Clip Wings at Reagan Airport**\
+`No injuries were reported after two Boeing 737s made contact while taxiing at the airport outside Washington, D.C., during the busy Thanksgiving holiday weekend.`\
+https://www.nytimes.com/2026/11/27/us/wings-clipped-american-reagan-airport.html
+
 **For One Stormy Moment, D.C. Reveled in a Blank Wall Where Trump’s Name Once Hung**\
 `High winds dislodged a section of tarp obscuring the removal of the president’s name from the John F. Kennedy Center for the Performing Arts, whipping up some members of the capital.`\
 https://www.nytimes.com/2026/11/27/us/politics/kennedy-center-trump-name-tarp.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.ht
 **Holiday Deals Are Tempting. Here’s How to Avoid Buyer’s Remorse.**\
 `Some deals are too good to be true. Experts suggest doing the math, making lists and avoiding using “buy now, pay later” platforms to make purchases.`\
 https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
-
-**Just How Big Was the Grand Theft Auto VI Launch?**\
-`(No description)`\
-https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html
 
