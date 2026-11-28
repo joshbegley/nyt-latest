@@ -1,3 +1,23 @@
+**Is It OK to Read My Late Daughter’s Diaries?**\
+`She was intensely private her whole life.`\
+https://www.nytimes.com/2026/11/28/magazine/late-daughter-diaries-ethics.html
+
+**Behind the Story: Canada’s Border Rules Are Splitting Up Haitian Families**\
+`Asylum seekers coming from the U.S. must qualify for an exception to the Safe Third Country Agreement to make a refugee claim at a Canadian border crossing.`\
+https://www.nytimes.com/2026/11/28/world/canada/us-border-haitian-families-third-safe-country.html
+
+**Today’s Wordle Hints for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/wordle-review-1989.html
+
+**NYT Strands Hints for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/strands-sidekick-1001.html
+
+**NYT Connections Answers for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/connections-companion-1267.html
+
 **Live Updates: Macy’s Thanksgiving Parade Set To Go Ahead After 2-Day Delay**\
 `The city’s decision to postpone the parade because of a storm disrupted the plans of many fans and performers, but the show will go on.`\
 https://www.nytimes.com/live/2026/11/28/nyregion/macys-thanksgiving-parade

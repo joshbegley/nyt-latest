@@ -1,3 +1,23 @@
+**Is It OK to Read My Late Daughter’s Diaries?**\
+`She was intensely private her whole life.`\
+https://www.nytimes.com/2026/11/28/magazine/late-daughter-diaries-ethics.html
+
+**Behind the Story: Canada’s Border Rules Are Splitting Up Haitian Families**\
+`Asylum seekers coming from the U.S. must qualify for an exception to the Safe Third Country Agreement to make a refugee claim at a Canadian border crossing.`\
+https://www.nytimes.com/2026/11/28/world/canada/us-border-haitian-families-third-safe-country.html
+
+**Today’s Wordle Hints for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/wordle-review-1989.html
+
+**NYT Strands Hints for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/strands-sidekick-1001.html
+
+**NYT Connections Answers for November 29, 2026**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 29, 2026.`\
+https://www.nytimes.com/2026/11/28/crosswords/connections-companion-1267.html
+
 **Live Updates: Macy’s Thanksgiving Parade Set To Go Ahead After 2-Day Delay**\
 `The city’s decision to postpone the parade because of a storm disrupted the plans of many fans and performers, but the show will go on.`\
 https://www.nytimes.com/live/2026/11/28/nyregion/macys-thanksgiving-parade
@@ -177,24 +197,4 @@ https://www.nytimes.com/video/us/100000011312030/black-friday-shoppers-flock-to-
 **Planning Board to Hold Last-Minute Meeting to Consider Trump’s D.C. Construction**\
 `President Trump will lose control over the National Capital Planning Commission after Democrats take control of Congress in January. It could give final approval to some of his prized projects.`\
 https://www.nytimes.com/2026/11/27/us/politics/planning-board-trump-construction-meeting.html
-
-**NBC Pulls an Ad That Some Described as Antisemitic**\
-`The commercial appeared during a “Saturday Night Live” holiday special on Wednesday.`\
-https://www.nytimes.com/2026/11/27/business/media/nbc-ad-snl.html
-
-**Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms.**\
-`Some Americans canceled or postponed Thanksgiving dinners amid power outages and storms. They were rescheduled to Friday, Saturday and beyond.`\
-https://www.nytimes.com/2026/11/27/us/thanksgiving-delayed-storm.html
-
-**Police Link Release of Substance at Don Toliver Concert to Robbery Attempts**\
-`The police in Manchester, England, said they believed “organized criminals targeted people in the crowd to commit a series of robberies” during the concert on Sunday night.`\
-https://www.nytimes.com/2026/11/27/world/europe/don-toliver-manchester-substance-robberies.html
-
-**California Hiker Falls 500 Feet to His Death While Trying to Help Son**\
-`Guillermo Batres, 44, slipped while hiking Mount Baden-Powell, northeast of Los Angeles, earlier this week. Two other hikers who were nearby rescued his teenage son and called 911.`\
-https://www.nytimes.com/2026/11/27/us/california-baden-powell-hiking-death.html
-
-**What to Know About the (Rescheduled) Macy’s Thanksgiving Parade**\
-`Yes, there will be balloons. Some people even got a sneak peek at them. Here’s what to expect for Saturday’s version of the postponed holiday event.`\
-https://www.nytimes.com/2026/11/27/nyregion/rescheduled-macys-thanksgiving-parade.html
 
