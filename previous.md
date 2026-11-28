@@ -59,7 +59,7 @@ https://www.nytimes.com/2026/11/27/world/africa/johannesburg-mayor-zille-mashaba
 https://www.nytimes.com/video/podcasts/100000011311921/ai-is-the-800-pound-gorilla-facing-mathematicians.html
 
 **Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
-`Ms. Stewart-Cousins, 76, served in the State Senate for 20 years.  Her sudden death leaves a leadership void among top state Democrats.`\
+`Ms. Stewart-Cousins, 76, served in the State Senate for 20 years. Her sudden death leaves a leadership void among top state Democrats.`\
 https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
 
 **A.I. Is the “800-Pound Gorilla” Facing Mathematicians**\

@@ -1,3 +1,7 @@
+**Andrea Stewart-Cousins, New York’s First Female Senate Majority Leader, Dies**\
+`Ms. Stewart-Cousins, 76, served in the State Senate for 20 years. Her sudden death leaves a leadership void among top state Democrats.`\
+https://www.nytimes.com/2026/11/27/us/andrea-stewart-cousins-dead.html
+
 **Hankering**\
 `John Guzzetta presents an ornate themeless puzzle.`\
 https://www.nytimes.com/2026/11/27/crosswords/daily-puzzle-2026-11-28.html
