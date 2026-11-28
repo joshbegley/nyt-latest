@@ -1,3 +1,27 @@
+**Far-Right Vigilantes Have Inflamed France’s Unrest, Officials Say**\
+`Through weeks of antigovernment unrest, hard-right activists have fought with left-wing counterparts in at least 10 towns, according to national and regional leaders.`\
+https://www.nytimes.com/2026/11/28/world/europe/france-right-gangs-unrest.html
+
+**Quote of the Day: War Is Exacting an Ever-Growing Toll on Ukraine’s Wildlife, Too**\
+`Quotation of the Day for Saturday, November 28, 2026.`\
+https://www.nytimes.com/2026/11/28/pageoneplus/quote-of-the-day-war-is-exacting-an-ever-growing-toll-on-ukraines-wildlife-too.html
+
+**Trump’s Embrace of Xi and Huang Stun China Critics in Washington**\
+`Warnings from hard-liners have grown more urgent amid what some call a winner-take-all race for A.I. dominance.`\
+https://www.nytimes.com/2026/11/28/us/politics/trump-china-critics-nvidia.html
+
+**Abroad, Spain’s Leader Is a Left-Wing Hero. Will He Lose Power at Home?**\
+`Prime Minister Pedro Sánchez, a staunch critic of President Trump, faces an uphill task to overcome a right-wing challenge in the national election on Sunday.`\
+https://www.nytimes.com/2026/11/28/world/europe/spain-pedro-sanchez-conservatives-election.html
+
+**FIFA May Scrap the Peace Prize It Gave to Trump**\
+`Gianni Infantino, the global soccer body’s leader, has stirred concern over his ties to President Trump. Now FIFA is rethinking the award he gave Mr. Trump last year.`\
+https://www.nytimes.com/2026/11/28/world/europe/fifa-peace-prize-trump-infantino.html
+
+**From the Front Page: Roosevelt, Churchill and Stalin Meet in Tehran on Nov. 28, 1943**\
+`The “Big Three” Allied leaders — Franklin D. Roosevelt, Winston Churchill and Joseph Stalin — gathered in Iran for their first joint conference during World War II.`\
+https://www.nytimes.com/2026/11/28/learning/from-the-front-page-roosevelt-churchill-and-stalin-meet-in-tehran-on-nov-28-1943.html
+
 **Hankering**\
 `John Guzzetta presents an ornate themeless puzzle.`\
 https://www.nytimes.com/2026/11/27/crosswords/daily-puzzle-2026-11-28.html
@@ -173,28 +197,4 @@ https://www.nytimes.com/2026/11/27/opinion/religion-revival-technology.html
 **I Prosecuted Government Corruption. We’re in Trouble.**\
 `Federal prosecutors will struggle to prosecute any corrupt government official for years.`\
 https://www.nytimes.com/2026/11/27/opinion/corruption-government-prosecutions.html
-
-**Today’s Wordle Hints for November 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
-https://www.nytimes.com/2026/11/27/crosswords/wordle-review-1988.html
-
-**NYT Strands Hints for November 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
-https://www.nytimes.com/2026/11/27/crosswords/strands-sidekick-1000.html
-
-**NYT Connections Answers for November 28, 2026**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 28, 2026.`\
-https://www.nytimes.com/2026/11/27/crosswords/connections-companion-1266.html
-
-**Puma Shen, Critic of China, Could be the Next Mayor of Taipei**\
-`Puma Shen, who has been sanctioned by China for his efforts to prepare civilians for an invasion, could become Taiwan’s next political star if he wins.`\
-https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html
-
-**Thanksgiving Storm Leaves More Than 400,000 Without Power on the East Coast**\
-`Conditions continued to improve on Friday after heavy rain and strong winds lashed the coast from Virginia to New York. But many remained without power and travel disruptions persisted.`\
-https://www.nytimes.com/2026/11/27/us/thanksgiving-weather-east-coast-storm.html
-
-**Why Grand Theft Auto VI Is the Future**\
-`Pablo reacts to the game with big questions.`\
-https://www.nytimes.com/2026/11/27/podcasts/grand-theft-auto-vi-future-gaming.html
 
