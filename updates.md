@@ -1,3 +1,31 @@
+**My Six Months With Saddam Hussein**\
+`As the Iraqi dictator’s chief F.B.I. interrogator, I learned how much pre-Iraq war profilers got wrong about him.`\
+https://www.nytimes.com/2026/11/28/opinion/saddam-hussein-us-iraq-war.html
+
+**Trump’s War on the I.C.C. Would Leave Victims Nowhere to Turn**\
+`As Rodrigo Duterte faces trial, Trump is attacking the court that offers his victims a rare chance at justice.`\
+https://www.nytimes.com/2026/11/28/opinion/trump-icc-hague-duerte-garganta.html
+
+**I Survived Auschwitz. A New Play Shows the Leisure Time of My Captors.**\
+`The SS guards weren’t monsters. They were human. That’s worse.`\
+https://www.nytimes.com/2026/11/28/opinion/holocaust-auschwitz-broadway-play-blueberries.html
+
+**Wasting Money Is Exactly What A.I. Companies Should Be Doing**\
+`The boom will waste billions in investments. It’s messy, but still the best way to nurture new tech companies.`\
+https://www.nytimes.com/2026/11/28/opinion/ai-boom-companies-investments-tech.html
+
+**America’s Power Is Eroding, One Bad Decision at a Time**\
+`Foreigners are still investing in the United States. But the country’s economic standing is still eroding.`\
+https://www.nytimes.com/2026/11/28/opinion/trump-america-economic-power.html
+
+**What the World’s Richest Man Did to the World’s Poorest Children**\
+`In South Sudan, I discovered more deaths as a result of Elon Musk’s U.S.A.I.D. cuts.`\
+https://www.nytimes.com/2026/11/28/opinion/elon-musk-usaid-south-sudan.html
+
+**Min Jin Lee: My Origin Story as an American**\
+`My father, like any ordinary parent, had to figure out how to live.`\
+https://www.nytimes.com/2026/11/28/opinion/min-jin-lee-nyt-175.html
+
 **Retail Therapy**\
 `It’s holiday shopping season. Do not panic.`\
 https://www.nytimes.com/2026/11/28/briefing/retail-therapy.html
