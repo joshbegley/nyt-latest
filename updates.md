@@ -1,3 +1,7 @@
+**Retail Therapy**\
+`It’s holiday shopping season. Do not panic.`\
+https://www.nytimes.com/2026/11/28/briefing/retail-therapy.html
+
 **Is It OK to Read My Late Daughter’s Diaries?**\
 `She was intensely private her whole life.`\
 https://www.nytimes.com/2026/11/28/magazine/late-daughter-diaries-ethics.html
