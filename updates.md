@@ -1,3 +1,7 @@
+**Pedro Pascal’s Life Began With a Rupture. He’s Still Coming to Terms With It.**\
+`At 51, the actor and “Behemoth!” star is navigating his past and embracing his present.`\
+https://www.nytimes.com/2026/11/28/magazine/pedro-pascal-interview.html
+
 **The Ultimate Guide for Gifts You Can’t Buy**\
 `Blame it on tariffs, national security or geographic scarcity — in the land of plenty, not everything is for sale.`\
 https://www.nytimes.com/interactive/2026/11/28/business/gift-guide-impossible-items-us-tariffs-security.html
