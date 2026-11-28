@@ -1,3 +1,7 @@
+**For One Stormy Moment, D.C. Reveled in a Blank Wall Where Trump’s Name Once Hung**\
+`High winds dislodged a section of tarp obscuring the removal of the president’s name from the John F. Kennedy Center for the Performing Arts, whipping up some members of the capital.`\
+https://www.nytimes.com/2026/11/27/us/politics/kennedy-center-trump-name-tarp.html
+
 **Anita DeFrantz, Who Rowed Her Way Into Olympic History, Dies at 74**\
 `She was the first Black woman to win an Olympic medal in rowing. She then became a relentless advocate for women’s inclusion in the Olympics.`\
 https://www.nytimes.com/2026/11/27/sports/anita-defrantz-dead.html
@@ -193,8 +197,4 @@ https://www.nytimes.com/2026/11/27/business/holiday-shopping-deals-spending.html
 **Just How Big Was the Grand Theft Auto VI Launch?**\
 `(No description)`\
 https://www.nytimes.com/interactive/2026/11/27/upshot/grand-theft-auto-comparisons.html
-
-**How to Let Go of Holiday Resentment**\
-`You may be tempted to score-keep with loved ones, but experts say it’s rarely worthwhile.`\
-https://www.nytimes.com/2026/11/27/well/holiday-resentment-family-fights.html
 
