@@ -1,3 +1,31 @@
+**My Six Months With Saddam Hussein**\
+`As the Iraqi dictator’s chief F.B.I. interrogator, I learned how much pre-Iraq war profilers got wrong about him.`\
+https://www.nytimes.com/2026/11/28/opinion/saddam-hussein-us-iraq-war.html
+
+**Trump’s War on the I.C.C. Would Leave Victims Nowhere to Turn**\
+`As Rodrigo Duterte faces trial, Trump is attacking the court that offers his victims a rare chance at justice.`\
+https://www.nytimes.com/2026/11/28/opinion/trump-icc-hague-duerte-garganta.html
+
+**I Survived Auschwitz. A New Play Shows the Leisure Time of My Captors.**\
+`The SS guards weren’t monsters. They were human. That’s worse.`\
+https://www.nytimes.com/2026/11/28/opinion/holocaust-auschwitz-broadway-play-blueberries.html
+
+**Wasting Money Is Exactly What A.I. Companies Should Be Doing**\
+`The boom will waste billions in investments. It’s messy, but still the best way to nurture new tech companies.`\
+https://www.nytimes.com/2026/11/28/opinion/ai-boom-companies-investments-tech.html
+
+**America’s Power Is Eroding, One Bad Decision at a Time**\
+`Foreigners are still investing in the United States. But the country’s economic standing is still eroding.`\
+https://www.nytimes.com/2026/11/28/opinion/trump-america-economic-power.html
+
+**What the World’s Richest Man Did to the World’s Poorest Children**\
+`In South Sudan, I discovered more deaths as a result of Elon Musk’s U.S.A.I.D. cuts.`\
+https://www.nytimes.com/2026/11/28/opinion/elon-musk-usaid-south-sudan.html
+
+**Min Jin Lee: My Origin Story as an American**\
+`My father, like any ordinary parent, had to figure out how to live.`\
+https://www.nytimes.com/2026/11/28/opinion/min-jin-lee-nyt-175.html
+
 **Retail Therapy**\
 `It’s holiday shopping season. Do not panic.`\
 https://www.nytimes.com/2026/11/28/briefing/retail-therapy.html
@@ -169,32 +197,4 @@ https://www.nytimes.com/2026/11/28/us/politics/trump-china-critics-nvidia.html
 **Abroad, Spain’s Leader Is a Left-Wing Hero. Will He Lose Power at Home?**\
 `Prime Minister Pedro Sánchez, a staunch critic of President Trump, faces an uphill task to overcome a right-wing challenge in the national election on Sunday.`\
 https://www.nytimes.com/2026/11/28/world/europe/spain-pedro-sanchez-conservatives-election.html
-
-**FIFA May Scrap the Peace Prize It Gave to Trump**\
-`Gianni Infantino, the global soccer body’s leader, has stirred concern over his ties to President Trump. Now FIFA is rethinking the award he gave Mr. Trump last year.`\
-https://www.nytimes.com/2026/11/28/world/europe/fifa-peace-prize-trump-infantino.html
-
-**From the Front Page: Roosevelt, Churchill and Stalin Meet in Tehran on Nov. 28, 1943**\
-`The “Big Three” Allied leaders — Franklin D. Roosevelt, Winston Churchill and Joseph Stalin — gathered in Iran for their first joint conference during World War II.`\
-https://www.nytimes.com/2026/11/28/learning/from-the-front-page-roosevelt-churchill-and-stalin-meet-in-tehran-on-nov-28-1943.html
-
-**Hankering**\
-`John Guzzetta presents an ornate themeless puzzle.`\
-https://www.nytimes.com/2026/11/27/crosswords/daily-puzzle-2026-11-28.html
-
-**2 American Airlines Jets Clip Wings at Reagan Airport**\
-`No injuries were reported after two Boeing 737s made contact while taxiing at the airport outside Washington, D.C., during the busy Thanksgiving holiday weekend.`\
-https://www.nytimes.com/2026/11/27/us/wings-clipped-american-reagan-airport.html
-
-**For One Stormy Moment, D.C. Reveled in a Blank Wall Where Trump’s Name Once Hung**\
-`High winds dislodged a section of tarp obscuring the removal of the president’s name from the John F. Kennedy Center for the Performing Arts, whipping up some members of the capital.`\
-https://www.nytimes.com/2026/11/27/us/politics/kennedy-center-trump-name-tarp.html
-
-**Anita DeFrantz, Who Rowed Her Way Into Olympic History, Dies at 74**\
-`She was the first Black woman to win an Olympic medal in rowing. She then became a relentless advocate for women’s inclusion in the Olympics.`\
-https://www.nytimes.com/2026/11/27/sports/anita-defrantz-dead.html
-
-**Black Friday Shoppers Flock to Stores Despite Rising Inflation**\
-`Shoppers flocked to stores and malls in search of Black Friday deals. Despite rising prices, consumers have been making more tradeoffs in their spending than choosing to cut back outright.`\
-https://www.nytimes.com/video/us/100000011312030/black-friday-shoppers-flock-to-stores-despite-rising-inflation.html
 
